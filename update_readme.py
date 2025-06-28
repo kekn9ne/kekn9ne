@@ -42,7 +42,7 @@ def get_now_playing(token):
 def get_weather():
     try:
         r = requests.get("https://wttr.in/Istanbul?format=3&m")
-        return r.text.strip()
+        return r.text.split(":", 1)[-1].strip()
     except:
         return "Unavailable 🌫️"
 
