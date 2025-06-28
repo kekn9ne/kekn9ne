@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
-📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Matmazel** by *Halodayı* 🎶
+📊 GitHub Contributions: **67**  
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
+_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
 
 ---
