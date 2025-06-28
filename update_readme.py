@@ -8,6 +8,7 @@ import pytz
 CLIENT_ID = os.getenv("SPOTIFY_CLIENT_ID")
 CLIENT_SECRET = os.getenv("SPOTIFY_CLIENT_SECRET")
 REFRESH_TOKEN = os.getenv("SPOTIFY_REFRESH_TOKEN")
+GH_ACCESS_TOKEN = os.getenv('GH_ACCESS_TOKEN')
 
 # Access Token al
 def get_spotify_token():
@@ -40,7 +41,7 @@ def get_now_playing(token):
 # Hava durumu
 def get_weather():
     try:
-        r = requests.get("https://wttr.in/Istanbul?format=3")
+        r = requests.get("https://wttr.in/Istanbul?format=3&m")
         return r.text.strip()
     except:
         return "Unavailable 🌫️"
@@ -76,13 +77,15 @@ def get_contribs():
     """
 
     headers = {
-        "Authorization": f"Bearer {os.getenv('GH_ACCESS_TOKEN')}"
+        "Authorization": f"Bearer {GH_ACCESS_TOKEN}"
     }
 
     try:
         r = requests.post("https://api.github.com/graphql", json={"query": query}, headers=headers)
         data = r.json()
+        print(data)
         count = data["data"]["user"]["contributionsCollection"]["contributionCalendar"]["totalContributions"]
+        
         return str(count)
     except:
         return "Unavailable"
