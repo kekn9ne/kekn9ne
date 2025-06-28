@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Yolunda "pavyon"** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A needle is not sharp at both ends.  — *Chinese Proverb*"_
+_"In the end, it's not the years in your life that count. It's the life in your years. — *Abraham Lincoln*"_
 
 ---
