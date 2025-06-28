@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 June 2025**  
-🌤️ Weather in Istanbul: **Istanbul: ⛅️  +29°C**  
-📊 GitHub Contributions: **76**  
-🎧 Currently Listening: **MINI TERORISTA** by *Jeff Redd* 🎶
+🌤️ Weather in Istanbul: **⛅️  +29°C**  
+📊 GitHub Contributions: **77**  
+🎧 Currently Listening: **JENGA** by *Khontkar* 🎶
 
 ---
 
-_"I was angered, for I had no shoes. Then I met a man who had no feet.  — *Chinese Proverb*"_
+_"Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. — *Charles Dickens*"_
 
 ---
