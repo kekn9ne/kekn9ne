@@ -7,6 +7,6 @@
 
 ---
 
-_"The less people know, the more stubbornly they know it. — *Osho*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
