@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole of life, from the moment you are born to the moment you die, is a process of learning. — *Jiddu Krishnamurti*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
