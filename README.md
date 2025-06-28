@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yalan** by *Ceren Sagu* 🎶
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
 
 ---
