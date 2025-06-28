@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 June 2025**  
-🌤️ Weather in Istanbul: **Istanbul: ⛅️  +85°F**  
-📊 GitHub Contributions (2024): **Unavailable**  
-🎧 Currently Listening: **Mercedes-Benz** by *Organize* 🎶
+🌤️ Weather in Istanbul: **Istanbul: ⛅️  +29°C**  
+📊 GitHub Contributions: **Unavailable**  
+🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
 
 ---
 
-_"Remember the entrance to the sanctuary is inside you. — *Rumi*"_
+_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
 
 ---
