@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Söyle - Y-Emre Music Official Remix** by *Catwork* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"Try not to become a man of success, but rather try to become a man of value. — *Albert Einstein*"_
 
 ---
