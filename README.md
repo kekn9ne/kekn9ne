@@ -7,6 +7,6 @@
 
 ---
 
-_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
+_"The less people know, the more stubbornly they know it. — *Osho*"_
 
 ---
