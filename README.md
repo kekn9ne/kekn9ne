@@ -7,6 +7,6 @@
 
 ---
 
-_"In spite of everything, I shall rise again. — *Vincent van Gogh*"_
+_"The road to success is always under construction.. — *Lily Tomlin*"_
 
 ---
