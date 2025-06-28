@@ -7,6 +7,6 @@
 
 ---
 
-_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
+_"The whole of life, from the moment you are born to the moment you die, is a process of learning. — *Jiddu Krishnamurti*"_
 
 ---
