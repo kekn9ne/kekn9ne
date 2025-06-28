@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
 
 ---
