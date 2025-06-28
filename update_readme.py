@@ -48,10 +48,12 @@ def get_weather():
 # Motivasyon sözü
 def get_quote():
     try:
-        r = requests.get("https://api.quotable.io/random")
-        return r.json()["content"]
+        r = requests.get("https://zenquotes.io/api/random")
+        data = r.json()[0]
+        return f'{data["q"]} — *{data["a"]}*'
     except:
         return "Stay strong. Keep coding. 💪"
+
 
 # Tarih (İstanbul)
 def get_date():
