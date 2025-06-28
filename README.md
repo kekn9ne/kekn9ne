@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
-📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Uyan** by *Velet* 🎶
+📊 GitHub Contributions: **77**  
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
+_"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories. — *Ray Bradbury*"_
 
 ---
