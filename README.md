@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 June 2025**  
-🌤️ Weather in Istanbul: **⛅️  +29°C**  
-📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
+🌤️ Weather in Istanbul: **⛅️  +28°C**  
+📊 GitHub Contributions: **77**  
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
