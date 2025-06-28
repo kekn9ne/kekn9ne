@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"The road to success is always under construction.. — *Lily Tomlin*"_
+_"When you stop questioning, you stop learning. — *Lolly Daskal*"_
 
 ---
