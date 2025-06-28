@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Doktor** by *Özgür Can Çoban* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I pay attention to every minute of the day. — *Steve Harvey*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
