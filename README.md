@@ -7,6 +7,6 @@
 
 ---
 
-_"Only in the agony of parting do we look into the depths of love. — *George Eliot*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
