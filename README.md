@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **POZ VERDİM** by *D-azy* 🎶
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
+_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
 
 ---
