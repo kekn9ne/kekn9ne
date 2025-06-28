@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
