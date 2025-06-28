@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Hangi Yüzüne Konuşacağım** by *Semicenk* 🎶
+🎧 Currently Listening: **Söyle - Y-Emre Music Official Remix** by *Catwork* 🎶
 
 ---
 
-_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
+_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
 
 ---
