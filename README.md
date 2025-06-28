@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Saturday, 28 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
-📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+📊 GitHub Contributions: **77**  
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
+_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
 
 ---
