@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
