@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"Life doesn't get easier or more forgiving, we get stronger and more resilient. — *Steve Maraboli*"_
 
 ---
