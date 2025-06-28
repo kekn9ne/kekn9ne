@@ -61,7 +61,30 @@ def get_date():
 
 # GitHub katkısı (örnek statik, API entegresi ayrı yapılabilir)
 def get_contribs():
-    return "🔢 Not fetched in this script"
+    query = """
+    query {
+      user(login: "kekn9ne") {
+        contributionsCollection {
+          contributionCalendar {
+            totalContributions
+          }
+        }
+      }
+    }
+    """
+
+    headers = {
+        "Authorization": f"Bearer {os.getenv('GH_ACCESS_TOKEN')}"
+    }
+
+    try:
+        r = requests.post("https://api.github.com/graphql", json={"query": query}, headers=headers)
+        data = r.json()
+        count = data["data"]["user"]["contributionsCollection"]["contributionCalendar"]["totalContributions"]
+        return str(count)
+    except:
+        return "Unavailable"
+
 
 # README güncelle
 def update_readme():
