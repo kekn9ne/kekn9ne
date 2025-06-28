@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"The quality, not the longevity, of one's life is what is important. — *Martin Luther King, Jr.*"_
 
 ---
