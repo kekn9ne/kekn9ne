@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is open for play, everything and everybody is mockable in a wonderful way. — *Robin Williams*"_
+_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
 
 ---
