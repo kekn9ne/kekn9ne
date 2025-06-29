@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
+_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
 
 ---
