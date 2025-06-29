@@ -7,6 +7,6 @@
 
 ---
 
-_"Anything you may hold firmly in your imagination can be yours. — *William James*"_
+_"The significance of life is living. — *Jiddu Krishnamurti*"_
 
 ---
