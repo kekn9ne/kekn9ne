@@ -7,6 +7,6 @@
 
 ---
 
-_"Give so much away people insist on paying you. — *Jack Butcher*"_
+_"Sometimes you have to travel a long way to find what is near. — *Paulo Coelho*"_
 
 ---
