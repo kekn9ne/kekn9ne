@@ -7,6 +7,6 @@
 
 ---
 
-_"If you love life, don't waste time, for time is what life is made up of.  — *Bruce Lee*"_
+_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
 
 ---
