@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
 
 ---
