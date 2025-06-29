@@ -7,6 +7,6 @@
 
 ---
 
-_"Good luck is opportunity meeting preparedness. — *Deepak Chopra*"_
+_"A minute's success pays the failure of years. — *Robert Browning*"_
 
 ---
