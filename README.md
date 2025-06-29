@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 29 June 2025**  
-🌤️ Weather in Istanbul: **⛅️  +25°C**  
+🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
+_"None are more hopelessly enslaved than those who falsely believe they are free. — *Johann Wolfgang von Goethe*"_
 
 ---
