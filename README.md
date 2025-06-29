@@ -7,6 +7,6 @@
 
 ---
 
-_"Each time we don't say what we wanna say, we're dying. — *Yoko Ono*"_
+_"The world is open for play, everything and everybody is mockable in a wonderful way. — *Robin Williams*"_
 
 ---
