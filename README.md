@@ -7,6 +7,6 @@
 
 ---
 
-_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
+_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
 
 ---
