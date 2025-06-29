@@ -7,6 +7,6 @@
 
 ---
 
-_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
+_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
 
 ---
