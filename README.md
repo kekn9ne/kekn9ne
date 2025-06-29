@@ -7,6 +7,6 @@
 
 ---
 
-_"The significance of life is living. — *Jiddu Krishnamurti*"_
+_"Either get busy living or get busy dying. — *Stephen King*"_
 
 ---
