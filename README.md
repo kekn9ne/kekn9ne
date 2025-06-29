@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
+_"Each time we don't say what we wanna say, we're dying. — *Yoko Ono*"_
 
 ---
