@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"Happiness is pretty simple: someone to love, something to do, something to look forward to. — *Rita Mae Brown*"_
 
 ---
