@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **KILLA INTRO** by *AKDO* 🎶
+🎧 Currently Listening: **Shoote Shoote** by *Ati242* 🎶
 
 ---
 
-_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
+_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
 
 ---
