@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness is the absence of light. — *Kamal Ravikant*"_
+_"Good luck is opportunity meeting preparedness. — *Deepak Chopra*"_
 
 ---
