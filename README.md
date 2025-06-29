@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
+_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
 
 ---
