@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to travel a long way to find what is near. — *Paulo Coelho*"_
+_"If you want peace, you won't get it with violence. — *John Lennon*"_
 
 ---
