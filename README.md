@@ -7,6 +7,6 @@
 
 ---
 
-_"Life without love is like a tree without blossoms or fruit. — *Kahlil Gibran*"_
+_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
 
 ---
