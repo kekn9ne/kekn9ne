@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Motivasyon** by *Ben Fero* 🎶
+🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"Have the fearless attitude of a hero and the loving heart of a child. — *Soyen Shaku*"_
 
 ---
