@@ -7,6 +7,6 @@
 
 ---
 
-_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
+_"The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination. — *Elbert Hubbard*"_
 
 ---
