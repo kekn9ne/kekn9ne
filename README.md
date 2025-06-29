@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **BÖLÜM SONU** by *Güneş* 🎶
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — *Tony Robbins*"_
 
 ---
