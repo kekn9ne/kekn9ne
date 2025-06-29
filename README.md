@@ -7,6 +7,6 @@
 
 ---
 
-_"Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before. — *Alexander Graham Bell*"_
+_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
 
 ---
