@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
+_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
 
 ---
