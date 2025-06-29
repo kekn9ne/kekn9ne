@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
+_"Do anything, but let it produce joy. — *Walt Whitman*"_
 
 ---
