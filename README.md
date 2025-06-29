@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
+_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
 
 ---
