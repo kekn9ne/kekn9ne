@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Rock'n Roll** by *Cegıd* 🎶
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
+_"When you judge another, you do not define them, you define yourself — *Wayne Dyer*"_
 
 ---
