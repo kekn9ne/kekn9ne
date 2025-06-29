@@ -7,6 +7,6 @@
 
 ---
 
-_"He is richest who is content with the least, for content is the wealth of nature. — *Socrates*"_
+_"Anything you may hold firmly in your imagination can be yours. — *William James*"_
 
 ---
