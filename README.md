@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
+_"Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control. — *Epictetus*"_
 
 ---
