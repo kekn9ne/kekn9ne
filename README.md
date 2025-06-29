@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yetmedi** by *Lvbel C5* 🎶
 
 ---
 
-_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
+_"Words, once they are printed, have a life of their own. — *Carol Burnett*"_
 
 ---
