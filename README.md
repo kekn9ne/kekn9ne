@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — *Tony Robbins*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
