@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
+🎧 Currently Listening: **BÖLÜM SONU** by *Güneş* 🎶
 
 ---
 
-_"Have the fearless attitude of a hero and the loving heart of a child. — *Soyen Shaku*"_
+_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
 
 ---
