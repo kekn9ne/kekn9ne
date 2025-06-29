@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
+_"Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before. — *Alexander Graham Bell*"_
 
 ---
