@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Shoote Shoote** by *Ati242* 🎶
+🎧 Currently Listening: **ELJF** by *Jefe* 🎶
 
 ---
 
-_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
+_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
 
 ---
