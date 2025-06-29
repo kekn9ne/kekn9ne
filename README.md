@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control. — *Epictetus*"_
+_"If you love life, don't waste time, for time is what life is made up of.  — *Bruce Lee*"_
 
 ---
