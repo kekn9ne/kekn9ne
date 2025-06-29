@@ -7,6 +7,6 @@
 
 ---
 
-_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
+_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
 
 ---
