@@ -7,6 +7,6 @@
 
 ---
 
-_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
+_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
 
 ---
