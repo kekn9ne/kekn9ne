@@ -7,6 +7,6 @@
 
 ---
 
-_"Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — *Charles Dickens*"_
+_"The only way round is through. — *Robert Frost*"_
 
 ---
