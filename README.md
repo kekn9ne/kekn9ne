@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 29 June 2025**  
-🌤️ Weather in Istanbul: **☀️   +25°C**  
+🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **ZİRVE** by *Keskin* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Choose a job you love, and you will never have to work a day in your life.  — *Confucius*"_
+_"Success comes to those who become success conscious. — *Napoleon Hill*"_
 
 ---
