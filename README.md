@@ -7,6 +7,6 @@
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"Love is not about possession. Love is about appreciation. — *Osho*"_
 
 ---
