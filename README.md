@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want peace, you won't get it with violence. — *John Lennon*"_
+_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
 
 ---
