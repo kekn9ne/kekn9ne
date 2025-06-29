@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Sağlamlık Testi** by *Borqy* 🎶
+🎧 Currently Listening: **Motivasyon** by *Ben Fero* 🎶
 
 ---
 
-_"it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds. — *Barack Obama*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
