@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want more luck, take more chances. — *Brian Tracy*"_
+_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
 
 ---
