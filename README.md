@@ -7,6 +7,6 @@
 
 ---
 
-_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
+_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
 
 ---
