@@ -7,6 +7,6 @@
 
 ---
 
-_"Do anything, but let it produce joy. — *Walt Whitman*"_
+_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
 
 ---
