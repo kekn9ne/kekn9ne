@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **SPOTIFY ARTIST(FREESTYLE)** by *Era7capone* 🎶
+🎧 Currently Listening: **ZİRVE** by *Keskin* 🎶
 
 ---
 
-_"The only limits in your life are those that you set yourself. — *Celestine Chua*"_
+_"Choose a job you love, and you will never have to work a day in your life.  — *Confucius*"_
 
 ---
