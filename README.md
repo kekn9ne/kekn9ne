@@ -7,6 +7,6 @@
 
 ---
 
-_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
+_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
 
 ---
