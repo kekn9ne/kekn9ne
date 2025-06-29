@@ -7,6 +7,6 @@
 
 ---
 
-_"None are more hopelessly enslaved than those who falsely believe they are free. — *Johann Wolfgang von Goethe*"_
+_"If you want more luck, take more chances. — *Brian Tracy*"_
 
 ---
