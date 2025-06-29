@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Vurdum** by *Ati242* 🎶
+🎧 Currently Listening: **Korkum Yok** by *Batuflex* 🎶
 
 ---
 
-_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
+_"If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else. — *Simon Sinek*"_
 
 ---
