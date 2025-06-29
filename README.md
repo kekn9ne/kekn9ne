@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 June 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **I Don’t Need Your Love** by *Baranow* 🎶
 
 ---
 
-_"Success comes to those who become success conscious. — *Napoleon Hill*"_
+_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
 
 ---
