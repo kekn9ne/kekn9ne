@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is like a dragon where, for every head cut off, two more heads grow back. — *Criss Jami*"_
+_"Cleverness is not wisdom. — *Euripides*"_
 
 ---
