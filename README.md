@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Monday, 30 June 2025**  
+🗓️ Today is: **Tuesday, 01 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mani** by *Ceg* 🎶
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
