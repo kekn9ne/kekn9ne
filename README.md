@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
