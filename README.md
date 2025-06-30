@@ -7,6 +7,6 @@
 
 ---
 
-_"The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened. — *Kamal Ravikant*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
