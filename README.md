@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
+_"If you look for perfection, you'll never be content. — *Leo Tolstoy*"_
 
 ---
