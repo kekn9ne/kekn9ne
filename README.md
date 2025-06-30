@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Bas Gaza** by *Mert* 🎶
+🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
 
 ---
 
-_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
+_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
 
 ---
