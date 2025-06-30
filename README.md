@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
 
 ---
