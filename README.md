@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to success is failure. — *Michael Jordan*"_
+_"You don't have to control your thoughts; you just have to stop letting them control you. — *Dan Millman*"_
 
 ---
