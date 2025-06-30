@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
+_"The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened. — *Kamal Ravikant*"_
 
 ---
