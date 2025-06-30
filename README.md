@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **SİYAH ARABA** by *ALIZADE* 🎶
+🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
 
 ---
 
-_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
