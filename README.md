@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
+_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
 
 ---
