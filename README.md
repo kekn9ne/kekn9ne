@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
+_"The smallest act of kindness is worth more than the greatest intention.   — *Kahlil Gibran*"_
 
 ---
