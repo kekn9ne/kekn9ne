@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **ZIGANA** by *Batuflex* 🎶
+🎧 Currently Listening: **TEMPO** by *Lvbel C5* 🎶
 
 ---
 
-_"Becoming a great leader doesn't mean being perfect. it means living with your imperfections. — *Lolly Daskal*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
