@@ -7,6 +7,6 @@
 
 ---
 
-_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
