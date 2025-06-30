@@ -7,6 +7,6 @@
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"Meditate. It won't be fun but it will surface what you need to deal with. — *Naval Ravikant*"_
 
 ---
