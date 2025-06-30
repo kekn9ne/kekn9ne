@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
+_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
 
 ---
