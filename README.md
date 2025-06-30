@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is the greatest friend. — *Lao Tzu*"_
+_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
 
 ---
