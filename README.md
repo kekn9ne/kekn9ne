@@ -7,6 +7,6 @@
 
 ---
 
-_"Create with the heart; build with the mind. — *Criss Jami*"_
+_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
 
 ---
