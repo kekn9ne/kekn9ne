@@ -7,6 +7,6 @@
 
 ---
 
-_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
+_"I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams. — *D. H. Lawrence*"_
 
 ---
