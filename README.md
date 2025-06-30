@@ -7,6 +7,6 @@
 
 ---
 
-_"If you look for perfection, you'll never be content. — *Leo Tolstoy*"_
+_"Quiet people have the loudest minds. — *Stephen Hawking*"_
 
 ---
