@@ -7,6 +7,6 @@
 
 ---
 
-_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
+_"The key to success is failure. — *Michael Jordan*"_
 
 ---
