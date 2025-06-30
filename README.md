@@ -7,6 +7,6 @@
 
 ---
 
-_"The only difference between success and failure is the ability to take action. — *Alexander Graham Bell*"_
+_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
 
 ---
