@@ -7,6 +7,6 @@
 
 ---
 
-_"I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams. — *D. H. Lawrence*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
