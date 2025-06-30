@@ -7,6 +7,6 @@
 
 ---
 
-_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
+_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
 
 ---
