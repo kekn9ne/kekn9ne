@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
 
 ---
