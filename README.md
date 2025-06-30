@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Bigman** by *Heijan* 🎶
+🎧 Currently Listening: **SİYAH ARABA** by *ALIZADE* 🎶
 
 ---
 
-_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
+_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
 
 ---
