@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **TEMPO** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Bas Gaza** by *Mert* 🎶
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
 
 ---
