@@ -7,6 +7,6 @@
 
 ---
 
-_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
+_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
 
 ---
