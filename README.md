@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't like something change it. If you can't change it, change your attitude about it. Don't complain. — *Maya Angelou*"_
+_"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies. — *Emily Dickinson*"_
 
 ---
