@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
 
 ---
 
-_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
