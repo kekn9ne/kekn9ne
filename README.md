@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Çözemezler 2.0** by *Dethron* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control. — *Epictetus*"_
+_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
 
 ---
