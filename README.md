@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
 
 ---
