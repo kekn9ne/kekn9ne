@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to control your thoughts; you just have to stop letting them control you. — *Dan Millman*"_
+_"Confidence is like a dragon where, for every head cut off, two more heads grow back. — *Criss Jami*"_
 
 ---
