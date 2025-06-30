@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Paradoks** by *Borqy* 🎶
+🎧 Currently Listening: **Agalar** by *ElMusto* 🎶
 
 ---
 
-_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
+_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
 
 ---
