@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
+_"We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world. — *Gabor Mate*"_
 
 ---
