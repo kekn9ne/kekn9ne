@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **gamechanger** by *No.1* 🎶
+🎧 Currently Listening: **Paradoks** by *Borqy* 🎶
 
 ---
 
-_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
+_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
 
 ---
