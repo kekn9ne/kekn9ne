@@ -7,6 +7,6 @@
 
 ---
 
-_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
+_"The shoe that fits one person pinches another; there is no recipe for living that suits all cases. — *Carl Jung*"_
 
 ---
