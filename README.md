@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
+🎧 Currently Listening: **gamechanger** by *No.1* 🎶
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
