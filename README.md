@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 June 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Kafa Roket** by *Batuflex* 🎶
+🎧 Currently Listening: **Esenyurt Trap Merso** by *Tuhan* 🎶
 
 ---
 
-_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
+_"The less you open your heart to others, the more your heart suffers. — *Deepak Chopra*"_
 
 ---
