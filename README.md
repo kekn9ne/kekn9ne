@@ -7,6 +7,6 @@
 
 ---
 
-_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
+_"Everything is possible. The impossible just takes longer. — *Dan Brown*"_
 
 ---
