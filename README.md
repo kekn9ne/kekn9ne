@@ -7,6 +7,6 @@
 
 ---
 
-_"The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — *Robert Kiyosaki*"_
+_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
 
 ---
