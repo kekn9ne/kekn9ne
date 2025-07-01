@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 01 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Motivasyon** by *Ben Fero* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
+_"Genius is patience. — *Isaac Newton*"_
 
 ---
