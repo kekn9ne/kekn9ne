@@ -7,6 +7,6 @@
 
 ---
 
-_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
+_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
 
 ---
