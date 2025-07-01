@@ -7,6 +7,6 @@
 
 ---
 
-_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
+_"There is no greater agony than bearing an untold story inside you. — *Maya Angelou*"_
 
 ---
