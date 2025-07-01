@@ -7,6 +7,6 @@
 
 ---
 
-_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
