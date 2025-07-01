@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
+_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
 
 ---
