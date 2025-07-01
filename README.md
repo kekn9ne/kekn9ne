@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 02 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Tatlı Tecrübe** by *Narkoz Ex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
+_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
 
 ---
