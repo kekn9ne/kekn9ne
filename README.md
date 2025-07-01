@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is possible. The impossible just takes longer. — *Dan Brown*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
