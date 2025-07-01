@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
+_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
 
 ---
