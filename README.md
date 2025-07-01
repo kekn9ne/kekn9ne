@@ -7,6 +7,6 @@
 
 ---
 
-_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
+_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
 
 ---
