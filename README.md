@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one thing in the world worse than being talked about, and that is not being talked about.  — *Oscar Wilde*"_
+_"An ounce of performance is worth pounds of promises. — *Mae West*"_
 
 ---
