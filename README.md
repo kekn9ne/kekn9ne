@@ -7,6 +7,6 @@
 
 ---
 
-_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
+_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
 
 ---
