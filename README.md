@@ -7,6 +7,6 @@
 
 ---
 
-_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
