@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way. — *Alan Watts*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
