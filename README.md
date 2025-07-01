@@ -7,6 +7,6 @@
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
 
 ---
