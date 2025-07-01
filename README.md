@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"He is richest who is content with the least, for content is the wealth of nature. — *Socrates*"_
 
 ---
