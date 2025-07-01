@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
 
 ---
