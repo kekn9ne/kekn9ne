@@ -7,6 +7,6 @@
 
 ---
 
-_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
