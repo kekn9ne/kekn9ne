@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not what one is born with but what use one makes of that equipment. — *Alfred Adler*"_
+_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
 
 ---
