@@ -7,6 +7,6 @@
 
 ---
 
-_"The way of success is the way of continuous pursuit of knowledge. — *Napoleon Hill*"_
+_"All problems are interpersonal relationship problems. — *Alfred Adler*"_
 
 ---
