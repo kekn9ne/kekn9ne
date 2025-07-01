@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 02 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tatlı Tecrübe** by *Narkoz Ex* 🎶
 
 ---
 
-_"Life is one long process of getting tired. — *Samuel Butler*"_
+_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
 
 ---
