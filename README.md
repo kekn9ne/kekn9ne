@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
+_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
 
 ---
