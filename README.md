@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"People who say it cannot be done should not interrupt those who are doing it. — *George Bernard Shaw*"_
 
 ---
