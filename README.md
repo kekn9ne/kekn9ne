@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 01 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Tımarhane** by *Ceg* 🎶
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you. — *Paramahansa Yogananda*"_
+_"In a world of change, the learners shall inherit the earth, while the learned shall find themselves perfectly suited for a world that no longer exists. — *Eric Hoffer*"_
 
 ---
