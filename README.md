@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what you can, with what you have, where you are. — *Theodore Roosevelt*"_
+_"What loneliness is more lonely than distrust? — *George Eliot*"_
 
 ---
