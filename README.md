@@ -7,6 +7,6 @@
 
 ---
 
-_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
+_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
 
 ---
