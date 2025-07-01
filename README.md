@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
+_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
 
 ---
