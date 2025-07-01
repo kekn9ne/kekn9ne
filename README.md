@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 02 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **777** by *Güneş* 🎶
+🎧 Currently Listening: **Katil Gramofon** by *Kayra* 🎶
 
 ---
 
-_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
+_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
 
 ---
