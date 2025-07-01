@@ -7,6 +7,6 @@
 
 ---
 
-_"People who say it cannot be done should not interrupt those who are doing it. — *George Bernard Shaw*"_
+_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
 
 ---
