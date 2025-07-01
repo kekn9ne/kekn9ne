@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
 
 ---
