@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Love. Love is the path. — *Dan Millman*"_
+_"When the fish is caught we pay no more attention to the trap. — *Huang Po*"_
 
 ---
