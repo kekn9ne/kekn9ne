@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 01 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Omnivert (Interlude)** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
+_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
 
 ---
