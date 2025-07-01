@@ -7,6 +7,6 @@
 
 ---
 
-_"An ounce of performance is worth pounds of promises. — *Mae West*"_
+_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
 
 ---
