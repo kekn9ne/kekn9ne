@@ -7,6 +7,6 @@
 
 ---
 
-_"He is richest who is content with the least, for content is the wealth of nature. — *Socrates*"_
+_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
 
 ---
