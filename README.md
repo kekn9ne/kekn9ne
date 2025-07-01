@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
+_"The way of success is the way of continuous pursuit of knowledge. — *Napoleon Hill*"_
 
 ---
