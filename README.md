@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
 
 ---
