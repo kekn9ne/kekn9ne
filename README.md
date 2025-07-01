@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
