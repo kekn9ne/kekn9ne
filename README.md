@@ -7,6 +7,6 @@
 
 ---
 
-_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
+_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
 
 ---
