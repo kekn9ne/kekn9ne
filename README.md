@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 01 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Pirus Zaferi** by *Ceg* 🎶
 
 ---
 
-_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
+_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
 
 ---
