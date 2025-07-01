@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no greater agony than bearing an untold story inside you. — *Maya Angelou*"_
+_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
 
 ---
