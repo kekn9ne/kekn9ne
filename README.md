@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
+_"There is no path to Love. Love is the path. — *Dan Millman*"_
 
 ---
