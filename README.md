@@ -7,6 +7,6 @@
 
 ---
 
-_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
+_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
 
 ---
