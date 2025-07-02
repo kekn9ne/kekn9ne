@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't listen to the person who has the answers; listen to the person who has the questions. — *Albert Einstein*"_
+_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
 
 ---
