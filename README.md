@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
+_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
 
 ---
