@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
+_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
 
 ---
