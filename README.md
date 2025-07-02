@@ -7,6 +7,6 @@
 
 ---
 
-_"Make yourself so useful to other people, that they think you are irreplaceable. — *Og Mandino*"_
+_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
 
 ---
