@@ -7,6 +7,6 @@
 
 ---
 
-_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
+_"Live the moment for the moment. — *Michael Jordan*"_
 
 ---
