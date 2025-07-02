@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
