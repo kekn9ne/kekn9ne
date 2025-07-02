@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
+_"Good things aren't supposed to just fall into your lap. — *Audrey Hepburn*"_
 
 ---
