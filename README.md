@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline yourself, and others won't need to. — *John Wooden*"_
+_"The future will be shaped by those willing to commit their minds and their bodies to the task. — *Robert F. Kennedy*"_
 
 ---
