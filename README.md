@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
