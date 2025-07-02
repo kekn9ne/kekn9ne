@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
 
 ---
