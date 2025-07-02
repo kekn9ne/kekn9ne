@@ -7,6 +7,6 @@
 
 ---
 
-_"Action may not always bring happiness, but there is no happiness without action. — *William James*"_
+_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
 
 ---
