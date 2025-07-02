@@ -7,6 +7,6 @@
 
 ---
 
-_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
+_"I wasn't brave, I just didn't have time to be scared. — *Amelia Earhart*"_
 
 ---
