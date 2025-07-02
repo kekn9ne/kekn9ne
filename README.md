@@ -7,6 +7,6 @@
 
 ---
 
-_"You know the more one does the more one can do. — *Amelia Earhart*"_
+_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
 
 ---
