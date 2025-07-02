@@ -7,6 +7,6 @@
 
 ---
 
-_"At the center of your being you have the answer; you know who you are and you know what you want. — *Lao Tzu*"_
+_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
 
 ---
