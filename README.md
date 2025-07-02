@@ -7,6 +7,6 @@
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
