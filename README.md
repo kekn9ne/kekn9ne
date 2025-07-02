@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
+_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
 
 ---
