@@ -7,6 +7,6 @@
 
 ---
 
-_"None are more hopelessly enslaved than those who falsely believe they are free. — *Johann Wolfgang von Goethe*"_
+_"Don't listen to the person who has the answers; listen to the person who has the questions. — *Albert Einstein*"_
 
 ---
