@@ -7,6 +7,6 @@
 
 ---
 
-_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
+_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
 
 ---
