@@ -7,6 +7,6 @@
 
 ---
 
-_"Circumstances do not make the man, they reveal him. — *James Allen*"_
+_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
 
 ---
