@@ -7,6 +7,6 @@
 
 ---
 
-_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
+_"Remember that the best relationship is one in which your love for each other exceeds your need for each other. — *Dalai Lama*"_
 
 ---
