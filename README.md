@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools read fast. Geniuses reread. — *Maxime Lagace*"_
+_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
 
 ---
