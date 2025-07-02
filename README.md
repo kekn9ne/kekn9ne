@@ -7,6 +7,6 @@
 
 ---
 
-_"We win by helping each other win. — *Jack Butcher*"_
+_"Things do not have meaning. We assign meaning to everything. — *Tony Robbins*"_
 
 ---
