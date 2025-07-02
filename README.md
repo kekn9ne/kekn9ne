@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
+_"For things to change, you have to change. — *Jim Rohn*"_
 
 ---
