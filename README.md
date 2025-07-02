@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
+_"If light is in your heart, you will find your way home.   — *Rumi*"_
 
 ---
