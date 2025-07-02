@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 02 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +23°C**  
+🗓️ Today is: **Thursday, 03 July 2025**  
+🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **67**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Live the moment for the moment. — *Michael Jordan*"_
+_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
 
 ---
