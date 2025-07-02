@@ -7,6 +7,6 @@
 
 ---
 
-_"Good luck is opportunity meeting preparedness. — *Deepak Chopra*"_
+_"Action may not always bring happiness, but there is no happiness without action. — *William James*"_
 
 ---
