@@ -7,6 +7,6 @@
 
 ---
 
-_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
+_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
 
 ---
