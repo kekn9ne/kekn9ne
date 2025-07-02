@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
+_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
 
 ---
