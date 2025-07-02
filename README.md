@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 02 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **KASA ORIJINAL** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
