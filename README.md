@@ -7,6 +7,6 @@
 
 ---
 
-_"I wasn't brave, I just didn't have time to be scared. — *Amelia Earhart*"_
+_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
 
 ---
