@@ -7,6 +7,6 @@
 
 ---
 
-_"Fashion fades, only style remains the same. — *Coco Chanel*"_
+_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
 
 ---
