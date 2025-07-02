@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 02 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hırsız Var** by *ravenn* 🎶
 
 ---
 
-_"The future will be shaped by those willing to commit their minds and their bodies to the task. — *Robert F. Kennedy*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
