@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 02 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +21°C**  
+🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
+_"None are more hopelessly enslaved than those who falsely believe they are free. — *Johann Wolfgang von Goethe*"_
 
 ---
