@@ -7,6 +7,6 @@
 
 ---
 
-_"Things do not have meaning. We assign meaning to everything. — *Tony Robbins*"_
+_"Discipline yourself, and others won't need to. — *John Wooden*"_
 
 ---
