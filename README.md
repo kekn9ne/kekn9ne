@@ -7,6 +7,6 @@
 
 ---
 
-_"Awaken. Take heed, do not squander your life. — *Dogen*"_
+_"Fools read fast. Geniuses reread. — *Maxime Lagace*"_
 
 ---
