@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
 
 ---
