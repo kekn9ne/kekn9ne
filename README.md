@@ -7,6 +7,6 @@
 
 ---
 
-_"Zen insists that the whole trouble is just our failure to realize that there is no problem. — *Bruce Lee*"_
+_"The time is always right to do what is right. — *Martin Luther King, Jr.*"_
 
 ---
