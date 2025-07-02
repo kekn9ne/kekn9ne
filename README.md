@@ -7,6 +7,6 @@
 
 ---
 
-_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
+_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
 
 ---
