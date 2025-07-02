@@ -7,6 +7,6 @@
 
 ---
 
-_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
+_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
 
 ---
