@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are the touchstones of our characters. — *Henry David Thoreau*"_
+_"Good luck is opportunity meeting preparedness. — *Deepak Chopra*"_
 
 ---
