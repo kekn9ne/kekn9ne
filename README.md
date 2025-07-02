@@ -7,6 +7,6 @@
 
 ---
 
-_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
+_"Zen insists that the whole trouble is just our failure to realize that there is no problem. — *Bruce Lee*"_
 
 ---
