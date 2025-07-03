@@ -7,6 +7,6 @@
 
 ---
 
-_"Men go to far greater lengths to avoid what they fear than to obtain what they desire. — *Dan Brown*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
