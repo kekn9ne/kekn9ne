@@ -7,6 +7,6 @@
 
 ---
 
-_"To live is to be willing to die over and over again. — *Pema Chodron*"_
+_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
 
 ---
