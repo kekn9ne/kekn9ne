@@ -7,6 +7,6 @@
 
 ---
 
-_"He who laughs at himself never runs out of things to laugh at. — *Epictetus*"_
+_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
 
 ---
