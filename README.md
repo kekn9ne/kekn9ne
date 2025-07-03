@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 04 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **V.I.P.** by *Tuğrul Bektaş* 🎶
 
 ---
 
-_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
+_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
 
 ---
