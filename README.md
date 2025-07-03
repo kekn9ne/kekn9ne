@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Dalga** by *Batuflex* 🎶
 
 ---
 
-_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
+_"It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose. — *Ming-Dao Deng*"_
 
 ---
