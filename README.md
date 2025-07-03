@@ -7,6 +7,6 @@
 
 ---
 
-_"Whether you have a problem in your life or not depends upon your own attitude, your own understanding. — *Shunryu Suzuki*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
