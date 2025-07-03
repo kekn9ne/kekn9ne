@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: **Ich Liebe Dich** by *DJEZJA* 🎶
 
 ---
 
-_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
+_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
 
 ---
