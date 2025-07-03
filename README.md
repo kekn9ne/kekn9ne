@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
+_"If you want others to be happy, practice compassion. If you want to be happy, practice compassion. — *Dalai Lama*"_
 
 ---
