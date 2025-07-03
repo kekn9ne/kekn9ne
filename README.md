@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
+_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
 
 ---
