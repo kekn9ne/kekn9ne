@@ -7,6 +7,6 @@
 
 ---
 
-_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
+_"Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window. — *Peter Drucker*"_
 
 ---
