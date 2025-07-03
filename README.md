@@ -7,6 +7,6 @@
 
 ---
 
-_"There's more to life than being a passenger. — *Amelia Earhart*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
