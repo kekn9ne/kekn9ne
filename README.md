@@ -7,6 +7,6 @@
 
 ---
 
-_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
+_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
 
 ---
