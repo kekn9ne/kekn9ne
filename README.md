@@ -7,6 +7,6 @@
 
 ---
 
-_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
+_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
 
 ---
