@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
+_"He who laughs at himself never runs out of things to laugh at. — *Epictetus*"_
 
 ---
