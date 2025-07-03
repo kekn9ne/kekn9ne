@@ -7,6 +7,6 @@
 
 ---
 
-_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
+_"When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy. — *Norman Vincent Peale*"_
 
 ---
