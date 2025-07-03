@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 03 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +23°C**  
+🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **67**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you want others to be happy, practice compassion. If you want to be happy, practice compassion. — *Dalai Lama*"_
+_"Misfortune shows those who are not really friends. — *Aristotle*"_
 
 ---
