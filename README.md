@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
+_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
 
 ---
