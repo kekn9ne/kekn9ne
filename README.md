@@ -7,6 +7,6 @@
 
 ---
 
-_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
+_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
 
 ---
