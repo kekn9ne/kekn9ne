@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is never easy, but always possible. — *Barack Obama*"_
+_"Every traveler has a home of his own, and he learns to appreciate it the more from his wandering. — *Charles Dickens*"_
 
 ---
