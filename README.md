@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
+_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
 
 ---
