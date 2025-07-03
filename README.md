@@ -7,6 +7,6 @@
 
 ---
 
-_"When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy. — *Norman Vincent Peale*"_
+_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
 
 ---
