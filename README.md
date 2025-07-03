@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
+_"There's more to life than being a passenger. — *Amelia Earhart*"_
 
 ---
