@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Dalga** by *Batuflex* 🎶
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose. — *Ming-Dao Deng*"_
+_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
 
 ---
