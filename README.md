@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a question and how we live it is our answer. — *Gary Keller*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
