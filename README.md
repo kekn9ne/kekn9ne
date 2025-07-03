@@ -7,6 +7,6 @@
 
 ---
 
-_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
+_"Men go to far greater lengths to avoid what they fear than to obtain what they desire. — *Dan Brown*"_
 
 ---
