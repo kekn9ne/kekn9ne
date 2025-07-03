@@ -7,6 +7,6 @@
 
 ---
 
-_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
