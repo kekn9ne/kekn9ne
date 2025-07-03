@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Benle misin?** by *Lvbel C5* 🎶
+🎧 Currently Listening: **KASA ORIJINAL** by *Lvbel C5* 🎶
 
 ---
 
-_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
+_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
 
 ---
