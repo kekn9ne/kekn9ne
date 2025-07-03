@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Ich Liebe Dich** by *DJEZJA* 🎶
+🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"Nature loves to hide. — *Heraclitus*"_
 
 ---
