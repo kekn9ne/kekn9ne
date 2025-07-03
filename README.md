@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
+_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
 
 ---
