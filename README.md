@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **KASA ORIJINAL** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
+_"Whether you have a problem in your life or not depends upon your own attitude, your own understanding. — *Shunryu Suzuki*"_
 
 ---
