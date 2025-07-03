@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
+🎧 Currently Listening: **SAFI / TMM** by *DJEZJA* 🎶
 
 ---
 
-_"Nature loves to hide. — *Heraclitus*"_
+_"For things to change, you have to change. — *Jim Rohn*"_
 
 ---
