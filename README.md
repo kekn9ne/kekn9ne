@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you stop to think about whether you love someone, you've already stopped loving that person forever. — *Carlos Ruiz Zafon*"_
+_"What is planted in each person's soul will sprout.   — *Rumi*"_
 
 ---
