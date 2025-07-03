@@ -7,6 +7,6 @@
 
 ---
 
-_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
+_"Most of us will do anything to avoid facing ourselves. — *Lolly Daskal*"_
 
 ---
