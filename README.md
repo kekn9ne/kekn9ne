@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
