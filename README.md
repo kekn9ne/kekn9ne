@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Gelemem** by *Grogi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams. — *Robert Greene*"_
+_"We should not look back unless it is to derive useful lessons from past errors. — *George Washington*"_
 
 ---
