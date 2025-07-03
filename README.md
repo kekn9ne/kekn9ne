@@ -7,6 +7,6 @@
 
 ---
 
-_"What is planted in each person's soul will sprout.   — *Rumi*"_
+_"You're never given a dream without also being given the power to make it true. — *Richard Bach*"_
 
 ---
