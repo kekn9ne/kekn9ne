@@ -7,6 +7,6 @@
 
 ---
 
-_"Your problem isn't the problem. Your reaction is the problem. — *Unknown*"_
+_"The sun is new each day. — *Heraclitus*"_
 
 ---
