@@ -7,6 +7,6 @@
 
 ---
 
-_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
+_"Question everything. Learn something. Answer nothing. — *Euripides*"_
 
 ---
