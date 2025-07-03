@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 03 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **SAFI / TMM** by *DJEZJA* 🎶
+🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
 
 ---
 
-_"For things to change, you have to change. — *Jim Rohn*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
