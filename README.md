@@ -7,6 +7,6 @@
 
 ---
 
-_"We should not look back unless it is to derive useful lessons from past errors. — *George Washington*"_
+_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
 
 ---
