@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
+_"It doesn't matter how slow you go, as long as you don't stop. — *Confucius*"_
 
 ---
