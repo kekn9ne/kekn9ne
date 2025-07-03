@@ -7,6 +7,6 @@
 
 ---
 
-_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
+_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
 
 ---
