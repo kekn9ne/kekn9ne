@@ -7,6 +7,6 @@
 
 ---
 
-_"Misfortune shows those who are not really friends. — *Aristotle*"_
+_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
 
 ---
