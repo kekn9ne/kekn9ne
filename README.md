@@ -7,6 +7,6 @@
 
 ---
 
-_"Every traveler has a home of his own, and he learns to appreciate it the more from his wandering. — *Charles Dickens*"_
+_"To live is to be willing to die over and over again. — *Pema Chodron*"_
 
 ---
