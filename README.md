@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Yaş Günü** by *Rota* 🎶
+🎧 Currently Listening: **Al Sevgilim Kanser Ol Bununla** by *Saian* 🎶
 
 ---
 
-_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
+_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
 
 ---
