@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
