@@ -7,6 +7,6 @@
 
 ---
 
-_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
+_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
 
 ---
