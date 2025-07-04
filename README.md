@@ -7,6 +7,6 @@
 
 ---
 
-_"Great deeds are usually wrought at great risks. — *Herodotus*"_
+_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
 
 ---
