@@ -7,6 +7,6 @@
 
 ---
 
-_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
+_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
 
 ---
