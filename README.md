@@ -7,6 +7,6 @@
 
 ---
 
-_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
+_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
