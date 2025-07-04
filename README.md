@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 04 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tımarhane** by *Ceg* 🎶
 
 ---
 
-_"When you stop questioning, you stop learning. — *Lolly Daskal*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
