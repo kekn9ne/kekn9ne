@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
+_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
 
 ---
