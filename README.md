@@ -7,6 +7,6 @@
 
 ---
 
-_"At first dreams seem impossible, then improbable, then inevitable. — *Christopher Reeve*"_
+_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
 
 ---
