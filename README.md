@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear, uncertainty, and discomfort are your compasses toward growth. — *Celestine Chua*"_
+_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
 
 ---
