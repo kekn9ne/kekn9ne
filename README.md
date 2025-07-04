@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
+_"Fear, uncertainty, and discomfort are your compasses toward growth. — *Celestine Chua*"_
 
 ---
