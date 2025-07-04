@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot teach a crab to walk straight. — *Aristophanes*"_
+_"We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves. — *Kamal Ravikant*"_
 
 ---
