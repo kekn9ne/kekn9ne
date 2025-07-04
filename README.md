@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyday is a second chance. — *Unknown*"_
+_"When you stop questioning, you stop learning. — *Lolly Daskal*"_
 
 ---
