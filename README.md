@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of difficulty lies opportunity. — *Albert Einstein*"_
+_"You cannot teach a crab to walk straight. — *Aristophanes*"_
 
 ---
