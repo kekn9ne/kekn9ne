@@ -7,6 +7,6 @@
 
 ---
 
-_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
+_"Prefer to be defeated in the presence of the wise than to excel among fools. — *Dogen*"_
 
 ---
