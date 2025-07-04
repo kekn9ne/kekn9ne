@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Al Sevgilim Kanser Ol Bununla** by *Saian* 🎶
+🎧 Currently Listening: **Duman Oldum** by *Maestro* 🎶
 
 ---
 
-_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
+_"No man will make a great leader who wants to do it all himself or to get all the credit for doing it. — *Andrew Carnegie*"_
 
 ---
