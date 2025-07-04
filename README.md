@@ -7,6 +7,6 @@
 
 ---
 
-_"A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. — *Amelia Earhart*"_
+_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
 
 ---
