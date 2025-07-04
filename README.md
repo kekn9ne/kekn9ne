@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"A Penny Saved is a Penny Earned — *Benjamin Franklin*"_
 
 ---
