@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
+_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
 
 ---
