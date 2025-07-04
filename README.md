@@ -7,6 +7,6 @@
 
 ---
 
-_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"We build too many walls and not enough bridges. — *Isaac Newton*"_
 
 ---
