@@ -7,6 +7,6 @@
 
 ---
 
-_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
+_"I am thankful to all those who said no. It's because of them, I did it myself.   — *Wayne Dyer*"_
 
 ---
