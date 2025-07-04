@@ -7,6 +7,6 @@
 
 ---
 
-_"A Penny Saved is a Penny Earned — *Benjamin Franklin*"_
+_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
 
 ---
