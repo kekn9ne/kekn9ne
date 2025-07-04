@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Aslında** by *Resit Kemal* 🎶
+🎧 Currently Listening: **Mayıs 6** by *Rope* 🎶
 
 ---
 
-_"Always try to be a little kinder than necessary. — *James Matthew Barrie*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
