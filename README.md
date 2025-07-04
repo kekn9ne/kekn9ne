@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
+_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
 
 ---
