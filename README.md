@@ -7,6 +7,6 @@
 
 ---
 
-_"An ounce of performance is worth pounds of promises. — *Mae West*"_
+_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
 
 ---
