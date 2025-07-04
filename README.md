@@ -7,6 +7,6 @@
 
 ---
 
-_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
+_"In the middle of difficulty lies opportunity. — *Albert Einstein*"_
 
 ---
