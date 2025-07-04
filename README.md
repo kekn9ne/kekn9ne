@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
