@@ -7,6 +7,6 @@
 
 ---
 
-_"Only the educated are free. — *Epictetus*"_
+_"Everyday is a second chance. — *Unknown*"_
 
 ---
