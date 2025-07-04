@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
+_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
 
 ---
