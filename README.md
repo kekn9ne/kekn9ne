@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"We may not be able to stop evil in the world, but how we treat one another is entirely up to us. — *Barack Obama*"_
 
 ---
