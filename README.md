@@ -7,6 +7,6 @@
 
 ---
 
-_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
+_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
 
 ---
