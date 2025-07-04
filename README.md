@@ -7,6 +7,6 @@
 
 ---
 
-_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
+_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
 
 ---
