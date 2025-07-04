@@ -7,6 +7,6 @@
 
 ---
 
-_"If you put water into a cup, it becomes the cup. — *Bruce Lee*"_
+_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
 
 ---
