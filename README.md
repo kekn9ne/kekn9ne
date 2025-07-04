@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
+_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
 
 ---
