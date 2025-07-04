@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of us will do anything to avoid facing ourselves. — *Lolly Daskal*"_
+_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
 
 ---
