@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
+_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
 
 ---
