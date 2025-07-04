@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 04 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ANORMAL** by *ALIZADE* 🎶
 
 ---
 
-_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
+_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
 
 ---
