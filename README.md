@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 04 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you don't like something change it. If you can't change it, change your attitude about it. Don't complain. — *Maya Angelou*"_
+_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
 
 ---
