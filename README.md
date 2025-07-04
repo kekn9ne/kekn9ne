@@ -7,6 +7,6 @@
 
 ---
 
-_"A needle is not sharp at both ends.  — *Chinese Proverb*"_
+_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
 
 ---
