@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"At first dreams seem impossible, then improbable, then inevitable. — *Christopher Reeve*"_
 
 ---
