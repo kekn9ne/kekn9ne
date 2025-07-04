@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 04 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
 
 ---
 
-_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
+_"Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service. — *Earl Nightingale*"_
 
 ---
