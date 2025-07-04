@@ -7,6 +7,6 @@
 
 ---
 
-_"Simplicity is the glory of expression. — *Walt Whitman*"_
+_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
 
 ---
