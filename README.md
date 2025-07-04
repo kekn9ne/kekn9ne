@@ -7,6 +7,6 @@
 
 ---
 
-_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
+_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
 
 ---
