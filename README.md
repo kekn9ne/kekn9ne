@@ -7,6 +7,6 @@
 
 ---
 
-_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
+_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
 
 ---
