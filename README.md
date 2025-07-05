@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
+_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
 
 ---
