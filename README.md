@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 05 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +21°C**  
+🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **KILLA INTRO** by *AKDO* 🎶
+🎧 Currently Listening: **Alo Baby - Torba Bomba - Remix** by *RECO* 🎶
 
 ---
 
-_"The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience. — *Eleanor Roosevelt*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
