@@ -7,6 +7,6 @@
 
 ---
 
-_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
+_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
 
 ---
