@@ -7,6 +7,6 @@
 
 ---
 
-_"A strong man overcomes an obstacle, a wise man goes the whole way. — *Zen Proverb*"_
+_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
 
 ---
