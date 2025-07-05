@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Gerçekleşebilir** by *Ceg* 🎶
+🎧 Currently Listening: **Gün Ağarmadan - Akustik** by *Ahmet Zahit* 🎶
 
 ---
 
-_"Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for. — *Gurbaksh Chahal*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
 
 ---
