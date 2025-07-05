@@ -7,6 +7,6 @@
 
 ---
 
-_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
+_"Curiosity is the most powerful thing you own. — *James Cameron*"_
 
 ---
