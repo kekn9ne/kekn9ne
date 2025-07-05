@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
 
 ---
