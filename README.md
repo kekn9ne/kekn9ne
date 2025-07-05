@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hayat Gibi** by *Toygar Işıklı* 🎶
 
 ---
 
-_"Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge. — *Robert Greene*"_
+_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
 
 ---
