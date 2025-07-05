@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
