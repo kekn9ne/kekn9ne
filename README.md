@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire is suffering. — *Naval Ravikant*"_
+_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
 
 ---
