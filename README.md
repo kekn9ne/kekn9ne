@@ -7,6 +7,6 @@
 
 ---
 
-_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
+_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
 
 ---
