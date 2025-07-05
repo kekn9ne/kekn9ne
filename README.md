@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Hayat Gibi** by *Toygar Işıklı* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The smallest of actions is always better than the noblest of intentions. — *Robin Sharma*"_
+_"Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge. — *Robert Greene*"_
 
 ---
