@@ -7,6 +7,6 @@
 
 ---
 
-_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
+_"Behind every beautiful thing, there's some kind of pain. — *Bob Dylan*"_
 
 ---
