@@ -7,6 +7,6 @@
 
 ---
 
-_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
