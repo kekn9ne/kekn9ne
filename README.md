@@ -7,6 +7,6 @@
 
 ---
 
-_"Create each day anew. — *Morihei Ueshiba*"_
+_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
 
 ---
