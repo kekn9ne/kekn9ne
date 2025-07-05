@@ -7,6 +7,6 @@
 
 ---
 
-_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
