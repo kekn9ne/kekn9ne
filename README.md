@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
+_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
 
 ---
