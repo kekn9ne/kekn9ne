@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
+🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
 
 ---
 
-_"Everything you can imagine is real. — *Pablo Picasso*"_
+_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
 
 ---
