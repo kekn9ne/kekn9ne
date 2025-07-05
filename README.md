@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
 
 ---
