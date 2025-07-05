@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Kacarsa Vur** by *2vlnys* 🎶
+🎧 Currently Listening: **Pışşt Baksana** by *Tefo* 🎶
 
 ---
 
-_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
+_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
 
 ---
