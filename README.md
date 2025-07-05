@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
 
 ---
