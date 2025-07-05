@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot change anything unless we accept it. — *Carl Jung*"_
+_"Desire is suffering. — *Naval Ravikant*"_
 
 ---
