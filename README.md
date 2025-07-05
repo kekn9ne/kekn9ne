@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
+_"Perpetual optimism is a force multiplier. — *Colin Powell*"_
 
 ---
