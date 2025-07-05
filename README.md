@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline is the mark of intelligent living. — *Sathya Sai Baba*"_
+_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
 
 ---
