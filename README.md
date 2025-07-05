@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Pışşt Baksana** by *Tefo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
+_"Be grateful for what you have now, and nothing should be taken for granted. — *Roy T. Bennett*"_
 
 ---
