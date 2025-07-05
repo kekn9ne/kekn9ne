@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 06 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
 
 ---
 
-_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
+_"Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present. — *George Bernard Shaw*"_
 
 ---
