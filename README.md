@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easier to fight for one's principles than to live up to them.  — *Alfred Adler*"_
+_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
 
 ---
