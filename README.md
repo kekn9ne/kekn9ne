@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 06 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Ya Patience (Demo)** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
+_"The happiest people in the world are those who feel absolutely terrific about themselves. — *Brian Tracy*"_
 
 ---
