@@ -7,6 +7,6 @@
 
 ---
 
-_"Heal the past, live the present, dream the future. — *Mary Engelbreit*"_
+_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
 
 ---
