@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience. — *Eleanor Roosevelt*"_
+_"It is easier to fight for one's principles than to live up to them.  — *Alfred Adler*"_
 
 ---
