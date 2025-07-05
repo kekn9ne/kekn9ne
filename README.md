@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
+_"Never let the things you can't do stop you from doing what you can. — *Ronald Reagan*"_
 
 ---
