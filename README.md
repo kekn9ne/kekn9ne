@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 06 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
+🎧 Currently Listening: **Ya Patience (Demo)** by *No.1* 🎶
 
 ---
 
-_"Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present. — *George Bernard Shaw*"_
+_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
 
 ---
