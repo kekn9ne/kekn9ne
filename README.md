@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you admire was once a beginner. — *Jack Butcher*"_
+_"We win by helping each other win. — *Jack Butcher*"_
 
 ---
