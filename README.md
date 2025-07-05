@@ -7,6 +7,6 @@
 
 ---
 
-_"Be grateful for what you have now, and nothing should be taken for granted. — *Roy T. Bennett*"_
+_"None but ourselves can free our minds. — *Bob Marley*"_
 
 ---
