@@ -7,6 +7,6 @@
 
 ---
 
-_"Perpetual optimism is a force multiplier. — *Colin Powell*"_
+_"Every drop in the ocean counts.  — *Yoko Ono*"_
 
 ---
