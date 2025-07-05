@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
+_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
 
 ---
