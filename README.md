@@ -7,6 +7,6 @@
 
 ---
 
-_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
+_"Keep your face always toward the sunshine -  shadows will fall behind you. — *Walt Whitman*"_
 
 ---
