@@ -7,6 +7,6 @@
 
 ---
 
-_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
+_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
 
 ---
