@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Gün Ağarmadan - Akustik** by *Ahmet Zahit* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
+_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
 
 ---
