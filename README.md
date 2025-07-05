@@ -7,6 +7,6 @@
 
 ---
 
-_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
+_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
 
 ---
