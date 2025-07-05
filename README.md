@@ -7,6 +7,6 @@
 
 ---
 
-_"We can have more than we've got because we can become more than we are. — *Jim Rohn*"_
+_"A strong man overcomes an obstacle, a wise man goes the whole way. — *Zen Proverb*"_
 
 ---
