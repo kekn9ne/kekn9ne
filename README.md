@@ -7,6 +7,6 @@
 
 ---
 
-_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
+_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
 
 ---
