@@ -7,6 +7,6 @@
 
 ---
 
-_"Behind every beautiful thing, there's some kind of pain. — *Bob Dylan*"_
+_"Create each day anew. — *Morihei Ueshiba*"_
 
 ---
