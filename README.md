@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **İşgal** by *Kaldık Böyle* 🎶
+🎧 Currently Listening: **Hayat Gibi** by *Toygar Işıklı* 🎶
 
 ---
 
-_"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories. — *Ray Bradbury*"_
+_"The smallest of actions is always better than the noblest of intentions. — *Robin Sharma*"_
 
 ---
