@@ -7,6 +7,6 @@
 
 ---
 
-_"The happiest people in the world are those who feel absolutely terrific about themselves. — *Brian Tracy*"_
+_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
 
 ---
