@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
+_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
 
 ---
