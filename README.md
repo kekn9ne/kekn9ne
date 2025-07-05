@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
+_"He is not a lover who does not love forever. — *Euripides*"_
 
 ---
