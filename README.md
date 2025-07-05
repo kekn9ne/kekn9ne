@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 05 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
+_"Everything you can imagine is real. — *Pablo Picasso*"_
 
 ---
