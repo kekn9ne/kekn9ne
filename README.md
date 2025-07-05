@@ -7,6 +7,6 @@
 
 ---
 
-_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
+_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
 
 ---
