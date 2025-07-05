@@ -7,6 +7,6 @@
 
 ---
 
-_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
+_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
 
 ---
