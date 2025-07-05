@@ -7,6 +7,6 @@
 
 ---
 
-_"He is not a lover who does not love forever. — *Euripides*"_
+_"We cannot change anything unless we accept it. — *Carl Jung*"_
 
 ---
