@@ -7,6 +7,6 @@
 
 ---
 
-_"One always begins to forgive a place as soon as it's left behind. — *Charles Dickens*"_
+_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
 
 ---
