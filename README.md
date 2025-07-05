@@ -7,6 +7,6 @@
 
 ---
 
-_"Every drop in the ocean counts.  — *Yoko Ono*"_
+_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
 
 ---
