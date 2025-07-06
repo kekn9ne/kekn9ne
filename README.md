@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 06 July 2025**  
-🌤️ Weather in Istanbul: **🌦   +21°C**  
+🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A comfort zone is a beautiful place, but nothing ever grows there. — *Unknown*"_
+_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
 
 ---
