@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kendine Dünya** by *Merve Özbey* 🎶
 
 ---
 
-_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
+_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
 
 ---
