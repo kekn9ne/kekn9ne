@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
