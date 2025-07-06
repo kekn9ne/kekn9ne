@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
+_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
 
 ---
