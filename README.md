@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 06 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +31°C**  
+🌤️ Weather in Istanbul: **🌦   +21°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
+🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
 
 ---
 
-_"Do all things with love. — *Og Mandino*"_
+_"A comfort zone is a beautiful place, but nothing ever grows there. — *Unknown*"_
 
 ---
