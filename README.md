@@ -7,6 +7,6 @@
 
 ---
 
-_"Stay away from people who makes you feel like you are wasting their time. — *Paulo Coelho*"_
+_"Forgive those who have hurt you. — *Les Brown*"_
 
 ---
