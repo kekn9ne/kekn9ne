@@ -7,6 +7,6 @@
 
 ---
 
-_"One small positive thought can change your whole day. — *Zig Ziglar*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
