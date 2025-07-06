@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tatlı Tecrübe** by *Narkoz Ex* 🎶
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
 
 ---
