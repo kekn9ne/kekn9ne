@@ -7,6 +7,6 @@
 
 ---
 
-_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
+_"Treat everyone with politeness and kindness, not because they are nice, but because you are. — *Roy T. Bennett*"_
 
 ---
