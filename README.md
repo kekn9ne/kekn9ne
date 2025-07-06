@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your face always toward the sunshine -  shadows will fall behind you. — *Walt Whitman*"_
+_"Time goes from present to past. — *Shunryu Suzuki*"_
 
 ---
