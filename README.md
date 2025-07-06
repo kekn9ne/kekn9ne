@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"What we dwell on is who we become. — *Oprah Winfrey*"_
 
 ---
