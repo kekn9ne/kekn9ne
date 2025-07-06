@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
+_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
 
 ---
