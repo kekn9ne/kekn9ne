@@ -7,6 +7,6 @@
 
 ---
 
-_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
+_"You know the more one does the more one can do. — *Amelia Earhart*"_
 
 ---
