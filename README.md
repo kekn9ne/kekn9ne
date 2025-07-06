@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"Be fascinated instead of frustrated. — *Jim Rohn*"_
 
 ---
