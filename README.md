@@ -7,6 +7,6 @@
 
 ---
 
-_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
+_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
 
 ---
