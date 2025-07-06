@@ -7,6 +7,6 @@
 
 ---
 
-_"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach. — *Benjamin Mays*"_
+_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
 
 ---
