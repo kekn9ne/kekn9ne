@@ -7,6 +7,6 @@
 
 ---
 
-_"A golden cage is still just a cage. — *Anita Krizzan*"_
+_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
 
 ---
