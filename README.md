@@ -7,6 +7,6 @@
 
 ---
 
-_"You know the more one does the more one can do. — *Amelia Earhart*"_
+_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
 
 ---
