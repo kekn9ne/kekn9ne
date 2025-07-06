@@ -7,6 +7,6 @@
 
 ---
 
-_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
+_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
 
 ---
