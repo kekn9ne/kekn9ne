@@ -7,6 +7,6 @@
 
 ---
 
-_"Fortunate are those who take the first steps. — *Paulo Coelho*"_
+_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
 
 ---
