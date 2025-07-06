@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Ödeştik** by *Ceren Sagu* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The eyes of others our prisons; their thoughts our cages. — *Virginia Woolf*"_
+_"Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with. — *Woody Allen*"_
 
 ---
