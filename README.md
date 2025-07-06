@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't settle, and don't struggle. — *Naval Ravikant*"_
+_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
 
 ---
