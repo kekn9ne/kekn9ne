@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 06 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SPECIAL** by *ALIZADE* 🎶
 
 ---
 
-_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
+_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
 
 ---
