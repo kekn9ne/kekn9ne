@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
+_"Big people don't make people feel small. — *Robin Sharma*"_
 
 ---
