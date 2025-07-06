@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"The impossible can always be broken down into possibilities. — *Unknown*"_
 
 ---
