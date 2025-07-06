@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 06 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +26°C**  
+🌤️ Weather in Istanbul: **🌦   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Çek Kamaracı** by *Şenol Evgi HD* 🎶
 
 ---
 
-_"Be fascinated instead of frustrated. — *Jim Rohn*"_
+_"Wit is educated insolence. — *Aristotle*"_
 
 ---
