@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing like a health problem to turn up the contrast dial for the rest of life. — *Naval Ravikant*"_
+_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
 
 ---
