@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 06 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Prensesin Uykusuyum** by *Redd* 🎶
 
 ---
 
-_"One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — *Tony Robbins*"_
+_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
 
 ---
