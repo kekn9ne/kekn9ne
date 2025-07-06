@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
+_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
 
 ---
