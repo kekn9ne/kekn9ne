@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't settle, and don't struggle. — *Naval Ravikant*"_
+_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
 
 ---
