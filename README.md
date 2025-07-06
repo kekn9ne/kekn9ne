@@ -7,6 +7,6 @@
 
 ---
 
-_"Only by acceptance of the past, can you alter it. — *T.S. Eliot*"_
+_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
 
 ---
