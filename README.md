@@ -7,6 +7,6 @@
 
 ---
 
-_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
+_"Nothing like a health problem to turn up the contrast dial for the rest of life. — *Naval Ravikant*"_
 
 ---
