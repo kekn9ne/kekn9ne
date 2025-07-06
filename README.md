@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Kendine Dünya** by *Merve Özbey* 🎶
+🎧 Currently Listening: **Ödeştik** by *Ceren Sagu* 🎶
 
 ---
 
-_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
+_"The eyes of others our prisons; their thoughts our cages. — *Virginia Woolf*"_
 
 ---
