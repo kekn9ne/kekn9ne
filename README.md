@@ -7,6 +7,6 @@
 
 ---
 
-_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
