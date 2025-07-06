@@ -7,6 +7,6 @@
 
 ---
 
-_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
+_"One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — *Tony Robbins*"_
 
 ---
