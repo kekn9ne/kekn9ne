@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that irritates us about others. — *Carl Jung*"_
+_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
 
 ---
