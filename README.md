@@ -7,6 +7,6 @@
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"Projecting your mind into a successful situation is the most powerful means to achieve goals.   — *Estee Lauder*"_
 
 ---
