@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 06 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Pışşt Baksana** by *Tefo* 🎶
 
 ---
 
-_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
+_"Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again. — *Og Mandino*"_
 
 ---
