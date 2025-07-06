@@ -7,6 +7,6 @@
 
 ---
 
-_"Success comes to those who become success conscious. — *Napoleon Hill*"_
+_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
 
 ---
