@@ -7,6 +7,6 @@
 
 ---
 
-_"Many a man has failed because he had his wishbone where his backbone should have been. — *Ronald Reagan*"_
+_"A golden cage is still just a cage. — *Anita Krizzan*"_
 
 ---
