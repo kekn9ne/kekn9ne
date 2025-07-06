@@ -7,6 +7,6 @@
 
 ---
 
-_"The impossible can always be broken down into possibilities. — *Unknown*"_
+_"Success comes to those who become success conscious. — *Napoleon Hill*"_
 
 ---
