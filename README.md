@@ -7,6 +7,6 @@
 
 ---
 
-_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
+_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
 
 ---
