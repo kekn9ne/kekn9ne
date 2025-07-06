@@ -7,6 +7,6 @@
 
 ---
 
-_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
+_"Don't settle, and don't struggle. — *Naval Ravikant*"_
 
 ---
