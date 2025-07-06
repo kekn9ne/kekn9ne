@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no uninteresting things, only uninterested people. — *Gilbert Chesterton*"_
+_"One small positive thought can change your whole day. — *Zig Ziglar*"_
 
 ---
