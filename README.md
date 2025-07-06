@@ -7,6 +7,6 @@
 
 ---
 
-_"Projecting your mind into a successful situation is the most powerful means to achieve goals.   — *Estee Lauder*"_
+_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
 
 ---
