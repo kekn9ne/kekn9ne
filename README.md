@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
 
 ---
