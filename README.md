@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
