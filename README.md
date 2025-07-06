@@ -7,6 +7,6 @@
 
 ---
 
-_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
+_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
 
 ---
