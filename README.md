@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
+_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
 
 ---
