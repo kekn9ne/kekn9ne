@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
+_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
 
 ---
