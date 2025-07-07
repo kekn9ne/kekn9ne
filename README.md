@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
 
 ---
