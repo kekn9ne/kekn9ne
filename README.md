@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"If you want to keep your memories, you first have to live them. — *Bob Dylan*"_
 
 ---
