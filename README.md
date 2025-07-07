@@ -7,6 +7,6 @@
 
 ---
 
-_"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — *William James*"_
+_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
 
 ---
