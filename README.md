@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sevmeden Geçer Zaman** by *Redd* 🎶
 
 ---
 
-_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
+_"Hold yourself responsible for a higher standard than anybody else expects of you. — *Henry Ward Beecher*"_
 
 ---
