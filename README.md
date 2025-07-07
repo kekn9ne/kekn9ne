@@ -7,6 +7,6 @@
 
 ---
 
-_"Where does a thought go when it's forgotten? — *Sigmund Freud*"_
+_"You have the potential for greatness. — *Steve Harvey*"_
 
 ---
