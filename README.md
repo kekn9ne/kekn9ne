@@ -7,6 +7,6 @@
 
 ---
 
-_"The fact of the matter is that there will be nothing learned from any challenge in which we don't try our hardest. — *Josh Waitzkin*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
