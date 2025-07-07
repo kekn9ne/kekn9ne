@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Yabancı** by *Sıla* 🎶
+🎧 Currently Listening: **Cevapsız Sorular** by *maNga* 🎶
 
 ---
 
-_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
+_"You don't need a weatherman to know which way the wind blows. — *Bob Dylan*"_
 
 ---
