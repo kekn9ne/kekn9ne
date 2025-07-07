@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **İntihaşk** by *Onur Can Özcan* 🎶
+🎧 Currently Listening: **Yabancı** by *Sıla* 🎶
 
 ---
 
-_"Note that this journey is uniquely yours, no one elses. So the path has to be your own. — *Jon Kabat-Zinn*"_
+_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
 
 ---
