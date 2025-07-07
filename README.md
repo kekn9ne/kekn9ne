@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
 
 ---
