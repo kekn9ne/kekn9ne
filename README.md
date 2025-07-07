@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
+_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
 
 ---
