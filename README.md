@@ -7,6 +7,6 @@
 
 ---
 
-_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
+_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
 
 ---
