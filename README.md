@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Sevmeden Geçer Zaman** by *Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — *Charles Dickens*"_
+_"The real measure of your wealth is how much you'd be worth if you lost all your money. — *Unknown*"_
 
 ---
