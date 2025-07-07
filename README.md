@@ -7,6 +7,6 @@
 
 ---
 
-_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
+_"What you seek is seeking you. — *Rumi*"_
 
 ---
