@@ -7,6 +7,6 @@
 
 ---
 
-_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
+_"We must create our own world or we will die from inaction. — *Robert Greene*"_
 
 ---
