@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
