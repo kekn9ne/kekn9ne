@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Dargın** by *Zeynep Bastık* 🎶
+🎧 Currently Listening: **AŞK** by *Dedublüman* 🎶
 
 ---
 
-_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
+_"Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution. — *Kahlil Gibran*"_
 
 ---
