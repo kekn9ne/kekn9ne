@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
+_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
 
 ---
