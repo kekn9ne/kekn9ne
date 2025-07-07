@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Gitme** by *Emre Nalbantoğlu* 🎶
 
 ---
 
-_"When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy. — *Norman Vincent Peale*"_
+_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
 
 ---
