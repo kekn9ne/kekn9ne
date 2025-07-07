@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something worth remembering. — *Elvis Presley*"_
+_"Your purpose will be clear only when you listen to your heart. — *Lolly Daskal*"_
 
 ---
