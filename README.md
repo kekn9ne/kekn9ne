@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sevmeden Geçer Zaman** by *Redd* 🎶
 
 ---
 
-_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
+_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
 
 ---
