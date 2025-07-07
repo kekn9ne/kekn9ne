@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Sevmeden Geçer Zaman** by *Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Hold yourself responsible for a higher standard than anybody else expects of you. — *Henry Ward Beecher*"_
+_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
 
 ---
