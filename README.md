@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave enough to suck at something new. — *Unknown*"_
+_"Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality. — *Earl Nightingale*"_
 
 ---
