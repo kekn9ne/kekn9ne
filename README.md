@@ -7,6 +7,6 @@
 
 ---
 
-_"You need to be doing fewer things for more effect instead of doing more things with side effects. — *Gary Keller*"_
+_"The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings. — *Henry Ward Beecher*"_
 
 ---
