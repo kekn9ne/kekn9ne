@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
 
 ---
