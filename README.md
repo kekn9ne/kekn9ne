@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
+_"Cleverness is not wisdom. — *Euripides*"_
 
 ---
