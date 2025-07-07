@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"The chief danger in life is that you may take too many precautions. — *Alfred Adler*"_
 
 ---
