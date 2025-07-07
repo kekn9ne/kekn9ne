@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Günü Gelir** by *Dedublüman* 🎶
+🎧 Currently Listening: **Dargın** by *Zeynep Bastık* 🎶
 
 ---
 
-_"Change your thoughts and you change your world. — *Norman Vincent Peale*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
