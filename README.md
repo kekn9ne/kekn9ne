@@ -7,6 +7,6 @@
 
 ---
 
-_"Waste not fresh tears over old griefs. — *Euripides*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
