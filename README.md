@@ -7,6 +7,6 @@
 
 ---
 
-_"Great loves too must be endured. — *Coco Chanel*"_
+_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
 
 ---
