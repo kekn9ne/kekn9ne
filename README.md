@@ -7,6 +7,6 @@
 
 ---
 
-_"The real measure of your wealth is how much you'd be worth if you lost all your money. — *Unknown*"_
+_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
 
 ---
