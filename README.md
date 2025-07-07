@@ -7,6 +7,6 @@
 
 ---
 
-_"People inspire you, or they drain you. Pick them wisely. — *Les Brown*"_
+_"Great loves too must be endured. — *Coco Chanel*"_
 
 ---
