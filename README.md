@@ -7,6 +7,6 @@
 
 ---
 
-_"The chief danger in life is that you may take too many precautions. — *Alfred Adler*"_
+_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
 
 ---
