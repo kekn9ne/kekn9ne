@@ -7,6 +7,6 @@
 
 ---
 
-_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
+_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
 
 ---
