@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the potential for greatness. — *Steve Harvey*"_
+_"The fact of the matter is that there will be nothing learned from any challenge in which we don't try our hardest. — *Josh Waitzkin*"_
 
 ---
