@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 07 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Gölge Haramileri** by *Sagopa Kajmer* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Knowing is not enough, we must apply. Willing is not enough, we must do.   — *Bruce Lee*"_
+_"You need to be doing fewer things for more effect instead of doing more things with side effects. — *Gary Keller*"_
 
 ---
