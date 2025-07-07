@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Monday, 07 July 2025**  
+🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sevmeden Geçer Zaman** by *Redd* 🎶
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — *Charles Dickens*"_
 
 ---
