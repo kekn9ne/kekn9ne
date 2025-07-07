@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to keep your memories, you first have to live them. — *Bob Dylan*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
