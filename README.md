@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
+_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
 
 ---
