@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **İyileşiyorum** by *Sertab Erener* 🎶
+🎧 Currently Listening: **Günü Gelir** by *Dedublüman* 🎶
 
 ---
 
-_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
+_"Change your thoughts and you change your world. — *Norman Vincent Peale*"_
 
 ---
