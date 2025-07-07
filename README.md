@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
 
 ---
