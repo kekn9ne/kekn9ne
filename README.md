@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
+_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
 
 ---
