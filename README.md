@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
+_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
 
 ---
