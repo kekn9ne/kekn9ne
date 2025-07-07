@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
+_"When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy. — *Norman Vincent Peale*"_
 
 ---
