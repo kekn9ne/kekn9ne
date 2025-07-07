@@ -7,6 +7,6 @@
 
 ---
 
-_"Your purpose will be clear only when you listen to your heart. — *Lolly Daskal*"_
+_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
 
 ---
