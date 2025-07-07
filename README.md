@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
+_"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — *William James*"_
 
 ---
