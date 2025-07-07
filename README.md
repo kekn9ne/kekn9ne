@@ -7,6 +7,6 @@
 
 ---
 
-_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
+_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
 
 ---
