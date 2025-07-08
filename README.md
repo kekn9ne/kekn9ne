@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear of death is fear of the Unknown. — *Adi Da Samraj*"_
+_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
 
 ---
