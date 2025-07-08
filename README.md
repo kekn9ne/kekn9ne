@@ -7,6 +7,6 @@
 
 ---
 
-_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
+_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
 
 ---
