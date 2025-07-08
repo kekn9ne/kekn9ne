@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Kurşuni Renkler** by *Sezen Aksu* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
+_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
 
 ---
