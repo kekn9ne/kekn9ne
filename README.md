@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to keep breaking your heart until it opens. — *Rumi*"_
+_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
 
 ---
