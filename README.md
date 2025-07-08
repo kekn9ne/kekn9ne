@@ -7,6 +7,6 @@
 
 ---
 
-_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
+_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
 
 ---
