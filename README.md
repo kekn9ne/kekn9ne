@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative endeavors are by their nature uncertain. — *Robert Greene*"_
+_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
 
 ---
