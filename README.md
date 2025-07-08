@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
 
 ---
