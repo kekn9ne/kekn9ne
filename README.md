@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
+_"Life is a balance of holding on and letting go. — *Rumi*"_
 
 ---
