@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
+_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
 
 ---
