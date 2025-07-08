@@ -7,6 +7,6 @@
 
 ---
 
-_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
