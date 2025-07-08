@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a balance of holding on and letting go. — *Rumi*"_
+_"Those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
 
 ---
