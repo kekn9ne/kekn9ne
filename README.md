@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Ödeştik** by *Ceren Sagu* 🎶
+🎧 Currently Listening: **Kurşuni Renkler** by *Sezen Aksu* 🎶
 
 ---
 
-_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
+_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
 
 ---
