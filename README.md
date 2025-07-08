@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 09 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Özür Diliyorum** by *Skapova* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
+_"Everybody by your side ain't on your side. — *Steve Harvey*"_
 
 ---
