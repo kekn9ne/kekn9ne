@@ -7,6 +7,6 @@
 
 ---
 
-_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
+_"The art of being wise is knowing what to overlook. — *William James*"_
 
 ---
