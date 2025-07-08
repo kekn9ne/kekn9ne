@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Yağmur** by *Pera* 🎶
+🎧 Currently Listening: **Siyah Beyaz** by *Pilli Bebek* 🎶
 
 ---
 
-_"If you build the guts to do something, anything, then you better save enough to face the consequences. — *Criss Jami*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
