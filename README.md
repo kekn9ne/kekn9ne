@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being wise is knowing what to overlook. — *William James*"_
+_"I try more and more to be myself, caring relatively little whether people approve or disapprove. — *Vincent van Gogh*"_
 
 ---
