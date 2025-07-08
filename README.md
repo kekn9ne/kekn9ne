@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
+_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
 
 ---
