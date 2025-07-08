@@ -7,6 +7,6 @@
 
 ---
 
-_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
+_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
 
 ---
