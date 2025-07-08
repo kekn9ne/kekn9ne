@@ -7,6 +7,6 @@
 
 ---
 
-_"Perpetual optimism is a force multiplier. — *Colin Powell*"_
+_"Turn your face to the sun, as flowers know how to do. — *Ming-Dao Deng*"_
 
 ---
