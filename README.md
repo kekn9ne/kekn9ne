@@ -7,6 +7,6 @@
 
 ---
 
-_"Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt. — *Honore de Balzac*"_
+_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
 
 ---
