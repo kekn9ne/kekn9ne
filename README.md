@@ -7,6 +7,6 @@
 
 ---
 
-_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
+_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
 
 ---
