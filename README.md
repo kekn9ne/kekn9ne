@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 09 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Özür Diliyorum** by *Skapova* 🎶
 
 ---
 
-_"Those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
+_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
 
 ---
