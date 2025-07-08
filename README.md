@@ -7,6 +7,6 @@
 
 ---
 
-_"An investment in knowledge pays the best interest. — *Benjamin Franklin*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
