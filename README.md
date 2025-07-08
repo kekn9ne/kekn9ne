@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
+_"Your past does not equal your future. — *Tony Robbins*"_
 
 ---
