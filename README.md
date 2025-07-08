@@ -7,6 +7,6 @@
 
 ---
 
-_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
+_"Fear of death is fear of the Unknown. — *Adi Da Samraj*"_
 
 ---
