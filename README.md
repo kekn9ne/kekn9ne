@@ -7,6 +7,6 @@
 
 ---
 
-_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
+_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
