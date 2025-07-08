@@ -7,6 +7,6 @@
 
 ---
 
-_"I try more and more to be myself, caring relatively little whether people approve or disapprove. — *Vincent van Gogh*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
