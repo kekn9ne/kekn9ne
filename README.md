@@ -7,6 +7,6 @@
 
 ---
 
-_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
