@@ -7,6 +7,6 @@
 
 ---
 
-_"Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity. — *Og Mandino*"_
+_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
 
 ---
