@@ -7,6 +7,6 @@
 
 ---
 
-_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
+_"The biggest room in the world is the room for improvement. — *Unknown*"_
 
 ---
