@@ -7,6 +7,6 @@
 
 ---
 
-_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
+_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
 
 ---
