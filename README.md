@@ -7,6 +7,6 @@
 
 ---
 
-_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
+_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
 
 ---
