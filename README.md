@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 08 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Siyah** by *Karsu* 🎶
 
 ---
 
-_"Many a man has failed because he had his wishbone where his backbone should have been. — *Ronald Reagan*"_
+_"Throughout this life, you can never be certain of living long enough to take another breath. — *Zen Proverb*"_
 
 ---
