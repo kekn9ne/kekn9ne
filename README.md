@@ -7,6 +7,6 @@
 
 ---
 
-_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
+_"Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity. — *Og Mandino*"_
 
 ---
