@@ -7,6 +7,6 @@
 
 ---
 
-_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
+_"The key to success is failure. — *Michael Jordan*"_
 
 ---
