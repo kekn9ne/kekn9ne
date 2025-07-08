@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
