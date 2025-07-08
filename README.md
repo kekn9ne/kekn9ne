@@ -7,6 +7,6 @@
 
 ---
 
-_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
+_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
 
 ---
