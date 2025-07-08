@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest room in the world is the room for improvement. — *Unknown*"_
+_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
 
 ---
