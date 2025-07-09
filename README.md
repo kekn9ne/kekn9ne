@@ -7,6 +7,6 @@
 
 ---
 
-_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
