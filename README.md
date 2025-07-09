@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Affettim Herkesi** by *Sena Şener* 🎶
+🎧 Currently Listening: **Yalnızlık** by *Pinhani* 🎶
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
 
 ---
