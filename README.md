@@ -7,6 +7,6 @@
 
 ---
 
-_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
+_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
 
 ---
