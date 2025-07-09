@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"We love the things we love for what they are. — *Robert Frost*"_
 
 ---
