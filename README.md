@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Paranoya** by *UZI* 🎶
 
 ---
 
-_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
+_"The purpose of life is to live it, to taste experience to the utmost, to reach out eagerly and without fear for newer and richer experience. — *Eleanor Roosevelt*"_
 
 ---
