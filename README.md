@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over. — *Joan Rivers*"_
+_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
 
 ---
