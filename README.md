@@ -7,6 +7,6 @@
 
 ---
 
-_"You make your own luck if you stay at it long enough. — *Naval Ravikant*"_
+_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
 
 ---
