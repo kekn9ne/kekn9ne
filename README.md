@@ -7,6 +7,6 @@
 
 ---
 
-_"Without the confidence, nothing can be accomplished. — *Sathya Sai Baba*"_
+_"The journey, not the destination matters. — *T.S. Eliot*"_
 
 ---
