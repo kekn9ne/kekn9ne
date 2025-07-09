@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something worth remembering. — *Elvis Presley*"_
+_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
 
 ---
