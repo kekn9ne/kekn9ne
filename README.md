@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
+_"Don't want anything. Then you get everything. — *Seungsahn*"_
 
 ---
