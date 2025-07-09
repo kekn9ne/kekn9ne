@@ -7,6 +7,6 @@
 
 ---
 
-_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
+_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
 
 ---
