@@ -7,6 +7,6 @@
 
 ---
 
-_"Health is the greatest of all possessions. — *Jonathan Swift*"_
+_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
 
 ---
