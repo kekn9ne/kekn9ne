@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Yalnızlık** by *Pinhani* 🎶
+🎧 Currently Listening: **Fotograf** by *Pilli Bebek* 🎶
 
 ---
 
-_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
+_"Whatever your mind can conceive and believe, it can achieve. — *Napoleon Hill*"_
 
 ---
