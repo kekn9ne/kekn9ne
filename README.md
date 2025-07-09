@@ -7,6 +7,6 @@
 
 ---
 
-_"The question isn't who is going to let me; it's who is going to stop me. — *Ayn Rand*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
