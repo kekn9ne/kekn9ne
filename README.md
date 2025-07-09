@@ -7,6 +7,6 @@
 
 ---
 
-_"People tend to complicate their own lives, as if living weren't already complicated enough. — *Carlos Ruiz Zafon*"_
+_"The question isn't who is going to let me; it's who is going to stop me. — *Ayn Rand*"_
 
 ---
