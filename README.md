@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 09 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Dünya Gül Bana** by *No.1* 🎶
 
 ---
 
-_"The greatest value of a picture is when it forces us to notice what we never expected to see. — *John Tukey*"_
+_"The more you trust yourself, the less you compare yourself to others. — *Roy T. Bennett*"_
 
 ---
