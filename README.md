@@ -7,6 +7,6 @@
 
 ---
 
-_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
