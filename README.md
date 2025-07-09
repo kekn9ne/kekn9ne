@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
+_"Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections. — *Bob Marley*"_
 
 ---
