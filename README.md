@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect other people's feelings. It might mean nothing to you, but it could mean everything to them. — *Roy T. Bennett*"_
+_"People tend to complicate their own lives, as if living weren't already complicated enough. — *Carlos Ruiz Zafon*"_
 
 ---
