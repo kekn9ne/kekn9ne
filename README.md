@@ -7,6 +7,6 @@
 
 ---
 
-_"Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections. — *Bob Marley*"_
+_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
 
 ---
