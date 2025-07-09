@@ -7,6 +7,6 @@
 
 ---
 
-_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
+_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
 
 ---
