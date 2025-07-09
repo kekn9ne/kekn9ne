@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 09 July 2025**  
+🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ABV** by *Lvbel C5* 🎶
 
 ---
 
-_"The journey, not the destination matters. — *T.S. Eliot*"_
+_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
 
 ---
