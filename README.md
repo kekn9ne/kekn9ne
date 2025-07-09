@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the energy of life. — *Robert Browning*"_
+_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
 
 ---
