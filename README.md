@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
 
 ---
