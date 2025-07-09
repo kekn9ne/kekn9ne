@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
+_"We think too much and feel too little. — *Charlie Chaplin*"_
 
 ---
