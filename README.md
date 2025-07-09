@@ -7,6 +7,6 @@
 
 ---
 
-_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
+_"Love is the energy of life. — *Robert Browning*"_
 
 ---
