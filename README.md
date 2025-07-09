@@ -7,6 +7,6 @@
 
 ---
 
-_"We think too much and feel too little. — *Charlie Chaplin*"_
+_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
 
 ---
