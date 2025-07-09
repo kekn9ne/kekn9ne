@@ -7,6 +7,6 @@
 
 ---
 
-_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
+_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
 
 ---
