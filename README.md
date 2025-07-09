@@ -7,6 +7,6 @@
 
 ---
 
-_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
+_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
 
 ---
