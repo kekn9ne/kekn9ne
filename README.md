@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to be great to start, but you have to start to be great.   — *Zig Ziglar*"_
+_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
 
 ---
