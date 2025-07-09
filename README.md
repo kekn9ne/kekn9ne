@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
+_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
 
 ---
