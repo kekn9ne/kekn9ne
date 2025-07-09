@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
+_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
 
 ---
