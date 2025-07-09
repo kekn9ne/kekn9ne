@@ -7,6 +7,6 @@
 
 ---
 
-_"It is indeed a radical act of love just to sit down and be quiet for a time by yourself. — *Jon Kabat-Zinn*"_
+_"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities. — *Charles Dickens*"_
 
 ---
