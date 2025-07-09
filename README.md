@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bunun Adı Aşk** by *Ufuk Beydemir* 🎶
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
 
 ---
