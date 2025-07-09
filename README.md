@@ -7,6 +7,6 @@
 
 ---
 
-_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
+_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
 
 ---
