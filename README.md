@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the most difficult things is not to change society - but to change yourself. — *Nelson Mandela*"_
+_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
 
 ---
