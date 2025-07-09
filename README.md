@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 09 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
 
 ---
 
-_"If you want more luck, take more chances. — *Brian Tracy*"_
+_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
 
 ---
