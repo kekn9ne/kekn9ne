@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **ABV** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
+_"One of the most difficult things is not to change society - but to change yourself. — *Nelson Mandela*"_
 
 ---
