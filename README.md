@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 09 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"If you want more luck, take more chances. — *Brian Tracy*"_
 
 ---
