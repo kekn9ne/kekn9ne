@@ -7,6 +7,6 @@
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"Health is the greatest of all possessions. — *Jonathan Swift*"_
 
 ---
