@@ -7,6 +7,6 @@
 
 ---
 
-_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
+_"Respect other people's feelings. It might mean nothing to you, but it could mean everything to them. — *Roy T. Bennett*"_
 
 ---
