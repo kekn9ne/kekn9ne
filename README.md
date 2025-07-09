@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 09 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yalan** by *Aleyna Tilki* 🎶
 
 ---
 
-_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
+_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
 
 ---
