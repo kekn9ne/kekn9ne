@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"You make your own luck if you stay at it long enough. — *Naval Ravikant*"_
 
 ---
