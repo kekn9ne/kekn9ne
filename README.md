@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
+_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
 
 ---
