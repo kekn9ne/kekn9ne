@@ -7,6 +7,6 @@
 
 ---
 
-_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
+_"It is indeed a radical act of love just to sit down and be quiet for a time by yourself. — *Jon Kabat-Zinn*"_
 
 ---
