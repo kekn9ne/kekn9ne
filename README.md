@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities. — *Charles Dickens*"_
+_"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live. — *Nicolas Chamfort*"_
 
 ---
