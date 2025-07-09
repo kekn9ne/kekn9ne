@@ -7,6 +7,6 @@
 
 ---
 
-_"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live. — *Nicolas Chamfort*"_
+_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
 
 ---
