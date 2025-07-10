@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
+_"No man is happy unless he believes he is. — *Publilius Syrus*"_
 
 ---
