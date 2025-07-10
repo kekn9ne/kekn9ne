@@ -7,6 +7,6 @@
 
 ---
 
-_"The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune.  — *Charles Swindoll*"_
+_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
 
 ---
