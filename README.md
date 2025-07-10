@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
 
 ---
