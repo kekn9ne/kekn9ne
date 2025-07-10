@@ -7,6 +7,6 @@
 
 ---
 
-_"Raise your words, not voice. It is rain that grows flowers, not thunder. — *Rumi*"_
+_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
 
 ---
