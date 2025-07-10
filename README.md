@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is like reaching an important birthday and finding you're exactly the same. — *Audrey Hepburn*"_
+_"Stop comparing yourself to others and focus on your own improvement. — *Lolly Daskal*"_
 
 ---
