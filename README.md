@@ -7,6 +7,6 @@
 
 ---
 
-_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
+_"If you're afraid to die, you're afraid to live. You can't have one without the other. — *Rita Mae Brown*"_
 
 ---
