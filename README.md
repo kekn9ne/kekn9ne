@@ -7,6 +7,6 @@
 
 ---
 
-_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
+_"Anything worth doing is worth doing slowly. — *Mae West*"_
 
 ---
