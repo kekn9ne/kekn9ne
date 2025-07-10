@@ -7,6 +7,6 @@
 
 ---
 
-_"A very little key will open a very heavy door. — *Charles Dickens*"_
+_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
 
 ---
