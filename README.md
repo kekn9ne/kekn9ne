@@ -7,6 +7,6 @@
 
 ---
 
-_"The quieter you become, the more you are able to hear. — *Rumi*"_
+_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
 
 ---
