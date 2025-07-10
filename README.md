@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
+_"Every limit is a beginning as well as an ending. — *George Eliot*"_
 
 ---
