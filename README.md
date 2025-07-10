@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is created twice, first in the mind and then in reality. — *Robin Sharma*"_
+_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
 
 ---
