@@ -7,6 +7,6 @@
 
 ---
 
-_"Forgive yourself for your faults and your mistakes and move on. — *Les Brown*"_
+_"Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.  — *Paramahansa Yogananda*"_
 
 ---
