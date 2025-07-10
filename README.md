@@ -7,6 +7,6 @@
 
 ---
 
-_"Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly. — *Marcus Aurelius*"_
+_"The meaning of life is that it stops. — *Franz Kafka*"_
 
 ---
