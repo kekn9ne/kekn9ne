@@ -7,6 +7,6 @@
 
 ---
 
-_"Anything worth doing is worth doing slowly. — *Mae West*"_
+_"I learned the value of hard work by working hard.  — *Margaret Mead*"_
 
 ---
