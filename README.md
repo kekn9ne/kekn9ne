@@ -7,6 +7,6 @@
 
 ---
 
-_"Tradition is the illusion of permanence.  — *Woody Allen*"_
+_"Everything is created twice, first in the mind and then in reality. — *Robin Sharma*"_
 
 ---
