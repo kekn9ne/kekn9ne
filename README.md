@@ -7,6 +7,6 @@
 
 ---
 
-_"The businessman's tool is value. — *Ayn Rand*"_
+_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
 
 ---
