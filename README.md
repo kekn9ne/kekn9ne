@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
+_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
 
 ---
