@@ -7,6 +7,6 @@
 
 ---
 
-_"Every limit is a beginning as well as an ending. — *George Eliot*"_
+_"The deeper the truth in a creative work, the longer it will live.   — *Charlie Chaplin*"_
 
 ---
