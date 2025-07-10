@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
+_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
 
 ---
