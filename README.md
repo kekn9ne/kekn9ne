@@ -7,6 +7,6 @@
 
 ---
 
-_"The educated differ from the uneducated as much as the living differ from the dead. — *Aristotle*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
