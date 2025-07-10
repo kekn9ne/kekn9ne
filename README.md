@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Geber - Akustik** by *Tuğkan* 🎶
 
 ---
 
-_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
+_"Be polite to all, but intimate with few. — *Thomas Jefferson*"_
 
 ---
