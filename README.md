@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
 
 ---
