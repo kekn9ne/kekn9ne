@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is that it stops. — *Franz Kafka*"_
+_"Tradition is the illusion of permanence.  — *Woody Allen*"_
 
 ---
