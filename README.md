@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
+_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
 
 ---
