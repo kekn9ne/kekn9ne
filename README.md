@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
+_"Success is like reaching an important birthday and finding you're exactly the same. — *Audrey Hepburn*"_
 
 ---
