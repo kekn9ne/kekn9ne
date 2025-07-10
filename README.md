@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
 
 ---
