@@ -7,6 +7,6 @@
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"Always do your best. What you plant now, you will harvest later. — *Og Mandino*"_
 
 ---
