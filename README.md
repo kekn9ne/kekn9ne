@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: **Yalan** by *Ceren Sagu* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
+_"The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune.  — *Charles Swindoll*"_
 
 ---
