@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're afraid to die, you're afraid to live. You can't have one without the other. — *Rita Mae Brown*"_
+_"Forgive yourself for your faults and your mistakes and move on. — *Les Brown*"_
 
 ---
