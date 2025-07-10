@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sanki Bir Halkın** by *Gazapizm* 🎶
 
 ---
 
-_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
+_"Life is a journey, not a destination. — *Dan Millman*"_
 
 ---
