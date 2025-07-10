@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
 
 ---
