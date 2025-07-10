@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Marmara** by *Velet* 🎶
+🎧 Currently Listening: **Seni Yazdım** by *ElMusto* 🎶
 
 ---
 
-_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
+_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
 
 ---
