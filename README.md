@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 10 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **67**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yalan** by *Ceren Sagu* 🎶
 
 ---
 
-_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
+_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
 
 ---
