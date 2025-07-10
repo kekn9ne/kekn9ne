@@ -7,6 +7,6 @@
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
 
 ---
