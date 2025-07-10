@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do your best. What you plant now, you will harvest later. — *Og Mandino*"_
+_"Raise your words, not voice. It is rain that grows flowers, not thunder. — *Rumi*"_
 
 ---
