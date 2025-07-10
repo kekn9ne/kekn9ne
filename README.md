@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service. — *Earl Nightingale*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
