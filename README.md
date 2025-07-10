@@ -7,6 +7,6 @@
 
 ---
 
-_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
+_"Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly. — *Marcus Aurelius*"_
 
 ---
