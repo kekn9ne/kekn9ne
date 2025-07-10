@@ -7,6 +7,6 @@
 
 ---
 
-_"Lost Time is never found again. — *Benjamin Franklin*"_
+_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
 
 ---
