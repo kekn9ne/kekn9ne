@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
+_"Don't hate the player. Change the game. — *Steve Harvey*"_
 
 ---
