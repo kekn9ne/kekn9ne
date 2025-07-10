@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't hate the player. Change the game. — *Steve Harvey*"_
+_"From error to error one discovers the entire truth. — *Sigmund Freud*"_
 
 ---
