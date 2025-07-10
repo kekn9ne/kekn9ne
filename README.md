@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy unless he believes he is. — *Publilius Syrus*"_
+_"Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it. — *Robert Frost*"_
 
 ---
