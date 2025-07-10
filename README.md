@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
+_"The businessman's tool is value. — *Ayn Rand*"_
 
 ---
