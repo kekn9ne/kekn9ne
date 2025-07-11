@@ -7,6 +7,6 @@
 
 ---
 
-_"The ego wants comfort and certainty. The soul wants to live fully. — *Maxime Lagace*"_
+_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
 
 ---
