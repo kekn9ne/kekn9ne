@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
+_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
 
 ---
