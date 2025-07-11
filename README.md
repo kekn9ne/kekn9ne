@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
+_"Don't let the noise of others opinions drown out your inner voice. — *Steve Jobs*"_
 
 ---
