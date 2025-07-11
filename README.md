@@ -7,6 +7,6 @@
 
 ---
 
-_"All men are equal before fish. — *Herbert Hoover*"_
+_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
 
 ---
