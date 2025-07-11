@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Mahşer** by *Kaldık Böyle* 🎶
+🎧 Currently Listening: **Hayalet Sevgilim** by *Irem* 🎶
 
 ---
 
-_"Little by little, one travels far. — *J.R.R. Tolkien*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
