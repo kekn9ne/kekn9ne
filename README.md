@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people will walk in and out of your life, but only true friends will leave footprints in your heart. — *Eleanor Roosevelt*"_
+_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
 
 ---
