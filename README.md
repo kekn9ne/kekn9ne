@@ -7,6 +7,6 @@
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
 
 ---
