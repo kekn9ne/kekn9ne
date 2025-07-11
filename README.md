@@ -7,6 +7,6 @@
 
 ---
 
-_"Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know. — *Colin Powell*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
