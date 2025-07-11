@@ -7,6 +7,6 @@
 
 ---
 
-_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
+_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
 
 ---
