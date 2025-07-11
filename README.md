@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of your greatest lessons come from your darkest moments. — *Roger Lee*"_
+_"If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream. — *Arnold Schwarzenegger*"_
 
 ---
