@@ -7,6 +7,6 @@
 
 ---
 
-_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
