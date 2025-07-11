@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
+_"Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place. — *Richard Bach*"_
 
 ---
