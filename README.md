@@ -7,6 +7,6 @@
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
 
 ---
