@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Şafak Operasyonu** by *Tankurt Manas* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
+_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
 
 ---
