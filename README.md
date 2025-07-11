@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Bitti Rüya** by *maNga* 🎶
+🎧 Currently Listening: **Çok Özledim** by *Mavi Gri* 🎶
 
 ---
 
-_"You have to keep breaking your heart until it opens. — *Rumi*"_
+_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
 
 ---
