@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Ölüm Orucu** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
+_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
 
 ---
