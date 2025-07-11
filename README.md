@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
