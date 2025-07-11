@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sevmemeliyiz** by *Sena Şener* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now. — *Spencer Johnson*"_
+_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
 
 ---
