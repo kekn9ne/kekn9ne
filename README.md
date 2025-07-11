@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is one who knows the way, goes the way, and shows the way. — *Unknown*"_
+_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
 
 ---
