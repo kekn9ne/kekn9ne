@@ -7,6 +7,6 @@
 
 ---
 
-_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
+_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
 
 ---
