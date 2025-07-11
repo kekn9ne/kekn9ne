@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to understanding is a few good examples. — *Isaac Newton*"_
+_"I want the fishing rod, not the fish. — *Yanni*"_
 
 ---
