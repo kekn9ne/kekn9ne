@@ -7,6 +7,6 @@
 
 ---
 
-_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
+_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
 
 ---
