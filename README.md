@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
 
 ---
