@@ -7,6 +7,6 @@
 
 ---
 
-_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
+_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
 
 ---
