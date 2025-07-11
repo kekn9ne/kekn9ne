@@ -7,6 +7,6 @@
 
 ---
 
-_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
+_"The ego wants comfort and certainty. The soul wants to live fully. — *Maxime Lagace*"_
 
 ---
