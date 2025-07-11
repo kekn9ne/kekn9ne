@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
 
 ---
