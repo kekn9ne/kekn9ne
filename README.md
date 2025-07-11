@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer. — *J.R.R. Tolkien*"_
+_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
 
 ---
