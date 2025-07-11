@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
+_"The best way to understanding is a few good examples. — *Isaac Newton*"_
 
 ---
