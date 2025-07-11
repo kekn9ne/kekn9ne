@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"A leader is one who knows the way, goes the way, and shows the way. — *Unknown*"_
 
 ---
