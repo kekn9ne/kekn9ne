@@ -7,6 +7,6 @@
 
 ---
 
-_"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — *Alfred Adler*"_
+_"All men are equal before fish. — *Herbert Hoover*"_
 
 ---
