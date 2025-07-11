@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
+_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
 
 ---
