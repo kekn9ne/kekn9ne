@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Gecenin Içine Gir** by *UZI* 🎶
+🎧 Currently Listening: **Sahilevleri** by *KAVAK* 🎶
 
 ---
 
-_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
