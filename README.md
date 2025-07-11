@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Hayallerim ve Ben** by *Defkhan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
