@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 11 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ölüm Orucu** by *Şam* 🎶
 
 ---
 
-_"Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want. — *Tony Robbins*"_
+_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
 
 ---
