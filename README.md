@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to turn a vision into reality, you have to give 100% and never stop believing in your dream. — *Arnold Schwarzenegger*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
