@@ -7,6 +7,6 @@
 
 ---
 
-_"There are people who have money and people who are rich. — *Coco Chanel*"_
+_"Failing is another stepping stone to greatness. — *Oprah Winfrey*"_
 
 ---
