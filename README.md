@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way it gets better for you is when you get better. Better is not something you wish, it's something you become. — *Jim Rohn*"_
+_"If it is not right, do not do it, if it is not true, do not say it. — *Marcus Aurelius*"_
 
 ---
