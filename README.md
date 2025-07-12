@@ -7,6 +7,6 @@
 
 ---
 
-_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
