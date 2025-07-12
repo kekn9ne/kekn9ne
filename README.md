@@ -7,6 +7,6 @@
 
 ---
 
-_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
+_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
 
 ---
