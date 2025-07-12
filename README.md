@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
+_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
 
 ---
