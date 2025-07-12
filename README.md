@@ -7,6 +7,6 @@
 
 ---
 
-_"If it is not right, do not do it, if it is not true, do not say it. — *Marcus Aurelius*"_
+_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
 
 ---
