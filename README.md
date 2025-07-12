@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership starts at the top. — *Morgan Wootten*"_
+_"Lying can never save us from another lie. — *Vaclav Havel*"_
 
 ---
