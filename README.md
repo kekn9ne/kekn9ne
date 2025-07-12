@@ -7,6 +7,6 @@
 
 ---
 
-_"When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy. — *Norman Vincent Peale*"_
+_"It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance. — *Kamal Ravikant*"_
 
 ---
