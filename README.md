@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
 
 ---
