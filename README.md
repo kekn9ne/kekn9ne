@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Ebabil - Remix (Bende saftım napim inandım)** by *Cihangrey* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. — *Alan Watts*"_
+_"The big thing is to make a winning effort. I'm not obsessed with wins. — *Morgan Wootten*"_
 
 ---
