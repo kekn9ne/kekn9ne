@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality. — *Earl Nightingale*"_
+_"Knowledge has to be improved, challenged, and increased constantly, or it vanishes. — *Peter Drucker*"_
 
 ---
