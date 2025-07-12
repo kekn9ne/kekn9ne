@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sağlamlık Testi** by *Borqy* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
