@@ -7,6 +7,6 @@
 
 ---
 
-_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
+_"Make your life a mission - not an intermission. — *Unknown*"_
 
 ---
