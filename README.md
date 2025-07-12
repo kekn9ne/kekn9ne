@@ -7,6 +7,6 @@
 
 ---
 
-_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
+_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
 
 ---
