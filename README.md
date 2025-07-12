@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
 
 ---
