@@ -7,6 +7,6 @@
 
 ---
 
-_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
+_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
 
 ---
