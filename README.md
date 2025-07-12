@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
+_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
 
 ---
