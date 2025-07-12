@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
