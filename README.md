@@ -7,6 +7,6 @@
 
 ---
 
-_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
+_"Many people will walk in and out of your life, but only true friends will leave footprints in your heart. — *Eleanor Roosevelt*"_
 
 ---
