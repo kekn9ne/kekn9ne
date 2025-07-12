@@ -7,6 +7,6 @@
 
 ---
 
-_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
+_"Leadership starts at the top. — *Morgan Wootten*"_
 
 ---
