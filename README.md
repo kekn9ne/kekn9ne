@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance. — *Kamal Ravikant*"_
+_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
 
 ---
