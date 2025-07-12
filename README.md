@@ -7,6 +7,6 @@
 
 ---
 
-_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
+_"When you get up in the morning, you have two choices - either to be happy or to be unhappy. Just choose to be happy. — *Norman Vincent Peale*"_
 
 ---
