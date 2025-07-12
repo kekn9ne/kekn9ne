@@ -7,6 +7,6 @@
 
 ---
 
-_"If you set your goals ridiculously high and its a failure, you will fail above everyone elses success. — *James Cameron*"_
+_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
 
 ---
