@@ -7,6 +7,6 @@
 
 ---
 
-_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
