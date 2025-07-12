@@ -7,6 +7,6 @@
 
 ---
 
-_"Looking after my health today gives me a better hope for tomorrow.  — *Anne Wilson Schaef*"_
+_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
 
 ---
