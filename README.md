@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your life a mission - not an intermission. — *Unknown*"_
+_"It is not what we get. But who we become, what we contribute... that gives meaning to our lives. — *Tony Robbins*"_
 
 ---
