@@ -7,6 +7,6 @@
 
 ---
 
-_"Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver. — *Ayn Rand*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
