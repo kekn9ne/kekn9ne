@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
+_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
 
 ---
