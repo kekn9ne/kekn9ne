@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
+_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
 
 ---
