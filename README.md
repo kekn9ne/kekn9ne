@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Uçurtma** by *Taladro* 🎶
+🎧 Currently Listening: **Kör** by *No.1* 🎶
 
 ---
 
-_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
+_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
 
 ---
