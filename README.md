@@ -7,6 +7,6 @@
 
 ---
 
-_"Life without love is like a tree without blossoms or fruit. — *Kahlil Gibran*"_
+_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
 
 ---
