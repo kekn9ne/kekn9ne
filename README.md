@@ -7,6 +7,6 @@
 
 ---
 
-_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
+_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
 
 ---
