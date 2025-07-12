@@ -7,6 +7,6 @@
 
 ---
 
-_"Leaders spend 5% of their time on the problem & 95% of their time on the solution. Get over it & crush it! — *Tony Robbins*"_
+_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
 
 ---
