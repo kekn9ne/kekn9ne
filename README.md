@@ -7,6 +7,6 @@
 
 ---
 
-_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
+_"A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — *Ming-Dao Deng*"_
 
 ---
