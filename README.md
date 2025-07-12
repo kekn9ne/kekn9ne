@@ -7,6 +7,6 @@
 
 ---
 
-_"A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — *Ming-Dao Deng*"_
+_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
 
 ---
