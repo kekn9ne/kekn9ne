@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
+_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
 
 ---
