@@ -7,6 +7,6 @@
 
 ---
 
-_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
