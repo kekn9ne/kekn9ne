@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Herşey Üstüme Gelsede** by *Maestro* 🎶
 
 ---
 
-_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
+_"When you are able to employ your will always for constructive purposes, you become the controller of your destiny. — *Paramahansa Yogananda*"_
 
 ---
