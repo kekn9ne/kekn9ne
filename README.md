@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 12 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +25°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hayırsız Evlat** by *Kayra* 🎶
 
 ---
 
-_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
