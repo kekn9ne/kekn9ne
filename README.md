@@ -7,6 +7,6 @@
 
 ---
 
-_"The big thing is to make a winning effort. I'm not obsessed with wins. — *Morgan Wootten*"_
+_"It's easier to lose than to win.   — *Wayne Gretzky*"_
 
 ---
