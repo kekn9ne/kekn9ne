@@ -7,6 +7,6 @@
 
 ---
 
-_"He is richest who is content with the least, for content is the wealth of nature. — *Socrates*"_
+_"Looking after my health today gives me a better hope for tomorrow.  — *Anne Wilson Schaef*"_
 
 ---
