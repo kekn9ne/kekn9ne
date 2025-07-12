@@ -7,6 +7,6 @@
 
 ---
 
-_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
+_"Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.   — *Jack Kerouac*"_
 
 ---
