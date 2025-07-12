@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
+_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
 
 ---
