@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Jurassic Park** by *ElMusto* 🎶
 
 ---
 
-_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
+_"The people who are crazy enough to think they can change the world are the ones who do. — *Steve Jobs*"_
 
 ---
