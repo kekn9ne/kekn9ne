@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 12 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Kör** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
+_"The greatest miracle is to be alive. — *Thich Nhat Hanh*"_
 
 ---
