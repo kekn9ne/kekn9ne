@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
+_"A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — *Ming-Dao Deng*"_
 
 ---
