@@ -7,6 +7,6 @@
 
 ---
 
-_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
+_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
 
 ---
