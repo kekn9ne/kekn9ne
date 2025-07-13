@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
+_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
 
 ---
