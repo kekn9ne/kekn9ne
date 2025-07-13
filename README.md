@@ -7,6 +7,6 @@
 
 ---
 
-_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
+_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
 
 ---
