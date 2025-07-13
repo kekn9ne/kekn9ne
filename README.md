@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
+_"But better die than live mechanically a life that is a repetition of repetitions. — *D. H. Lawrence*"_
 
 ---
