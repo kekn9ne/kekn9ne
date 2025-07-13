@@ -7,6 +7,6 @@
 
 ---
 
-_"Why change? Everyone has his own style. When you have found it, you should stick to it. — *Audrey Hepburn*"_
+_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
 
 ---
