@@ -7,6 +7,6 @@
 
 ---
 
-_"Only in the agony of parting do we look into the depths of love. — *George Eliot*"_
+_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
 
 ---
