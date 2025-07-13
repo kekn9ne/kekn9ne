@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
 
 ---
