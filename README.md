@@ -7,6 +7,6 @@
 
 ---
 
-_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
+_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
 
 ---
