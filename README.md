@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 13 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **BIA** by *KAVAK* 🎶
+🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
 
 ---
 
-_"We may not be able to stop evil in the world, but how we treat one another is entirely up to us. — *Barack Obama*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
