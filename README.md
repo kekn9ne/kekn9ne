@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is just to be alive. It is so plain and so obvious and so simple. — *Alan Watts*"_
+_"He who hesitates is a damned fool. — *Mae West*"_
 
 ---
