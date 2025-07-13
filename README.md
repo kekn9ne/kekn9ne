@@ -7,6 +7,6 @@
 
 ---
 
-_"Choose a job you love, and you will never have to work a day in your life.  — *Confucius*"_
+_"The wisdom of life consists in the elimination of the nonessentials. — *Lin Yutang*"_
 
 ---
