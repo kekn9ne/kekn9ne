@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 13 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
+_"Men go to far greater lengths to avoid what they fear than to obtain what they desire. — *Dan Brown*"_
 
 ---
