@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
+_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
 
 ---
