@@ -7,6 +7,6 @@
 
 ---
 
-_"To every action there is always opposed an equal reaction. — *Isaac Newton*"_
+_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
 
 ---
