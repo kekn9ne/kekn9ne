@@ -7,6 +7,6 @@
 
 ---
 
-_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
+_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
 
 ---
