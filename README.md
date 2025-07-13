@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
+_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
 
 ---
