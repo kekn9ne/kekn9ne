@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
+_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
 
 ---
