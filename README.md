@@ -7,6 +7,6 @@
 
 ---
 
-_"Give so much away people insist on paying you. — *Jack Butcher*"_
+_"Only in the agony of parting do we look into the depths of love. — *George Eliot*"_
 
 ---
