@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
+_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
 
 ---
