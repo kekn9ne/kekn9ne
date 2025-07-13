@@ -7,6 +7,6 @@
 
 ---
 
-_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
+_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
 
 ---
