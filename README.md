@@ -7,6 +7,6 @@
 
 ---
 
-_"But better die than live mechanically a life that is a repetition of repetitions. — *D. H. Lawrence*"_
+_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
 
 ---
