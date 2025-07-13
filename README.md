@@ -7,6 +7,6 @@
 
 ---
 
-_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
+_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
 
 ---
