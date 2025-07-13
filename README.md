@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"The first principle of success is desire. — *Robert Collier*"_
 
 ---
