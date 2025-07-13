@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
+_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
 
 ---
