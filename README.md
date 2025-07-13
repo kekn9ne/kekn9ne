@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Sunday, 13 July 2025**  
+🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yakamoz** by *Nazlıcan Kübra* 🎶
 
 ---
 
-_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
+_"The meaning of life is just to be alive. It is so plain and so obvious and so simple. — *Alan Watts*"_
 
 ---
