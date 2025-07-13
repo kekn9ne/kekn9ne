@@ -7,6 +7,6 @@
 
 ---
 
-_"The first principle of success is desire. — *Robert Collier*"_
+_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
 
 ---
