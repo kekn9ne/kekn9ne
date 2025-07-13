@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
+_"Why change? Everyone has his own style. When you have found it, you should stick to it. — *Audrey Hepburn*"_
 
 ---
