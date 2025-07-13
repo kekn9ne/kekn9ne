@@ -7,6 +7,6 @@
 
 ---
 
-_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
+_"Deliberately seek the company of people who influence you to think and act on building the life you desire. — *Napoleon Hill*"_
 
 ---
