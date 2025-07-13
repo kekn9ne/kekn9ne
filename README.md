@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
