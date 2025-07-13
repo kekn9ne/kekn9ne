@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't ever save anything for a special occasion. Being alive is the special occasion. — *Mary Engelbreit*"_
+_"Be fascinated instead of frustrated. — *Jim Rohn*"_
 
 ---
