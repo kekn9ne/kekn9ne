@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Yakamoz** by *Nazlıcan Kübra* 🎶
+🎧 Currently Listening: **Yalan** by *Ceren Sagu* 🎶
 
 ---
 
-_"He who hesitates is a damned fool. — *Mae West*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
