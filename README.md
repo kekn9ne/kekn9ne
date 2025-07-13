@@ -7,6 +7,6 @@
 
 ---
 
-_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
+_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
 
 ---
