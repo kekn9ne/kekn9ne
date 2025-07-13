@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window. — *Peter Drucker*"_
+_"Don't just sit there. Do something. The answers will follow. — *Mark Manson*"_
 
 ---
