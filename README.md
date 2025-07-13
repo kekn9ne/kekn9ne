@@ -7,6 +7,6 @@
 
 ---
 
-_"Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before. — *Alexander Graham Bell*"_
+_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
 
 ---
