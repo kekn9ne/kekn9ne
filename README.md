@@ -7,6 +7,6 @@
 
 ---
 
-_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
+_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
 
 ---
