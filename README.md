@@ -7,6 +7,6 @@
 
 ---
 
-_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
+_"Don't ever save anything for a special occasion. Being alive is the special occasion. — *Mary Engelbreit*"_
 
 ---
