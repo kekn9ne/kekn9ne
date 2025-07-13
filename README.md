@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't just sit there. Do something. The answers will follow. — *Mark Manson*"_
+_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
 
 ---
