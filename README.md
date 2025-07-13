@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 13 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BIA** by *KAVAK* 🎶
 
 ---
 
-_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
+_"We may not be able to stop evil in the world, but how we treat one another is entirely up to us. — *Barack Obama*"_
 
 ---
