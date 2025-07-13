@@ -7,6 +7,6 @@
 
 ---
 
-_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
