@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 13 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Paradoks** by *Borqy* 🎶
 
 ---
 
-_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
