@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
 
 ---
