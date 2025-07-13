@@ -7,6 +7,6 @@
 
 ---
 
-_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
+_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
 
 ---
