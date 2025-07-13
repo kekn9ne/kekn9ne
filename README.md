@@ -7,6 +7,6 @@
 
 ---
 
-_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
+_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
 
 ---
