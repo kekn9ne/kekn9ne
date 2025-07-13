@@ -7,6 +7,6 @@
 
 ---
 
-_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
+_"Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before. — *Alexander Graham Bell*"_
 
 ---
