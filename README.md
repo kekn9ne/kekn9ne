@@ -7,6 +7,6 @@
 
 ---
 
-_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
+_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
 
 ---
