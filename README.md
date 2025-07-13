@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
