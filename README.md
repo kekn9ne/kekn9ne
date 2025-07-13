@@ -7,6 +7,6 @@
 
 ---
 
-_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
+_"Choose a job you love, and you will never have to work a day in your life.  — *Confucius*"_
 
 ---
