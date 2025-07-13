@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
+_"The secret of life is to fall seven times and to get up eight times. — *Paulo Coelho*"_
 
 ---
