@@ -7,6 +7,6 @@
 
 ---
 
-_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
