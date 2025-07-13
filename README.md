@@ -7,6 +7,6 @@
 
 ---
 
-_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
+_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
 
 ---
