@@ -7,6 +7,6 @@
 
 ---
 
-_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
+_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
 
 ---
