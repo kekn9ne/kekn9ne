@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
 
 ---
