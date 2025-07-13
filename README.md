@@ -7,6 +7,6 @@
 
 ---
 
-_"Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable. — *Bhagavad Gita*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
