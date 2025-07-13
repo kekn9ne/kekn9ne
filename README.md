@@ -7,6 +7,6 @@
 
 ---
 
-_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
+_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
 
 ---
