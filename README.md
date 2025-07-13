@@ -7,6 +7,6 @@
 
 ---
 
-_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
+_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
 
 ---
