@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Fotograf** by *Pilli Bebek* 🎶
+🎧 Currently Listening: **Çok Özledim** by *Mavi Gri* 🎶
 
 ---
 
-_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
+_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
 
 ---
