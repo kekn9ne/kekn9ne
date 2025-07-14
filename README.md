@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sevmemeliyiz** by *Sena Şener* 🎶
+🎧 Currently Listening: **Fotograf** by *Pilli Bebek* 🎶
 
 ---
 
-_"A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties. — *Harry S. Truman*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
