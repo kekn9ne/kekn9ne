@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yokuş** by *Heijan* 🎶
 
 ---
 
-_"Make your life a mission - not an intermission. — *Unknown*"_
+_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
 
 ---
