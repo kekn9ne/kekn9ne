@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Üçe Beşe Bakamam** by *Ben Fero* 🎶
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
 
 ---
