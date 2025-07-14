@@ -7,6 +7,6 @@
 
 ---
 
-_"The only time you run out of chances is when you stop taking them. — *Unknown*"_
+_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
 
 ---
