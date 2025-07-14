@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing good ever comes of violence. — *Martin Luther*"_
+_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
 
 ---
