@@ -7,6 +7,6 @@
 
 ---
 
-_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
