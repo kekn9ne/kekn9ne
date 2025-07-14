@@ -7,6 +7,6 @@
 
 ---
 
-_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
+_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
 
 ---
