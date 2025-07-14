@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is only real, when shared. — *Christopher McCandless*"_
+_"I am who I am today because of the choices I made yesterday. — *Eleanor Roosevelt*"_
 
 ---
