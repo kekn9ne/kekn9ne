@@ -7,6 +7,6 @@
 
 ---
 
-_"Be fascinated instead of frustrated. — *Jim Rohn*"_
+_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
 
 ---
