@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
+_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
 
 ---
