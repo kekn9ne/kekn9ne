@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 14 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +28°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Çok Özledim** by *Mavi Gri* 🎶
+🎧 Currently Listening: **Yerine Sevemem** by *Gökhan Kırdar* 🎶
 
 ---
 
-_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
