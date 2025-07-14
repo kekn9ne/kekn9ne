@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Atm** by *Batuflex* 🎶
 
 ---
 
-_"Before you can see the Light, you have to deal with the darkness. — *Dan Millman*"_
+_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
 
 ---
