@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
+_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
 
 ---
