@@ -7,6 +7,6 @@
 
 ---
 
-_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
+_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
 
 ---
