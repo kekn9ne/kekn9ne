@@ -7,6 +7,6 @@
 
 ---
 
-_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
+_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
 
 ---
