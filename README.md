@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sağlamlık Testi** by *Borqy* 🎶
 
 ---
 
-_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
+_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
 
 ---
