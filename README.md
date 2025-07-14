@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 14 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +30°C**  
+🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
 
 ---
 
-_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
+_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
 
 ---
