@@ -7,6 +7,6 @@
 
 ---
 
-_"Be mindful. Be grateful. Be positive. Be true. Be kind. — *Roy T. Bennett*"_
+_"Nothing good ever comes of violence. — *Martin Luther*"_
 
 ---
