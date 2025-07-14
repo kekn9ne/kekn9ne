@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"We suffer more often in imagination than in reality. — *Seneca*"_
 
 ---
