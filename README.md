@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"Life is 10% what happens to you and 90% how you react to it.  — *Charles Swindoll*"_
 
 ---
