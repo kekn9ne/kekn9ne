@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
+_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
 
 ---
