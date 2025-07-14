@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
+_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
 
 ---
