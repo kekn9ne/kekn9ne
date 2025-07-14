@@ -7,6 +7,6 @@
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"Be mindful. Be grateful. Be positive. Be true. Be kind. — *Roy T. Bennett*"_
 
 ---
