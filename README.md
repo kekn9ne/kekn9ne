@@ -7,6 +7,6 @@
 
 ---
 
-_"I am who I am today because of the choices I made yesterday. — *Eleanor Roosevelt*"_
+_"Talk does not cook rice. — *Chinese Proverb*"_
 
 ---
