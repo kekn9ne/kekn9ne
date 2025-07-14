@@ -7,6 +7,6 @@
 
 ---
 
-_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
+_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
 
 ---
