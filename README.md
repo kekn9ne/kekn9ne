@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
