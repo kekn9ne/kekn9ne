@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not what one is born with but what use one makes of that equipment. — *Alfred Adler*"_
+_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
 
 ---
