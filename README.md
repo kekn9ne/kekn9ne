@@ -7,6 +7,6 @@
 
 ---
 
-_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
+_"The only time you run out of chances is when you stop taking them. — *Unknown*"_
 
 ---
