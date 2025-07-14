@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Yokuş** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
 
 ---
