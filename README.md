@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
+_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
 
 ---
