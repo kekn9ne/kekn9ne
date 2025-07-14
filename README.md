@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 14 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sağlamlık Testi** by *Borqy* 🎶
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
+_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
 
 ---
