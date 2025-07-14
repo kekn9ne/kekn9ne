@@ -7,6 +7,6 @@
 
 ---
 
-_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
+_"Make your life a mission - not an intermission. — *Unknown*"_
 
 ---
