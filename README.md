@@ -7,6 +7,6 @@
 
 ---
 
-_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
