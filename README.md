@@ -7,6 +7,6 @@
 
 ---
 
-_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
+_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
 
 ---
