@@ -7,6 +7,6 @@
 
 ---
 
-_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
+_"Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity. — *Charles Spurgeon*"_
 
 ---
