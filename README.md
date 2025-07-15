@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Hırka** by *Onur Can Özcan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it. — *Josh Waitzkin*"_
+_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
 
 ---
