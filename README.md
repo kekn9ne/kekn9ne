@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
+_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
 
 ---
