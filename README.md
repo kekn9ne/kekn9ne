@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you give, the more comes back to you. — *Napoleon Hill*"_
+_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
 
 ---
