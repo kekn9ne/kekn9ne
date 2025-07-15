@@ -7,6 +7,6 @@
 
 ---
 
-_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
+_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
 
 ---
