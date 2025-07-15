@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 15 July 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
+_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
 
 ---
