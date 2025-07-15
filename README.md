@@ -7,6 +7,6 @@
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"In life you need either inspiration or desperation. — *Tony Robbins*"_
 
 ---
