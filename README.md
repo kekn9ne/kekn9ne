@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
+_"If a man knows not to which port he sails, no wind is favorable.   — *Seneca*"_
 
 ---
