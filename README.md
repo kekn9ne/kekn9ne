@@ -7,6 +7,6 @@
 
 ---
 
-_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
+_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
 
 ---
