@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **DOĞUŞTAN BERİ HAKLIYIM (tmm)** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
 
 ---
 
-_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
+_"To earn more you must learn more. — *Brian Tracy*"_
 
 ---
