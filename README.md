@@ -7,6 +7,6 @@
 
 ---
 
-_"If you chase two rabbits, you catch none. — *Confucius*"_
+_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
 
 ---
