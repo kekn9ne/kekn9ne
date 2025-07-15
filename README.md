@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DOĞUŞTAN BERİ HAKLIYIM (tmm)** by *Lvbel C5* 🎶
 
 ---
 
-_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
+_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
 
 ---
