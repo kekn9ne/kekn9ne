@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like a beautiful melody, only the lyrics are messed up. — *Hans Christian Andersen*"_
+_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
 
 ---
