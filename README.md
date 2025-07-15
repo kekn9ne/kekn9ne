@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Seni Özlüyorum** by *Gazapizm* 🎶
 
 ---
 
-_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
+_"Progress lies not in enhancing what is, but in advancing toward what will be. — *Kahlil Gibran*"_
 
 ---
