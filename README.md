@@ -7,6 +7,6 @@
 
 ---
 
-_"In life you need either inspiration or desperation. — *Tony Robbins*"_
+_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
 
 ---
