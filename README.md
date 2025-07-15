@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
 
 ---
 
-_"Learn to value yourself, which means: fight for your happiness. — *Ayn Rand*"_
+_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
 
 ---
