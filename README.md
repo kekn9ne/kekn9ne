@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the keys to happiness is a bad memory. — *Rita Mae Brown*"_
+_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
 
 ---
