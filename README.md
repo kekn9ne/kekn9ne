@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust your instincts: my first reaction is almost invariably the right one.   — *Estee Lauder*"_
+_"Life is a question and how we live it is our answer. — *Gary Keller*"_
 
 ---
