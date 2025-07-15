@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 15 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +32°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
 
 ---
 
-_"Change yourself - you are in control. — *Mahatma Gandhi*"_
+_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
 
 ---
