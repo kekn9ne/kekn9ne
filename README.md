@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
+_"My guiding principle is this: Guilt is never to be doubted.  — *Franz Kafka*"_
 
 ---
