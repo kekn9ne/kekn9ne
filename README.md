@@ -7,6 +7,6 @@
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
 
 ---
