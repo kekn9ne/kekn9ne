@@ -7,6 +7,6 @@
 
 ---
 
-_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
