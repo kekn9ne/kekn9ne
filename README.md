@@ -7,6 +7,6 @@
 
 ---
 
-_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
+_"Listen to what you know instead of what you fear. — *Richard Bach*"_
 
 ---
