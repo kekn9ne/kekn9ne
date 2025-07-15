@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Üçe Beşe Bakamam** by *Ben Fero* 🎶
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"Listen to what you know instead of what you fear. — *Richard Bach*"_
+_"Learn to value yourself, which means: fight for your happiness. — *Ayn Rand*"_
 
 ---
