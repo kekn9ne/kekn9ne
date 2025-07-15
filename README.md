@@ -7,6 +7,6 @@
 
 ---
 
-_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
+_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
 
 ---
