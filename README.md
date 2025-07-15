@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to what you know instead of what you fear. — *Richard Bach*"_
+_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
 
 ---
