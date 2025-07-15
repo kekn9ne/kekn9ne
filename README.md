@@ -7,6 +7,6 @@
 
 ---
 
-_"The measure of wisdom is how calm you are when facing any given situation. — *Naval Ravikant*"_
+_"To be truly ignorant, be content with your own knowledge. — *Zhuangzi*"_
 
 ---
