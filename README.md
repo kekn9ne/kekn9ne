@@ -7,6 +7,6 @@
 
 ---
 
-_"To be truly ignorant, be content with your own knowledge. — *Zhuangzi*"_
+_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
 
 ---
