@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
+_"Trust your instincts: my first reaction is almost invariably the right one.   — *Estee Lauder*"_
 
 ---
