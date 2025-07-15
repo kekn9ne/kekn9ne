@@ -7,6 +7,6 @@
 
 ---
 
-_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
+_"If you chase two rabbits, you catch none. — *Confucius*"_
 
 ---
