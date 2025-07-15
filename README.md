@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can, does. — *George Bernard Shaw*"_
+_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
 
 ---
