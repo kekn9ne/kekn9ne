@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hırka** by *Onur Can Özcan* 🎶
 
 ---
 
-_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
+_"When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it. — *Josh Waitzkin*"_
 
 ---
