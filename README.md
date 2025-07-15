@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to see what you see. — *Ronald Reagan*"_
+_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
 
 ---
