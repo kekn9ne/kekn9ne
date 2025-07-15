@@ -7,6 +7,6 @@
 
 ---
 
-_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
+_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
 
 ---
