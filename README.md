@@ -7,6 +7,6 @@
 
 ---
 
-_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
+_"Far and away the best prize that life has to offer is the chance to work hard at work worth doing. — *Theodore Roosevelt*"_
 
 ---
