@@ -7,6 +7,6 @@
 
 ---
 
-_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
+_"One of the keys to happiness is a bad memory. — *Rita Mae Brown*"_
 
 ---
