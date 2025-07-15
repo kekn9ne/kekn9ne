@@ -7,6 +7,6 @@
 
 ---
 
-_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
+_"The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. — *Sathya Sai Baba*"_
 
 ---
