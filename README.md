@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 15 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
+🎧 Currently Listening: **Üçe Beşe Bakamam** by *Ben Fero* 🎶
 
 ---
 
-_"To earn more you must learn more. — *Brian Tracy*"_
+_"Listen to what you know instead of what you fear. — *Richard Bach*"_
 
 ---
