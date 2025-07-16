@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
+_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
 
 ---
