@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. — *Norman Vincent Peale*"_
 
 ---
