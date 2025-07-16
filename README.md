@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Ölüm Orucu** by *Şam* 🎶
+🎧 Currently Listening: **Ghost, Vol. 2** by *Dj Mehmet Tekin* 🎶
 
 ---
 
-_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
+_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
 
 ---
