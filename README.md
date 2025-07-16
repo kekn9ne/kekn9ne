@@ -7,6 +7,6 @@
 
 ---
 
-_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
