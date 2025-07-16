@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
+_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
 
 ---
