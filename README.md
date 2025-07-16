@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
+_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
 
 ---
