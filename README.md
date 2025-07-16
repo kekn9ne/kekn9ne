@@ -7,6 +7,6 @@
 
 ---
 
-_"Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver. — *Ayn Rand*"_
+_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
 
 ---
