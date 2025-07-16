@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
+_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
 
 ---
