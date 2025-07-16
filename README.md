@@ -7,6 +7,6 @@
 
 ---
 
-_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
+_"The question isn't who is going to let me; it's who is going to stop me. — *Ayn Rand*"_
 
 ---
