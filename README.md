@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
