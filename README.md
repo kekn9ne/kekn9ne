@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. — *Norman Vincent Peale*"_
+_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
 
 ---
