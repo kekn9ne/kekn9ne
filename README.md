@@ -7,6 +7,6 @@
 
 ---
 
-_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
