@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
