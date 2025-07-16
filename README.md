@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. — *Buddha*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
