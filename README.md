@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
+_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
 
 ---
