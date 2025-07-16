@@ -7,6 +7,6 @@
 
 ---
 
-_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
+_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
 
 ---
