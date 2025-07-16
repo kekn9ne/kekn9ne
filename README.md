@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Glock** by *cakal* 🎶
+🎧 Currently Listening: **Ailem İçin** by *Şam* 🎶
 
 ---
 
-_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
+_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
 
 ---
