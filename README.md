@@ -7,6 +7,6 @@
 
 ---
 
-_"The question isn't who is going to let me; it's who is going to stop me. — *Ayn Rand*"_
+_"To love means loving the unlovable. — *Gilbert Chesterton*"_
 
 ---
