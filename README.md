@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Çekmeceden Yıldızlara** by *Misha* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
 
 ---
