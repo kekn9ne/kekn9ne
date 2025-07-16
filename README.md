@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"It takes a very long time to become young. — *Pablo Picasso*"_
+_"an action committed in anger is an action doomed to failure.  — *Genghis Khan*"_
 
 ---
