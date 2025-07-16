@@ -7,6 +7,6 @@
 
 ---
 
-_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
