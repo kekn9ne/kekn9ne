@@ -7,6 +7,6 @@
 
 ---
 
-_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
+_"The busy man is never wise and the wise man is never busy. — *Lin Yutang*"_
 
 ---
