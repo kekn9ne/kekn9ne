@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Glock** by *cakal* 🎶
 
 ---
 
-_"It is in changing that we find purpose. — *Heraclitus*"_
+_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
 
 ---
