@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
+_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
 
 ---
