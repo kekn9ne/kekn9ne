@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is the signature of civilizations.  — *Beverly Sills*"_
+_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
 
 ---
