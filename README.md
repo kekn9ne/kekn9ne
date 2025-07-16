@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
+_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
 
 ---
