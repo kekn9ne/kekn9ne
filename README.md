@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
+_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
 
 ---
