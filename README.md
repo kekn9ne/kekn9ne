@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is from the inside out. When you shift on the inside, life shifts on the outside. — *Kamal Ravikant*"_
+_"Why compare yourself with others? No one in the entire world can do a better job of being you than you. — *Unknown*"_
 
 ---
