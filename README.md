@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 16 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Love is the expression of one's values. — *Ayn Rand*"_
+_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
 
 ---
