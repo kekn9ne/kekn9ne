@@ -7,6 +7,6 @@
 
 ---
 
-_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
+_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
 
 ---
