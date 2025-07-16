@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **HUHU!** by *Batuflex* 🎶
+🎧 Currently Listening: **Kacarsa Vur** by *2vlnys* 🎶
 
 ---
 
-_"Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don't have to have it all figured out to move forward. — *Roy T. Bennett*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
