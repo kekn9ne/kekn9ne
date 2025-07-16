@@ -7,6 +7,6 @@
 
 ---
 
-_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
+_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
 
 ---
