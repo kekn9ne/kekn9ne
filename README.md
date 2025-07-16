@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
 
 ---
 
-_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
+_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
 
 ---
