@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
+_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
 
 ---
