@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
 
 ---
