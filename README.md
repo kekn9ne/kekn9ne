@@ -7,6 +7,6 @@
 
 ---
 
-_"Be - don't try to become  — *Osho*"_
+_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
 
 ---
