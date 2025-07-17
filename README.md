@@ -7,6 +7,6 @@
 
 ---
 
-_"Your conscience is the measure of the honesty of your selfishness. Listen to it carefully. — *Richard Bach*"_
+_"Keep your face always toward the sunshine -  shadows will fall behind you. — *Walt Whitman*"_
 
 ---
