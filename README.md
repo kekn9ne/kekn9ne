@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
+_"He who fails to plan, plans to fail. — *Unknown*"_
 
 ---
