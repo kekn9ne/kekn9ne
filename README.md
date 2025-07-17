@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations. — *Wayne Gretzky*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
