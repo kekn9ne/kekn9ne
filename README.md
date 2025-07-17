@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stumble over something that's behind you. — *Steve Harvey*"_
+_"If you don't have time to do it right, when will you have time to do it over? — *John Wooden*"_
 
 ---
