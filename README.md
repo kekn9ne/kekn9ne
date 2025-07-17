@@ -7,6 +7,6 @@
 
 ---
 
-_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
+_"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.   — *Seneca*"_
 
 ---
