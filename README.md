@@ -7,6 +7,6 @@
 
 ---
 
-_"Time goes from present to past. — *Shunryu Suzuki*"_
+_"The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence. — *Josh Waitzkin*"_
 
 ---
