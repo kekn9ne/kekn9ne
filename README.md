@@ -7,6 +7,6 @@
 
 ---
 
-_"The best time to plant a tree was 20 years ago. The second best time is now. — *Zen Proverb*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
