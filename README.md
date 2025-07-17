@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is patience. — *Isaac Newton*"_
+_"All cruelty springs from weakness.   — *Seneca*"_
 
 ---
