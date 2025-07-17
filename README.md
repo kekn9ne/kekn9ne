@@ -7,6 +7,6 @@
 
 ---
 
-_"If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere. — *Zig Ziglar*"_
+_"I'm not afraid of death, but I'm in no hurry to die. — *Stephen Hawking*"_
 
 ---
