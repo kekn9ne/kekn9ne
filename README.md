@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who do nothing at all make no mistakes. — *Unknown*"_
+_"Your conscience is the measure of the honesty of your selfishness. Listen to it carefully. — *Richard Bach*"_
 
 ---
