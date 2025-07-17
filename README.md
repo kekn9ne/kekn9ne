@@ -7,6 +7,6 @@
 
 ---
 
-_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
+_"Time goes from present to past. — *Shunryu Suzuki*"_
 
 ---
