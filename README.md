@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
+_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
 
 ---
