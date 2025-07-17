@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +34°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **pr** by *Muti* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The most tragic thing in the world is a man of genius who is not a man of honor. — *George Bernard Shaw*"_
+_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
 
 ---
