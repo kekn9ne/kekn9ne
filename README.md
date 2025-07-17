@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
+_"Only those who do nothing at all make no mistakes. — *Unknown*"_
 
 ---
