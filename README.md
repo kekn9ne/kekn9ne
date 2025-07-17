@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
+_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
 
 ---
