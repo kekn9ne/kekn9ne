@@ -7,6 +7,6 @@
 
 ---
 
-_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
