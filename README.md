@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
+_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
 
 ---
