@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
+_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
 
 ---
