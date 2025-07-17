@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.   — *Seneca*"_
+_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
 
 ---
