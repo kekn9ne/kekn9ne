@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
+_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
 
 ---
