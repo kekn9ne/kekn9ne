@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Alan Watts*"_
+_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
 
 ---
