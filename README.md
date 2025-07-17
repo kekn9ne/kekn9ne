@@ -7,6 +7,6 @@
 
 ---
 
-_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
+_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
 
 ---
