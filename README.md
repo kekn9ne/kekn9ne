@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your face always toward the sunshine -  shadows will fall behind you. — *Walt Whitman*"_
+_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
 
 ---
