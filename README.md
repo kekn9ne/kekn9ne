@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +34°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Geber - Akustik** by *Tuğkan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never confuse a single defeat with a final defeat. — *F. Scott Fitzgerald*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
