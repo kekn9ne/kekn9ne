@@ -7,6 +7,6 @@
 
 ---
 
-_"Winning isn't always championships. — *Michael Jordan*"_
+_"The only way round is through. — *Robert Frost*"_
 
 ---
