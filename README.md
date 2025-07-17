@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
+_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
 
 ---
