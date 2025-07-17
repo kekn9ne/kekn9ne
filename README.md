@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less. — *Dan Millman*"_
+_"Whatever your heart clings to and confides in, that is really your God. — *Martin Luther*"_
 
 ---
