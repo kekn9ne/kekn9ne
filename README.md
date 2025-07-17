@@ -7,6 +7,6 @@
 
 ---
 
-_"All cruelty springs from weakness.   — *Seneca*"_
+_"Do not regret the past. Look to the future. — *Soyen Shaku*"_
 
 ---
