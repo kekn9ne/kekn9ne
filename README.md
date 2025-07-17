@@ -7,6 +7,6 @@
 
 ---
 
-_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
+_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
 
 ---
