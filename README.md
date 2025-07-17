@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +34°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **55-53** by *Keskin* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
+_"No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations. — *Wayne Gretzky*"_
 
 ---
