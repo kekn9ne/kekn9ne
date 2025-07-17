@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +34°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
+_"The most tragic thing in the world is a man of genius who is not a man of honor. — *George Bernard Shaw*"_
 
 ---
