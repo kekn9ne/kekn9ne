@@ -7,6 +7,6 @@
 
 ---
 
-_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
