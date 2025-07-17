@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 17 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +34°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kırmış Kalbini** by *Duman* 🎶
 
 ---
 
-_"He who fails to plan, plans to fail. — *Unknown*"_
+_"It's the little things done consistently over time, straight from your heart, that have the greatest impact. — *Unknown*"_
 
 ---
