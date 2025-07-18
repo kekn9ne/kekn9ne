@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **BIA** by *KAVAK* 🎶
 
 ---
 
-_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
+_"Everybody by your side ain't on your side. — *Steve Harvey*"_
 
 ---
