@@ -7,6 +7,6 @@
 
 ---
 
-_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
