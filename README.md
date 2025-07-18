@@ -7,6 +7,6 @@
 
 ---
 
-_"The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions. — *Steve Maraboli*"_
+_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
 
 ---
