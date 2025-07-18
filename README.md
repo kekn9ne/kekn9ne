@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 18 July 2025**  
-🌤️ Weather in Istanbul: **⛅️  +25°C**  
+🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
 
 ---
 
-_"Distant water does not put out a nearby fire. — *Chinese Proverb*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
