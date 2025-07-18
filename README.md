@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"Your home is where your thoughts find peace. — *Zen Proverb*"_
 
 ---
