@@ -7,6 +7,6 @@
 
 ---
 
-_"Your home is where your thoughts find peace. — *Zen Proverb*"_
+_"Life is one long process of getting tired. — *Samuel Butler*"_
 
 ---
