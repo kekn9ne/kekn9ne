@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
 
 ---
