@@ -7,6 +7,6 @@
 
 ---
 
-_"What is planted in each person's soul will sprout.   — *Rumi*"_
+_"Never lose hope. Storms make people stronger and never last forever. — *Roy T. Bennett*"_
 
 ---
