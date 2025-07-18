@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
 
 ---
 
-_"Life is one long process of getting tired. — *Samuel Butler*"_
+_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
 
 ---
