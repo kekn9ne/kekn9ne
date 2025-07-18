@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
+_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
 
 ---
