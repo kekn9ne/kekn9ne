@@ -7,6 +7,6 @@
 
 ---
 
-_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
+_"Not until we are lost do we begin to understand ourselves. — *Henry David Thoreau*"_
 
 ---
