@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion is born deaf and dumb. — *Honore de Balzac*"_
+_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
 
 ---
