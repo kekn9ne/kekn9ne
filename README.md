@@ -7,6 +7,6 @@
 
 ---
 
-_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
+_"Make each day a new horizon. — *Christopher McCandless*"_
 
 ---
