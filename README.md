@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
+🎧 Currently Listening: **Prenses 2.0** by *Dethron* 🎶
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
 
 ---
