@@ -7,6 +7,6 @@
 
 ---
 
-_"Not until we are lost do we begin to understand ourselves. — *Henry David Thoreau*"_
+_"Time goes from present to past. — *Shunryu Suzuki*"_
 
 ---
