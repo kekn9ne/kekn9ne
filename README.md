@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YAKALARSAN** by *cakal* 🎶
 
 ---
 
-_"Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. — *Norman Vincent Peale*"_
+_"Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable. — *Bhagavad Gita*"_
 
 ---
