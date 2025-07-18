@@ -7,6 +7,6 @@
 
 ---
 
-_"You can start changing our world for the better daily, no matter how small the action. — *Nelson Mandela*"_
+_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
 
 ---
