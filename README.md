@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
 
 ---
