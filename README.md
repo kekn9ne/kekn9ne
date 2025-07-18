@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day a new horizon. — *Christopher McCandless*"_
+_"Either get busy living or get busy dying. — *Stephen King*"_
 
 ---
