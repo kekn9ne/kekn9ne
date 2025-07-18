@@ -7,6 +7,6 @@
 
 ---
 
-_"Evil is whatever distracts.  — *Franz Kafka*"_
+_"Eighty percent of success is showing up.  — *Woody Allen*"_
 
 ---
