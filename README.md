@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 19 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
 
 ---
 
-_"Never lose hope. Storms make people stronger and never last forever. — *Roy T. Bennett*"_
+_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
 
 ---
