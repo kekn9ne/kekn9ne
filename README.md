@@ -7,6 +7,6 @@
 
 ---
 
-_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
+_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
 
 ---
