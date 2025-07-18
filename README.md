@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
+_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
 
 ---
