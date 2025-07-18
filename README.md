@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
 
 ---
