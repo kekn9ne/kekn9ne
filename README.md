@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Dıscoteka (HLM SOUND)** by *Emre İskender* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
+_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
 
 ---
