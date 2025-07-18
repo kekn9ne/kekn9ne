@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends upon ourselves. — *Aristotle*"_
+_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
 
 ---
