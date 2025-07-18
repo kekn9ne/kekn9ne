@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **YAKALARSAN** by *cakal* 🎶
+🎧 Currently Listening: **Dıscoteka (HLM SOUND)** by *Emre İskender* 🎶
 
 ---
 
-_"Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable. — *Bhagavad Gita*"_
+_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
 
 ---
