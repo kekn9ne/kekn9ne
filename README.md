@@ -7,6 +7,6 @@
 
 ---
 
-_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
+_"You can start changing our world for the better daily, no matter how small the action. — *Nelson Mandela*"_
 
 ---
