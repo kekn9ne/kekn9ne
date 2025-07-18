@@ -7,6 +7,6 @@
 
 ---
 
-_"Eighty percent of success is showing up.  — *Woody Allen*"_
+_"What is planted in each person's soul will sprout.   — *Rumi*"_
 
 ---
