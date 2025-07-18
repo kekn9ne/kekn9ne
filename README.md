@@ -7,6 +7,6 @@
 
 ---
 
-_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
+_"Passion is born deaf and dumb. — *Honore de Balzac*"_
 
 ---
