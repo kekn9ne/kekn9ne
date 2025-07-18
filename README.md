@@ -7,6 +7,6 @@
 
 ---
 
-_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
+_"When something comes from within, when it is a part of you, you have no choice but to live it, to express it. — *Kamal Ravikant*"_
 
 ---
