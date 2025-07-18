@@ -7,6 +7,6 @@
 
 ---
 
-_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
+_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
 
 ---
