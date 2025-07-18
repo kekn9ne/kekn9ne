@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
+_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
 
 ---
