@@ -7,6 +7,6 @@
 
 ---
 
-_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
+_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
 
 ---
