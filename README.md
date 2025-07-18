@@ -7,6 +7,6 @@
 
 ---
 
-_"When something comes from within, when it is a part of you, you have no choice but to live it, to express it. — *Kamal Ravikant*"_
+_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
 
 ---
