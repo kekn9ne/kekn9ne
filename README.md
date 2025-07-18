@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
+_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
 
 ---
