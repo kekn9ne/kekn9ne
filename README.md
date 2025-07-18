@@ -7,6 +7,6 @@
 
 ---
 
-_"Either get busy living or get busy dying. — *Stephen King*"_
+_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
 
 ---
