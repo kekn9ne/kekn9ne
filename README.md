@@ -7,6 +7,6 @@
 
 ---
 
-_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
+_"Reality is the leading cause of stress among those in touch with it. — *Lily Tomlin*"_
 
 ---
