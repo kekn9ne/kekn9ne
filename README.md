@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
+_"Distant water does not put out a nearby fire. — *Chinese Proverb*"_
 
 ---
