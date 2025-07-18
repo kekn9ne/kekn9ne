@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the ability, now apply yourself. — *Benjamin Mays*"_
+_"Forget safety. Live where you fear to live. — *Rumi*"_
 
 ---
