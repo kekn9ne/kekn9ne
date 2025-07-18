@@ -7,6 +7,6 @@
 
 ---
 
-_"Goodness is the only investment that never fails. — *Henry David Thoreau*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
