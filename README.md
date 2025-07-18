@@ -7,6 +7,6 @@
 
 ---
 
-_"Expect the best of yourself, and then do what is necessary to make it a reality. — *Ralph Marston*"_
+_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
 
 ---
