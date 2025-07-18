@@ -7,6 +7,6 @@
 
 ---
 
-_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
+_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
 
 ---
