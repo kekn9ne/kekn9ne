@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 18 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Prenses 2.0** by *Dethron* 🎶
+🎧 Currently Listening: **BIA** by *KAVAK* 🎶
 
 ---
 
-_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
+_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
 
 ---
