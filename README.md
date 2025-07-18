@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody by your side ain't on your side. — *Steve Harvey*"_
+_"I defeat my enemies when I make them my friends. — *Dalai Lama*"_
 
 ---
