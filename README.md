@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot have a positive life and a negative mind. — *Joyce Meyer*"_
+_"Arise, slay thy enemies, enjoy a prosperous kingdom. — *Bhagavad Gita*"_
 
 ---
