@@ -7,6 +7,6 @@
 
 ---
 
-_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
+_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
 
 ---
