@@ -7,6 +7,6 @@
 
 ---
 
-_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
+_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
 
 ---
