@@ -7,6 +7,6 @@
 
 ---
 
-_"The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination. — *Elbert Hubbard*"_
+_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
 
 ---
