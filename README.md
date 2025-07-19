@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"Don't spend time beating on a wall, hoping to transform it into a door. — *Coco Chanel*"_
 
 ---
