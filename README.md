@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
