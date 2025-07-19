@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
+_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
 
 ---
