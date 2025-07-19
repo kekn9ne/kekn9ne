@@ -7,6 +7,6 @@
 
 ---
 
-_"Every great change is preceded by chaos. — *Deepak Chopra*"_
+_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
 
 ---
