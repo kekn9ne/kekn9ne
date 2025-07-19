@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 19 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Strange Insomniacs** by *Dirty Bizz* 🎶
 
 ---
 
-_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
+_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
 
 ---
