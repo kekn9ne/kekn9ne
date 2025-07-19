@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can survive without food. Everything we consume acts either to heal us or to poison us. — *Thich Nhat Hanh*"_
+_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
 
 ---
