@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
+_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
 
 ---
