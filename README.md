@@ -7,6 +7,6 @@
 
 ---
 
-_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
+_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
 
 ---
