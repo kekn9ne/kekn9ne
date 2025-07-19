@@ -7,6 +7,6 @@
 
 ---
 
-_"Forever is composed of now's. — *Emily Dickinson*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
