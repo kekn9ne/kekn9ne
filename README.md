@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
+_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
 
 ---
