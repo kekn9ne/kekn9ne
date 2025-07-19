@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't spend time beating on a wall, hoping to transform it into a door. — *Coco Chanel*"_
+_"You cannot have a positive life and a negative mind. — *Joyce Meyer*"_
 
 ---
