@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 19 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **...sakın unutma** by *ESKRY* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
+_"Men go to far greater lengths to avoid what they fear than to obtain what they desire. — *Dan Brown*"_
 
 ---
