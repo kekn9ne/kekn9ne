@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
+_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
 
 ---
