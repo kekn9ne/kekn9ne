@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
+_"It's possible in ways both large or small to make a difference in someone's life. — *Yanni*"_
 
 ---
