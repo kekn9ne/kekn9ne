@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 19 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **...sakın unutma** by *ESKRY* 🎶
 
 ---
 
-_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
+_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
 
 ---
