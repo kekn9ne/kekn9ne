@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
+_"Never buy a thing you do not want, because it is cheap, it will be dear to you. — *Thomas Jefferson*"_
 
 ---
