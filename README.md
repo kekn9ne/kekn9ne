@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
 
 ---
