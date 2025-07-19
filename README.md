@@ -7,6 +7,6 @@
 
 ---
 
-_"Arise, slay thy enemies, enjoy a prosperous kingdom. — *Bhagavad Gita*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
