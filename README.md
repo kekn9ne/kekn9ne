@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
+_"Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. — *Jon Kabat-Zinn*"_
 
 ---
