@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 19 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **TELETABİLER** by *Berfin Mis* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is a journey, not a destination. — *Dan Millman*"_
+_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
 
 ---
