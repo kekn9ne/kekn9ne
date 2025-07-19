@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
+_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
 
 ---
