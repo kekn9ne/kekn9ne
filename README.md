@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
+_"Every great change is preceded by chaos. — *Deepak Chopra*"_
 
 ---
