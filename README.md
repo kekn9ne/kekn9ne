@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
