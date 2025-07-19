@@ -7,6 +7,6 @@
 
 ---
 
-_"The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — *Norman Vincent Peale*"_
+_"When you make a choice, you change the future. — *Deepak Chopra*"_
 
 ---
