@@ -7,6 +7,6 @@
 
 ---
 
-_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
+_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
 
 ---
