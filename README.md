@@ -7,6 +7,6 @@
 
 ---
 
-_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
+_"The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination. — *Elbert Hubbard*"_
 
 ---
