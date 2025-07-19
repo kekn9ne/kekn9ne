@@ -7,6 +7,6 @@
 
 ---
 
-_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
+_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
 
 ---
