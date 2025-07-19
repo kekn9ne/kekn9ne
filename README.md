@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — *Brian Tracy*"_
+_"The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — *Norman Vincent Peale*"_
 
 ---
