@@ -7,6 +7,6 @@
 
 ---
 
-_"A fear of weakness only strengthens weakness. — *Criss Jami*"_
+_"If you want to see things just as they are, then you yourself must practice just as you are. — *Dogen*"_
 
 ---
