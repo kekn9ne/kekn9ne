@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire is suffering. — *Naval Ravikant*"_
+_"Leadership starts at the top. — *Morgan Wootten*"_
 
 ---
