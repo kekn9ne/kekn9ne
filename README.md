@@ -7,6 +7,6 @@
 
 ---
 
-_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
+_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
 
 ---
