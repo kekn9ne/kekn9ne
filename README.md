@@ -7,6 +7,6 @@
 
 ---
 
-_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
+_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
 
 ---
