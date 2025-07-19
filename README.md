@@ -7,6 +7,6 @@
 
 ---
 
-_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
+_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
 
 ---
