@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"Forever is composed of now's. — *Emily Dickinson*"_
 
 ---
