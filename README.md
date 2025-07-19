@@ -7,6 +7,6 @@
 
 ---
 
-_"When you make a choice, you change the future. — *Deepak Chopra*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
