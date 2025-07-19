@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to see things just as they are, then you yourself must practice just as you are. — *Dogen*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
