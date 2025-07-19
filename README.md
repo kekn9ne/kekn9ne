@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 19 July 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **68**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen. — *Winston Churchill*"_
+_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
 
 ---
