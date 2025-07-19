@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
+_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
 
 ---
