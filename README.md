@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
+_"All I can do is be me, whoever that is. — *Bob Dylan*"_
 
 ---
