@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
+_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
 
 ---
