@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
+_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
 
 ---
