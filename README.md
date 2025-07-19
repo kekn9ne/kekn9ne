@@ -7,6 +7,6 @@
 
 ---
 
-_"The final mystery is oneself. — *Oscar Wilde*"_
+_"A fear of weakness only strengthens weakness. — *Criss Jami*"_
 
 ---
