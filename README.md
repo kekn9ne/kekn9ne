@@ -7,6 +7,6 @@
 
 ---
 
-_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
+_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
 
 ---
