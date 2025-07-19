@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work. — *John Eliot*"_
+_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
 
 ---
