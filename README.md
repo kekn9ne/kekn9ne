@@ -7,6 +7,6 @@
 
 ---
 
-_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
+_"Desire is suffering. — *Naval Ravikant*"_
 
 ---
