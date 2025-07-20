@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
+_"Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all. — *Dale Carnegie*"_
 
 ---
