@@ -7,6 +7,6 @@
 
 ---
 
-_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
+_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
 
 ---
