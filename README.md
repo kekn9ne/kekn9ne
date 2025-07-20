@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no self-discovery without pain and loss. — *Anita Krizzan*"_
+_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
 
 ---
