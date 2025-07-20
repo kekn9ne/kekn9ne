@@ -7,6 +7,6 @@
 
 ---
 
-_"The health of nations is more important than the wealth of nations. — *Will Rogers*"_
+_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
 
 ---
