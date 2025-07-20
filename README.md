@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
+_"Relax. Nothing is under control. — *Adi Da Samraj*"_
 
 ---
