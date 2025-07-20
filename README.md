@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 20 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Para Yapmakta** by *Era7capone* 🎶
 
 ---
 
-_"There is no truth. There is only perception. — *Gustave Flaubert*"_
+_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
 
 ---
