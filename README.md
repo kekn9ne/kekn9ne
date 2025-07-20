@@ -7,6 +7,6 @@
 
 ---
 
-_"Relax. Nothing is under control. — *Adi Da Samraj*"_
+_"One of the most difficult things is not to change society - but to change yourself. — *Nelson Mandela*"_
 
 ---
