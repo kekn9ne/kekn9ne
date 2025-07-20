@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 20 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +31°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **68**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
+_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
 
 ---
