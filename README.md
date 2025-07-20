@@ -7,6 +7,6 @@
 
 ---
 
-_"The glow of one warm thought is to me worth more than money. — *Thomas Jefferson*"_
+_"No matter how smart we may think we are, no matter how committed we are to our truth, we can lose our way. — *Kamal Ravikant*"_
 
 ---
