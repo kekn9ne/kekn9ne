@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
