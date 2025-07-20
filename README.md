@@ -7,6 +7,6 @@
 
 ---
 
-_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
+_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
 
 ---
