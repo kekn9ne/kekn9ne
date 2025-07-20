@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
+_"Don't spend major time on minor things. — *Jim Rohn*"_
 
 ---
