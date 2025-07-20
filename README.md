@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is much more successfully looked at from a single window. — *F. Scott Fitzgerald*"_
+_"The way out is in. — *Thich Nhat Hanh*"_
 
 ---
