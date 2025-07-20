@@ -7,6 +7,6 @@
 
 ---
 
-_"The way out is in. — *Thich Nhat Hanh*"_
+_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
 
 ---
