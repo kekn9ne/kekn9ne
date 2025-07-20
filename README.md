@@ -7,6 +7,6 @@
 
 ---
 
-_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
+_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
 
 ---
