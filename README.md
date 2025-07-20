@@ -7,6 +7,6 @@
 
 ---
 
-_"Any idea, plan, or purpose may be placed in the mind through repetition of thought. — *Napoleon Hill*"_
+_"If you let your head get too big, it'll break your neck. — *Elvis Presley*"_
 
 ---
