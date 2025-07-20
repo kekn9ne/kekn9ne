@@ -7,6 +7,6 @@
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
 
 ---
