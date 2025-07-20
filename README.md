@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"There is no self-discovery without pain and loss. — *Anita Krizzan*"_
 
 ---
