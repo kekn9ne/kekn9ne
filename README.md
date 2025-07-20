@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important things are the hardest to say. — *Stephen King*"_
+_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
 
 ---
