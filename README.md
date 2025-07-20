@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
+_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
 
 ---
