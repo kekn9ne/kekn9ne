@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
+_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
 
 ---
