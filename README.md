@@ -7,6 +7,6 @@
 
 ---
 
-_"One is never afraid of the unknown; one is afraid of the known coming to an end. — *Jiddu Krishnamurti*"_
+_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
 
 ---
