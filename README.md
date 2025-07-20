@@ -7,6 +7,6 @@
 
 ---
 
-_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
+_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
 
 ---
