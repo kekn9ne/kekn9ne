@@ -7,6 +7,6 @@
 
 ---
 
-_"The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality. — *Brian Tracy*"_
+_"There is no limitations except those we create for ourselves. — *Lolly Daskal*"_
 
 ---
