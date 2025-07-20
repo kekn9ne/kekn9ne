@@ -7,6 +7,6 @@
 
 ---
 
-_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
+_"Work for something because it is good, not just because it stands a chance to succeed. — *Vaclav Havel*"_
 
 ---
