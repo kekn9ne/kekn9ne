@@ -7,6 +7,6 @@
 
 ---
 
-_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
