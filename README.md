@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
 
 ---
