@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the most difficult things is not to change society - but to change yourself. — *Nelson Mandela*"_
+_"Any idea, plan, or purpose may be placed in the mind through repetition of thought. — *Napoleon Hill*"_
 
 ---
