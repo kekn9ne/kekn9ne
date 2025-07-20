@@ -7,6 +7,6 @@
 
 ---
 
-_"Work for something because it is good, not just because it stands a chance to succeed. — *Vaclav Havel*"_
+_"Educating the mind without educating the heart is no education at all. — *Aristotle*"_
 
 ---
