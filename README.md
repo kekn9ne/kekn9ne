@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Sunday, 20 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +31°C**  
+🗓️ Today is: **Monday, 21 July 2025**  
+🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Olmazlara Yandım** by *Ozbi* 🎶
 
 ---
 
-_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
+_"If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you. — *T.S. Eliot*"_
 
 ---
