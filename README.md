@@ -7,6 +7,6 @@
 
 ---
 
-_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
+_"To know even one life has breathed easier because you have lived. This is to have succeeded. — *Ralph Waldo Emerson*"_
 
 ---
