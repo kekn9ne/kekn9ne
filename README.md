@@ -7,6 +7,6 @@
 
 ---
 
-_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
+_"It's better to stand by someone's side than by yourself. — *Jack London*"_
 
 ---
