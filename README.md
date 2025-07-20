@@ -7,6 +7,6 @@
 
 ---
 
-_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
+_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
 
 ---
