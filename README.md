@@ -7,6 +7,6 @@
 
 ---
 
-_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
+_"The most important things are the hardest to say. — *Stephen King*"_
 
 ---
