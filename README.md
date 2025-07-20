@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want, happiness is wanting what you get. — *W.P. Kinsella*"_
+_"Life is much more successfully looked at from a single window. — *F. Scott Fitzgerald*"_
 
 ---
