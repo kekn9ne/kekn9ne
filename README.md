@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen. — *Wayne Dyer*"_
+_"The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality. — *Brian Tracy*"_
 
 ---
