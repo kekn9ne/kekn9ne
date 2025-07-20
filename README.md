@@ -7,6 +7,6 @@
 
 ---
 
-_"Educating the mind without educating the heart is no education at all. — *Aristotle*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
