@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
+_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
 
 ---
