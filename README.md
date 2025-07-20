@@ -7,6 +7,6 @@
 
 ---
 
-_"If you let your head get too big, it'll break your neck. — *Elvis Presley*"_
+_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
 
 ---
