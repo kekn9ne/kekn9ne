@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
+_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
 
 ---
