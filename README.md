@@ -7,6 +7,6 @@
 
 ---
 
-_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
+_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
 
 ---
