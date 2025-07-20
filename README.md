@@ -7,6 +7,6 @@
 
 ---
 
-_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
+_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
 
 ---
