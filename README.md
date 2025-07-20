@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
+_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
 
 ---
