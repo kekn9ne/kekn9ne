@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let making a living prevent you from making a life. — *John Wooden*"_
+_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
 
 ---
