@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
+_"The glow of one warm thought is to me worth more than money. — *Thomas Jefferson*"_
 
 ---
