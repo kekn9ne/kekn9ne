@@ -7,6 +7,6 @@
 
 ---
 
-_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
+_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
 
 ---
