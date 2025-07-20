@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"One is never afraid of the unknown; one is afraid of the known coming to an end. — *Jiddu Krishnamurti*"_
 
 ---
