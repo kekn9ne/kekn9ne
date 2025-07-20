@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to stand by someone's side than by yourself. — *Jack London*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
