@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no limitations except those we create for ourselves. — *Lolly Daskal*"_
+_"Success is getting what you want, happiness is wanting what you get. — *W.P. Kinsella*"_
 
 ---
