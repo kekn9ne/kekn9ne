@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
+_"The glow of one warm thought is to me worth more than money. — *Thomas Jefferson*"_
 
 ---
