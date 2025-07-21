@@ -7,6 +7,6 @@
 
 ---
 
-_"The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you. — *Sonia Ricotti*"_
+_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
 
 ---
