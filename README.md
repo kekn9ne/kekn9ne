@@ -7,6 +7,6 @@
 
 ---
 
-_"The day is for honest men, the night for thieves. — *Euripides*"_
+_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
 
 ---
