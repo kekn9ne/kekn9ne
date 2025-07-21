@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
+_"The wisdom of life consists in the elimination of the nonessentials. — *Lin Yutang*"_
 
 ---
