@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion creates, addiction consumes. — *Gabor Mate*"_
+_"A wise man can learn more from a foolish question than a fool can learn from a wise answer.   — *Bruce Lee*"_
 
 ---
