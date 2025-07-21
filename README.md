@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
+_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
 
 ---
