@@ -7,6 +7,6 @@
 
 ---
 
-_"Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted. — *Robert Collier*"_
+_"Being wrong brings the opportunity for growth. — *Mark Manson*"_
 
 ---
