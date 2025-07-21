@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 21 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +32°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **68**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
+_"Keep your face always toward the sunshine -  shadows will fall behind you. — *Walt Whitman*"_
 
 ---
