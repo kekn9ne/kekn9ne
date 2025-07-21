@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"True prayer has no set form. — *Morihei Ueshiba*"_
 
 ---
