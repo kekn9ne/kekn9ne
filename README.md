@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man can learn more from a foolish question than a fool can learn from a wise answer.   — *Bruce Lee*"_
+_"You don't have to control your thoughts; you just have to stop letting them control you. — *Dan Millman*"_
 
 ---
