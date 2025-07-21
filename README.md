@@ -7,6 +7,6 @@
 
 ---
 
-_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
+_"I would rather be hated for who I am than loved for who I'm not.   — *Wayne Dyer*"_
 
 ---
