@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to control your thoughts; you just have to stop letting them control you. — *Dan Millman*"_
+_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
 
 ---
