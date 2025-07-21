@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
+_"Passion creates, addiction consumes. — *Gabor Mate*"_
 
 ---
