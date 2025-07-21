@@ -7,6 +7,6 @@
 
 ---
 
-_"I was angered, for I had no shoes. Then I met a man who had no feet.  — *Chinese Proverb*"_
+_"If you love life, don't waste time, for time is what life is made up of.  — *Bruce Lee*"_
 
 ---
