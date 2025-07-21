@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being wise is knowing what to overlook. — *William James*"_
+_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
 
 ---
