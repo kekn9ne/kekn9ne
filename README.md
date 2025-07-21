@@ -7,6 +7,6 @@
 
 ---
 
-_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
+_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
 
 ---
