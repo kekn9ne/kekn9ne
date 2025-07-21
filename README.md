@@ -7,6 +7,6 @@
 
 ---
 
-_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
