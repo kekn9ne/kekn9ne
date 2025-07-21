@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
+_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
 
 ---
