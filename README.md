@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever happens always happens on time. — *Zen Proverb*"_
+_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
 
 ---
