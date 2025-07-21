@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
+_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
 
 ---
