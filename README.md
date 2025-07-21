@@ -7,6 +7,6 @@
 
 ---
 
-_"When people are free to do as they please, they usually imitate each other. — *Eric Hoffer*"_
+_"The art of being wise is knowing what to overlook. — *William James*"_
 
 ---
