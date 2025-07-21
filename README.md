@@ -7,6 +7,6 @@
 
 ---
 
-_"The wisdom of life consists in the elimination of the nonessentials. — *Lin Yutang*"_
+_"The day is for honest men, the night for thieves. — *Euripides*"_
 
 ---
