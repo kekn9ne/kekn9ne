@@ -7,6 +7,6 @@
 
 ---
 
-_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
+_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
 
 ---
