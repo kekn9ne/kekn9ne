@@ -7,6 +7,6 @@
 
 ---
 
-_"The more one judges, the less one loves. — *Honore de Balzac*"_
+_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
 
 ---
