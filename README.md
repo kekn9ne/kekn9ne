@@ -7,6 +7,6 @@
 
 ---
 
-_"The time is always right to do what is right. — *Martin Luther King, Jr.*"_
+_"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf. — *Dan Millman*"_
 
 ---
