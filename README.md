@@ -7,6 +7,6 @@
 
 ---
 
-_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
+_"Don't bother people for help without first trying to solve the problem yourself. — *Colin Powell*"_
 
 ---
