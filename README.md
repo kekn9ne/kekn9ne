@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer more often in imagination than in reality.   — *Seneca*"_
+_"The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you. — *Sonia Ricotti*"_
 
 ---
