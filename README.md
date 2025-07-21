@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
+_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
 
 ---
