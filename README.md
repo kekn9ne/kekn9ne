@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather be hated for who I am than loved for who I'm not.   — *Wayne Dyer*"_
+_"Whatever happens always happens on time. — *Zen Proverb*"_
 
 ---
