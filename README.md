@@ -7,6 +7,6 @@
 
 ---
 
-_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
+_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
 
 ---
