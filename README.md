@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
+_"Every act of creation is first an act of destruction. — *Pablo Picasso*"_
 
 ---
