@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
+_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
 
 ---
