@@ -7,6 +7,6 @@
 
 ---
 
-_"True prayer has no set form. — *Morihei Ueshiba*"_
+_"We suffer more often in imagination than in reality.   — *Seneca*"_
 
 ---
