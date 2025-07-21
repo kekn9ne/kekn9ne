@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't bother people for help without first trying to solve the problem yourself. — *Colin Powell*"_
+_"The key to success is action. — *Brian Tracy*"_
 
 ---
