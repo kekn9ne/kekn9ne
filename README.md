@@ -7,6 +7,6 @@
 
 ---
 
-_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
+_"Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted. — *Robert Collier*"_
 
 ---
