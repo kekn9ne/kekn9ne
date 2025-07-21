@@ -7,6 +7,6 @@
 
 ---
 
-_"Every act of creation is first an act of destruction. — *Pablo Picasso*"_
+_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
 
 ---
