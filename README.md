@@ -7,6 +7,6 @@
 
 ---
 
-_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
+_"When you want something in life, you just gotta reach out and grab it. — *Christopher McCandless*"_
 
 ---
