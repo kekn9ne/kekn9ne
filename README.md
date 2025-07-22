@@ -7,6 +7,6 @@
 
 ---
 
-_"All know the way; few actually walk it.  — *Bodhidharma*"_
+_"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — *Henry Ward Beecher*"_
 
 ---
