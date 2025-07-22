@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
+_"A thing must be loved before it is lovable. — *Gilbert Chesterton*"_
 
 ---
