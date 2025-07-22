@@ -7,6 +7,6 @@
 
 ---
 
-_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
+_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
 
 ---
