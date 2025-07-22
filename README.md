@@ -7,6 +7,6 @@
 
 ---
 
-_"It is our experiences that mold us into who we are...during times of adversity our true character will show. — *Unknown*"_
+_"Never settle for the crumbs of life. — *Og Mandino*"_
 
 ---
