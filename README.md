@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — *Henry Ward Beecher*"_
+_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
 
 ---
