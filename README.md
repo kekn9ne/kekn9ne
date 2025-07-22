@@ -7,6 +7,6 @@
 
 ---
 
-_"Fiction is the truth inside the lie. — *Stephen King*"_
+_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
 
 ---
