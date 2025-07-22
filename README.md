@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 22 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Turn The Page** by *Metallica* 🎶
+🎧 Currently Listening: **The Day That Never Comes** by *Metallica* 🎶
 
 ---
 
-_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
+_"Selfishness and greed, individual or national, cause most of our troubles. — *Harry S. Truman*"_
 
 ---
