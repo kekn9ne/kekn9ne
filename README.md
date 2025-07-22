@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
+_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
 
 ---
