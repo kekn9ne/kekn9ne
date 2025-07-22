@@ -7,6 +7,6 @@
 
 ---
 
-_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
+_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
 
 ---
