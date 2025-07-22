@@ -7,6 +7,6 @@
 
 ---
 
-_"Victims recite problems, leaders provide solutions. — *Robin Sharma*"_
+_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
 
 ---
