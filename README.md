@@ -7,6 +7,6 @@
 
 ---
 
-_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
+_"Happiness is the spiritual experience of living every minute with love, grace and gratitude. — *Denis Waitley*"_
 
 ---
