@@ -7,6 +7,6 @@
 
 ---
 
-_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
+_"Insanity: doing the same thing over and over again and expecting different results. — *Albert Einstein*"_
 
 ---
