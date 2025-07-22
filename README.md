@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"Those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
 
 ---
