@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
+_"It is our experiences that mold us into who we are...during times of adversity our true character will show. — *Unknown*"_
 
 ---
