@@ -7,6 +7,6 @@
 
 ---
 
-_"A thing must be loved before it is lovable. — *Gilbert Chesterton*"_
+_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
 
 ---
