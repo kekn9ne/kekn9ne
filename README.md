@@ -7,6 +7,6 @@
 
 ---
 
-_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
+_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
 
 ---
