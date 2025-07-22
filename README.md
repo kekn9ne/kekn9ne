@@ -7,6 +7,6 @@
 
 ---
 
-_"Even when a friend does something you do not like, he continues to be your friend.  — *Genghis Khan*"_
+_"Where words fail, music speaks. — *Hans Christian Andersen*"_
 
 ---
