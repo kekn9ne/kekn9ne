@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
+_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
 
 ---
