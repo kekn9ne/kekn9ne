@@ -7,6 +7,6 @@
 
 ---
 
-_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
+_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
 
 ---
