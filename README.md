@@ -7,6 +7,6 @@
 
 ---
 
-_"When you reach the top of the mountain, keep climbing.  — *Zen Proverb*"_
+_"Nothing can survive without food. Everything we consume acts either to heal us or to poison us. — *Thich Nhat Hanh*"_
 
 ---
