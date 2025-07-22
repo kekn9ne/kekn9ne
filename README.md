@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity often comes disguised in the form of misfortune or temporary defeat. — *Napoleon Hill*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
