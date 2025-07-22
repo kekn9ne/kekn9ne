@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
+_"The destiny of man is in his own soul.  — *Herodotus*"_
 
 ---
