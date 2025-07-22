@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
 
 ---
