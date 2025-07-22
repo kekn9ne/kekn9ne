@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 22 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Fade To Black - Remastered** by *Metallica* 🎶
 
 ---
 
-_"People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"One is never afraid of the unknown; one is afraid of the known coming to an end. — *Jiddu Krishnamurti*"_
 
 ---
