@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
