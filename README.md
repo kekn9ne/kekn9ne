@@ -7,6 +7,6 @@
 
 ---
 
-_"When you want something in life, you just gotta reach out and grab it. — *Christopher McCandless*"_
+_"Fiction is the truth inside the lie. — *Stephen King*"_
 
 ---
