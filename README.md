@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 22 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Fade To Black - Remastered** by *Metallica* 🎶
+🎧 Currently Listening: **Turn The Page** by *Metallica* 🎶
 
 ---
 
-_"One is never afraid of the unknown; one is afraid of the known coming to an end. — *Jiddu Krishnamurti*"_
+_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
 
 ---
