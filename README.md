@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
+_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
 
 ---
