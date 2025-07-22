@@ -7,6 +7,6 @@
 
 ---
 
-_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
+_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
 
 ---
