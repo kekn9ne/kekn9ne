@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — *Benjamin Mays*"_
+_"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. — *Steve Maraboli*"_
 
 ---
