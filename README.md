@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
+_"The world is open for play, everything and everybody is mockable in a wonderful way. — *Robin Williams*"_
 
 ---
