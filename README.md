@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
+_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
 
 ---
