@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can survive without food. Everything we consume acts either to heal us or to poison us. — *Thich Nhat Hanh*"_
+_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
 
 ---
