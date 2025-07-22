@@ -7,6 +7,6 @@
 
 ---
 
-_"Time doesn't heal emotional pain, you need to learn how to let go. — *Roy T. Bennett*"_
+_"There are few reasons for telling the truth, but for lying the number is infinite. — *Carlos Ruiz Zafon*"_
 
 ---
