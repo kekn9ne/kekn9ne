@@ -7,6 +7,6 @@
 
 ---
 
-_"Give so much away people insist on paying you. — *Jack Butcher*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
