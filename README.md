@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing your own darkness is the best method for dealing with the darknesses of other people. — *Carl Jung*"_
+_"When you reach the top of the mountain, keep climbing.  — *Zen Proverb*"_
 
 ---
