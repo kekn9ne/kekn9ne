@@ -7,6 +7,6 @@
 
 ---
 
-_"Beauty is not in the face; beauty is a light in the heart. — *Kahlil Gibran*"_
+_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
 
 ---
