@@ -7,6 +7,6 @@
 
 ---
 
-_"Never settle for the crumbs of life. — *Og Mandino*"_
+_"Victims recite problems, leaders provide solutions. — *Robin Sharma*"_
 
 ---
