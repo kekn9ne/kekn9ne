@@ -7,6 +7,6 @@
 
 ---
 
-_"Where words fail, music speaks. — *Hans Christian Andersen*"_
+_"Time doesn't heal emotional pain, you need to learn how to let go. — *Roy T. Bennett*"_
 
 ---
