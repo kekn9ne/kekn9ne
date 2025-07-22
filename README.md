@@ -7,6 +7,6 @@
 
 ---
 
-_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
