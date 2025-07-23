@@ -7,6 +7,6 @@
 
 ---
 
-_"Life itself is the most wonderful fairy tale. — *Hans Christian Andersen*"_
+_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
 
 ---
