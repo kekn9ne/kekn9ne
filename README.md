@@ -7,6 +7,6 @@
 
 ---
 
-_"It is dangerous to be right in matters on which the established authorities are wrong. — *Voltaire*"_
+_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
 
 ---
