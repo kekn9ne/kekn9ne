@@ -7,6 +7,6 @@
 
 ---
 
-_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
+_"When you can't make them see the light, make them feel the heat. — *Ronald Reagan*"_
 
 ---
