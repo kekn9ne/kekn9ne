@@ -7,6 +7,6 @@
 
 ---
 
-_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
+_"If you let your head get too big, it'll break your neck. — *Elvis Presley*"_
 
 ---
