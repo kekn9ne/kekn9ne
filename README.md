@@ -7,6 +7,6 @@
 
 ---
 
-_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
+_"Let each man exercise the art he knows. — *Aristophanes*"_
 
 ---
