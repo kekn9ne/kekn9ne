@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all different. Don't judge, understand instead. — *Roy T. Bennett*"_
+_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
 
 ---
