@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"Go confidently in the direction of your dreams! Live the life you've imagined. — *Henry David Thoreau*"_
 
 ---
