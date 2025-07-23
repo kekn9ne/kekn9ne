@@ -7,6 +7,6 @@
 
 ---
 
-_"Let each man exercise the art he knows. — *Aristophanes*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
