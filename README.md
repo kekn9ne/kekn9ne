@@ -7,6 +7,6 @@
 
 ---
 
-_"If you let your head get too big, it'll break your neck. — *Elvis Presley*"_
+_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
 
 ---
