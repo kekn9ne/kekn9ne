@@ -7,6 +7,6 @@
 
 ---
 
-_"When you can't make them see the light, make them feel the heat. — *Ronald Reagan*"_
+_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
 
 ---
