@@ -7,6 +7,6 @@
 
 ---
 
-_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
+_"The quality, not the longevity, of one's life is what is important. — *Martin Luther King, Jr.*"_
 
 ---
