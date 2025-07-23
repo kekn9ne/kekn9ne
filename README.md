@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing will work unless you do. — *Maya Angelou*"_
+_"A good stance and posture reflect a proper state of mind. — *Morihei Ueshiba*"_
 
 ---
