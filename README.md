@@ -7,6 +7,6 @@
 
 ---
 
-_"Every artist dips his brush in his own soul, and paints his own nature into his pictures. — *Henry Ward Beecher*"_
+_"Tragedy is a tool for the living to gain wisdom, not a guide by which to live. — *Robert F. Kennedy*"_
 
 ---
