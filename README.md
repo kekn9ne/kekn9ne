@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
+_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
 
 ---
