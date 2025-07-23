@@ -7,6 +7,6 @@
 
 ---
 
-_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
+_"Our joy does not have to be based on our circumstances. — *Joyce Meyer*"_
 
 ---
