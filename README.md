@@ -7,6 +7,6 @@
 
 ---
 
-_"Tragedy is a tool for the living to gain wisdom, not a guide by which to live. — *Robert F. Kennedy*"_
+_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
 
 ---
