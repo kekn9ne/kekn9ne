@@ -7,6 +7,6 @@
 
 ---
 
-_"Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams. — *Robert Greene*"_
+_"In the beginner's mind there are many possibilities, but in the expert's mind there are few. — *Shunryu Suzuki*"_
 
 ---
