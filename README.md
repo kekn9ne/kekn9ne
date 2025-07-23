@@ -7,6 +7,6 @@
 
 ---
 
-_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
+_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
 
 ---
