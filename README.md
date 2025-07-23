@@ -7,6 +7,6 @@
 
 ---
 
-_"Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT. — *Deepak Chopra*"_
+_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
 
 ---
