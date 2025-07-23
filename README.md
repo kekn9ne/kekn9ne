@@ -7,6 +7,6 @@
 
 ---
 
-_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
+_"We are all different. Don't judge, understand instead. — *Roy T. Bennett*"_
 
 ---
