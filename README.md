@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Life itself is the most wonderful fairy tale. — *Hans Christian Andersen*"_
 
 ---
