@@ -7,6 +7,6 @@
 
 ---
 
-_"In the beginner's mind there are many possibilities, but in the expert's mind there are few. — *Shunryu Suzuki*"_
+_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
 
 ---
