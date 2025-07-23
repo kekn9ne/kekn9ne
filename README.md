@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
+_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
 
 ---
