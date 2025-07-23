@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT. — *Deepak Chopra*"_
 
 ---
