@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. — *Charles Dickens*"_
+_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
 
 ---
