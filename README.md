@@ -7,6 +7,6 @@
 
 ---
 
-_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
+_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
 
 ---
