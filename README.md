@@ -7,6 +7,6 @@
 
 ---
 
-_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
+_"Nothing will work unless you do. — *Maya Angelou*"_
 
 ---
