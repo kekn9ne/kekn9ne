@@ -7,6 +7,6 @@
 
 ---
 
-_"I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry. — *Tony Robbins*"_
+_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
 
 ---
