@@ -7,6 +7,6 @@
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
 
 ---
