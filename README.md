@@ -7,6 +7,6 @@
 
 ---
 
-_"Go confidently in the direction of your dreams! Live the life you've imagined. — *Henry David Thoreau*"_
+_"Nothing has more strength than dire necessity. — *Euripides*"_
 
 ---
