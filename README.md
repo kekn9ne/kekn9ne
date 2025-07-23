@@ -7,6 +7,6 @@
 
 ---
 
-_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
+_"Luck is a matter of preparation meeting opportunity. — *Oprah Winfrey*"_
 
 ---
