@@ -7,6 +7,6 @@
 
 ---
 
-_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
+_"It is dangerous to be right in matters on which the established authorities are wrong. — *Voltaire*"_
 
 ---
