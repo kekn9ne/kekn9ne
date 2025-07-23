@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
