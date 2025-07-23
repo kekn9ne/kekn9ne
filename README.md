@@ -7,6 +7,6 @@
 
 ---
 
-_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
+_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
 
 ---
