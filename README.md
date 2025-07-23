@@ -7,6 +7,6 @@
 
 ---
 
-_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
+_"You change the world by being yourself. — *Yoko Ono*"_
 
 ---
