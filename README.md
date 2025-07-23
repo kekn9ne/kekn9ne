@@ -7,6 +7,6 @@
 
 ---
 
-_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
+_"As you grow older you will discover that you have two hands. One for helping yourself, the other for helping others. — *Audrey Hepburn*"_
 
 ---
