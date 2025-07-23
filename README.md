@@ -7,6 +7,6 @@
 
 ---
 
-_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
+_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
 
 ---
