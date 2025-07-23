@@ -7,6 +7,6 @@
 
 ---
 
-_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
+_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
 
 ---
