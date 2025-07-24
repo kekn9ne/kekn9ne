@@ -7,6 +7,6 @@
 
 ---
 
-_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
+_"To do great work one must be very idle as well as very industrious. — *Samuel Butler*"_
 
 ---
