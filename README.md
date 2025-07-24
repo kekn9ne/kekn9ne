@@ -7,6 +7,6 @@
 
 ---
 
-_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
+_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
 
 ---
