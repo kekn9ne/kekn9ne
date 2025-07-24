@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
+_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
 
 ---
