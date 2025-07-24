@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
 
 ---
