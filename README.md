@@ -7,6 +7,6 @@
 
 ---
 
-_"Wrong turns are as important as right turns. More important, sometimes. — *Richard Bach*"_
+_"It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — *Albus Dumbledore*"_
 
 ---
