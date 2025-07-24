@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control. — *Epictetus*"_
+_"Growing up is losing some illusions, in order to acquire others. — *Virginia Woolf*"_
 
 ---
