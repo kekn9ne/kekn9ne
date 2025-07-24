@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
+_"When you judge others, you do not define them, you define yourself. — *Earl Nightingale*"_
 
 ---
