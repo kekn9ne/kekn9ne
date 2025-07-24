@@ -7,6 +7,6 @@
 
 ---
 
-_"The future depends on what you do today.  — *Mahatma Gandhi*"_
+_"Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. — *Thomas Edison*"_
 
 ---
