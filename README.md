@@ -7,6 +7,6 @@
 
 ---
 
-_"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road. — *Henry Ward Beecher*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
