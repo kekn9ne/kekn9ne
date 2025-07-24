@@ -7,6 +7,6 @@
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
 
 ---
