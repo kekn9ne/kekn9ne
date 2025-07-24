@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality, not the longevity, of one's life is what is important. — *Martin Luther King, Jr.*"_
+_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
 
 ---
