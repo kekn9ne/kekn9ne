@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
+_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
 
 ---
