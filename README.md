@@ -7,6 +7,6 @@
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"Freedom is the only worthy goal in life. It is won by disregarding things that lie beyond our control. — *Epictetus*"_
 
 ---
