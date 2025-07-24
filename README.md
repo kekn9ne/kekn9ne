@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are easily shocked should be shocked more often. — *Mae West*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
