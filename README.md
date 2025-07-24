@@ -7,6 +7,6 @@
 
 ---
 
-_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
+_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
 
 ---
