@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not go where the path may lead, go instead where there is no path and leave a trail. — *Ralph Waldo Emerson*"_
+_"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road. — *Henry Ward Beecher*"_
 
 ---
