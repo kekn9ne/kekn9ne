@@ -7,6 +7,6 @@
 
 ---
 
-_"I've always lived in the moment. — *Yanni*"_
+_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
 
 ---
