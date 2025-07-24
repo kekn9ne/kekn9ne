@@ -7,6 +7,6 @@
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
