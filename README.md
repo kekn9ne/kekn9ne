@@ -7,6 +7,6 @@
 
 ---
 
-_"If I persist long enough I will win. — *Og Mandino*"_
+_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
 
 ---
