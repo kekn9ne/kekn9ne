@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you praise and celebrate your life, the more there is in life to celebrate.  — *Oprah Winfrey*"_
+_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
 
 ---
