@@ -7,6 +7,6 @@
 
 ---
 
-_"When you judge others, you do not define them, you define yourself. — *Earl Nightingale*"_
+_"The more you praise and celebrate your life, the more there is in life to celebrate.  — *Oprah Winfrey*"_
 
 ---
