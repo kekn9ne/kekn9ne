@@ -7,6 +7,6 @@
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"Wrong turns are as important as right turns. More important, sometimes. — *Richard Bach*"_
 
 ---
