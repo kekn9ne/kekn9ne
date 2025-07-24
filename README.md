@@ -7,6 +7,6 @@
 
 ---
 
-_"When the root is strong, the fruit is sweet. — *Bob Marley*"_
+_"Smell the cheese often so you know when it is getting old. — *Spencer Johnson*"_
 
 ---
