@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 24 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — *Albus Dumbledore*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
