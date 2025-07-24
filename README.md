@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
