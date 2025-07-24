@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
+_"Do not go where the path may lead, go instead where there is no path and leave a trail. — *Ralph Waldo Emerson*"_
 
 ---
