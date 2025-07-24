@@ -7,6 +7,6 @@
 
 ---
 
-_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
+_"Great things are not done by impulse, but by a series of small things brought together. — *Vincent van Gogh*"_
 
 ---
