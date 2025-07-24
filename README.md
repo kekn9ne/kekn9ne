@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
+_"It is easier to fight for one's principles than to live up to them.  — *Alfred Adler*"_
 
 ---
