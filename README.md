@@ -7,6 +7,6 @@
 
 ---
 
-_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
+_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
 
 ---
