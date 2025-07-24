@@ -7,6 +7,6 @@
 
 ---
 
-_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
