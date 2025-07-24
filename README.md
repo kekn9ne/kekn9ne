@@ -7,6 +7,6 @@
 
 ---
 
-_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
+_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
 
 ---
