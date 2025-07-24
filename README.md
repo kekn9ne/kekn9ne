@@ -7,6 +7,6 @@
 
 ---
 
-_"Growing up is losing some illusions, in order to acquire others. — *Virginia Woolf*"_
+_"What loneliness is more lonely than distrust? — *George Eliot*"_
 
 ---
