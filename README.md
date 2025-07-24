@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter how much you want. What really matters is how much you want it. — *Ralph Marston*"_
+_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
 
 ---
