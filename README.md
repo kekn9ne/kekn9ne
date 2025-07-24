@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"The future depends on what you do today.  — *Mahatma Gandhi*"_
 
 ---
