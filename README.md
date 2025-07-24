@@ -7,6 +7,6 @@
 
 ---
 
-_"To do great work one must be very idle as well as very industrious. — *Samuel Butler*"_
+_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
 
 ---
