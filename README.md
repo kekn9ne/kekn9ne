@@ -7,6 +7,6 @@
 
 ---
 
-_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
+_"The harder the conflict, the greater the triumph.  — *George Washington*"_
 
 ---
