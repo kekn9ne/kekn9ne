@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easier to fight for one's principles than to live up to them.  — *Alfred Adler*"_
+_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
 
 ---
