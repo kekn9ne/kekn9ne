@@ -7,6 +7,6 @@
 
 ---
 
-_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
+_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
 
 ---
