@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not how much we have, but how much we enjoy, that makes happiness. — *Charles Spurgeon*"_
+_"When the root is strong, the fruit is sweet. — *Bob Marley*"_
 
 ---
