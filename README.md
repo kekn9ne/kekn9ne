@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things are not done by impulse, but by a series of small things brought together. — *Vincent van Gogh*"_
+_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
 
 ---
