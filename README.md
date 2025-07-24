@@ -7,6 +7,6 @@
 
 ---
 
-_"What loneliness is more lonely than distrust? — *George Eliot*"_
+_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
 
 ---
