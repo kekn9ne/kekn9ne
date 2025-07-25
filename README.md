@@ -7,6 +7,6 @@
 
 ---
 
-_"Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner. — *Sonia Ricotti*"_
+_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
 
 ---
