@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day your masterpiece. — *John Wooden*"_
+_"Knowledge isn't power until it is applied. — *Dale Carnegie*"_
 
 ---
