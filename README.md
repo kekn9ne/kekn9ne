@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
+_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
 
 ---
