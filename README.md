@@ -7,6 +7,6 @@
 
 ---
 
-_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
+_"All animals except man know that the principal business of life is to enjoy it. — *Samuel Butler*"_
 
 ---
