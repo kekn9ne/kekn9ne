@@ -7,6 +7,6 @@
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
 
 ---
