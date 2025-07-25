@@ -7,6 +7,6 @@
 
 ---
 
-_"As a matter of fact is an expression that precedes many an expression that isn't. — *Laurence J. Peter*"_
+_"Doubt is an uncomfortable condition, but certainty is a ridiculous one. — *Voltaire*"_
 
 ---
