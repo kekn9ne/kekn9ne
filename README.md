@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
+_"If you done it, it ain't bragging. — *Walt Whitman*"_
 
 ---
