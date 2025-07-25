@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. — *Albus Dumbledore*"_
+_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
 
 ---
