@@ -7,6 +7,6 @@
 
 ---
 
-_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
+_"When the time is gone, you can never get it back. — *Stephen King*"_
 
 ---
