@@ -7,6 +7,6 @@
 
 ---
 
-_"The only real security that a man can have in this world is a reserve of knowledge, experience and ability.  — *Henry Ford*"_
+_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
 
 ---
