@@ -7,6 +7,6 @@
 
 ---
 
-_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
+_"You cannot teach a crab to walk straight. — *Aristophanes*"_
 
 ---
