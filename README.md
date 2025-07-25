@@ -7,6 +7,6 @@
 
 ---
 
-_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
+_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
 
 ---
