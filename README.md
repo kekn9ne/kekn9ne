@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there is no struggle, there is no strength.  — *Oprah Winfrey*"_
+_"Whatever you are, be a good one. — *Abraham Lincoln*"_
 
 ---
