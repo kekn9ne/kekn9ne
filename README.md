@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 25 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +34°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **ALEV ALEV** by *Zen-G* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What you are afraid of is never as bad as what you imagine. The fear you let build up in your mind is worse than the situation that actually exists. — *Spencer Johnson*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
