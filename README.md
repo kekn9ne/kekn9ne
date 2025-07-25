@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowledge isn't power until it is applied. — *Dale Carnegie*"_
+_"It ain't where you start in life, it's where you end up, and what you did along the way. — *Colin Powell*"_
 
 ---
