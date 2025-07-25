@@ -7,6 +7,6 @@
 
 ---
 
-_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
+_"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf. — *Dan Millman*"_
 
 ---
