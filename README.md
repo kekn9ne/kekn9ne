@@ -7,6 +7,6 @@
 
 ---
 
-_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
+_"Don't listen to the person who has the answers; listen to the person who has the questions. — *Albert Einstein*"_
 
 ---
