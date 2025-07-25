@@ -7,6 +7,6 @@
 
 ---
 
-_"A Quitter never wins - and - a Winner never quits. — *Napoleon Hill*"_
+_"You only live once, but if you do it right, once is enough. — *Mae West*"_
 
 ---
