@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
+_"We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves. — *Kamal Ravikant*"_
 
 ---
