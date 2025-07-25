@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination means nothing without doing.   — *Charlie Chaplin*"_
+_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
 
 ---
