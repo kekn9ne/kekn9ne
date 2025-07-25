@@ -7,6 +7,6 @@
 
 ---
 
-_"When the time is gone, you can never get it back. — *Stephen King*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
