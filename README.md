@@ -7,6 +7,6 @@
 
 ---
 
-_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
+_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
 
 ---
