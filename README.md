@@ -7,6 +7,6 @@
 
 ---
 
-_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
+_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
 
 ---
