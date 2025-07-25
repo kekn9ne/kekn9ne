@@ -7,6 +7,6 @@
 
 ---
 
-_"Walk towards the sunshine, and the shadows will fall behind you. — *Mary Engelbreit*"_
+_"Where there is no struggle, there is no strength.  — *Oprah Winfrey*"_
 
 ---
