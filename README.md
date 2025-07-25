@@ -7,6 +7,6 @@
 
 ---
 
-_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
+_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
