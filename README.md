@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
+_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
 
 ---
