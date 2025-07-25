@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means. — *Ronald Reagan*"_
+_"The only real security that a man can have in this world is a reserve of knowledge, experience and ability.  — *Henry Ford*"_
 
 ---
