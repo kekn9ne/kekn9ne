@@ -7,6 +7,6 @@
 
 ---
 
-_"If you done it, it ain't bragging. — *Walt Whitman*"_
+_"Make each day your masterpiece. — *John Wooden*"_
 
 ---
