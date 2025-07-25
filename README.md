@@ -7,6 +7,6 @@
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
