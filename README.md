@@ -7,6 +7,6 @@
 
 ---
 
-_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
+_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
 
 ---
