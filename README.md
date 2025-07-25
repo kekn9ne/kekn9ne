@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you are, be a good one. — *Abraham Lincoln*"_
+_"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — *Alfred Adler*"_
 
 ---
