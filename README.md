@@ -7,6 +7,6 @@
 
 ---
 
-_"You only live once, but if you do it right, once is enough. — *Mae West*"_
+_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
 
 ---
