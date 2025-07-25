@@ -7,6 +7,6 @@
 
 ---
 
-_"Doubt is an uncomfortable condition, but certainty is a ridiculous one. — *Voltaire*"_
+_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
 
 ---
