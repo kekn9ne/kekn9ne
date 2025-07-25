@@ -7,6 +7,6 @@
 
 ---
 
-_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
