@@ -7,6 +7,6 @@
 
 ---
 
-_"We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves. — *Kamal Ravikant*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
