@@ -7,6 +7,6 @@
 
 ---
 
-_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
+_"As a matter of fact is an expression that precedes many an expression that isn't. — *Laurence J. Peter*"_
 
 ---
