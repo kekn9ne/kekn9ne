@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot teach a crab to walk straight. — *Aristophanes*"_
+_"A Quitter never wins - and - a Winner never quits. — *Napoleon Hill*"_
 
 ---
