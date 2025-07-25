@@ -7,6 +7,6 @@
 
 ---
 
-_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
+_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
 
 ---
