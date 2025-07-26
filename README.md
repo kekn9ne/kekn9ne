@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
+_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
 
 ---
