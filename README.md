@@ -7,6 +7,6 @@
 
 ---
 
-_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
+_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
 
 ---
