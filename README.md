@@ -7,6 +7,6 @@
 
 ---
 
-_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
+_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
 
 ---
