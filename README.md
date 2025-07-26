@@ -7,6 +7,6 @@
 
 ---
 
-_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
+_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
 
 ---
