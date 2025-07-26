@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
+_"The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive. — *Herodotus*"_
 
 ---
