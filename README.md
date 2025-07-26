@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 26 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
+_"Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending. — *Carl Bard*"_
 
 ---
