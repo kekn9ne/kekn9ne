@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
+_"Turn the pain into power. — *Unknown*"_
 
 ---
