@@ -7,6 +7,6 @@
 
 ---
 
-_"The least deviation from truth will be multiplied later. — *Aristotle*"_
+_"The most difficult times for many of us are the ones we give ourselves. — *Pema Chodron*"_
 
 ---
