@@ -7,6 +7,6 @@
 
 ---
 
-_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
+_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
 
 ---
