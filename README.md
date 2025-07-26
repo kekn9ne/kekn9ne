@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
