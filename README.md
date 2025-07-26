@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
+_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
 
 ---
