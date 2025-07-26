@@ -7,6 +7,6 @@
 
 ---
 
-_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
+_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
 
 ---
