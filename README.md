@@ -7,6 +7,6 @@
 
 ---
 
-_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
+_"You have within you right now, everything you need to deal with whatever the world can throw at you. — *Brian Tracy*"_
 
 ---
