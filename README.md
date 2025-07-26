@@ -7,6 +7,6 @@
 
 ---
 
-_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
+_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
 
 ---
