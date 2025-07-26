@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 26 July 2025**  
+🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
 
 ---
 
-_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
+_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
 
 ---
