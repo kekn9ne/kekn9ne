@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not a goal...it's a by-product of a life well lived. — *Eleanor Roosevelt*"_
+_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
 
 ---
