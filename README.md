@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
+_"Just do the best you can. No one can do more than that. — *John Wooden*"_
 
 ---
