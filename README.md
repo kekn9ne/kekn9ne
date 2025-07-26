@@ -7,6 +7,6 @@
 
 ---
 
-_"Waste not fresh tears over old griefs. — *Euripides*"_
+_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
 
 ---
