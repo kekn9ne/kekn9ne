@@ -7,6 +7,6 @@
 
 ---
 
-_"Debt is the slavery of the free. — *Publilius Syrus*"_
+_"If I persist long enough I will win. — *Og Mandino*"_
 
 ---
