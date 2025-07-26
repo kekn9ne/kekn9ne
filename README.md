@@ -7,6 +7,6 @@
 
 ---
 
-_"The most difficult times for many of us are the ones we give ourselves. — *Pema Chodron*"_
+_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
 
 ---
