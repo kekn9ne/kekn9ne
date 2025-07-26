@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
 
 ---
