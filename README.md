@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
+_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
 
 ---
