@@ -7,6 +7,6 @@
 
 ---
 
-_"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems. — *Robert Kiyosaki*"_
+_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
 
 ---
