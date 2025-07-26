@@ -7,6 +7,6 @@
 
 ---
 
-_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
