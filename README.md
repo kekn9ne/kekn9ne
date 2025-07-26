@@ -7,6 +7,6 @@
 
 ---
 
-_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
+_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
 
 ---
