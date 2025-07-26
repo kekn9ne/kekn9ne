@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
+_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
 
 ---
