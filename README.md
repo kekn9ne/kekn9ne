@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
+_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
 
 ---
