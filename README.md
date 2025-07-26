@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
+_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
 
 ---
