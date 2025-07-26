@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
 
 ---
