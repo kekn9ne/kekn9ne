@@ -7,6 +7,6 @@
 
 ---
 
-_"True prayer has no set form. — *Morihei Ueshiba*"_
+_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
 
 ---
