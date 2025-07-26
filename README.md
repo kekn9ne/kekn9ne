@@ -7,6 +7,6 @@
 
 ---
 
-_"The most creative act you will ever undertake is the act of creating yourself. — *Deepak Chopra*"_
+_"Elegance does not consist in putting on a new dress. — *Coco Chanel*"_
 
 ---
