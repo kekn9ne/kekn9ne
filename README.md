@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
+_"The least deviation from truth will be multiplied later. — *Aristotle*"_
 
 ---
