@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
+_"For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter. — *Celestine Chua*"_
 
 ---
