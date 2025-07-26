@@ -7,6 +7,6 @@
 
 ---
 
-_"He who leaves the game wins it. — *Nicolas Chamfort*"_
+_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
 
 ---
