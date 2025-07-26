@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head. — *Stephen King*"_
+_"Happiness is not a goal...it's a by-product of a life well lived. — *Eleanor Roosevelt*"_
 
 ---
