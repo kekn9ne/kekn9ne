@@ -7,6 +7,6 @@
 
 ---
 
-_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
+_"You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. — *Eleanor Roosevelt*"_
 
 ---
