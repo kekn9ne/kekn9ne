@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
+_"Don't spend time beating on a wall, hoping to transform it into a door. — *Coco Chanel*"_
 
 ---
