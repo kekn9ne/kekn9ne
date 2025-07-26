@@ -7,6 +7,6 @@
 
 ---
 
-_"You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. — *Eleanor Roosevelt*"_
+_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
 
 ---
