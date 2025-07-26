@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
