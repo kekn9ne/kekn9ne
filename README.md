@@ -7,6 +7,6 @@
 
 ---
 
-_"Create with the heart; build with the mind. — *Criss Jami*"_
+_"The most creative act you will ever undertake is the act of creating yourself. — *Deepak Chopra*"_
 
 ---
