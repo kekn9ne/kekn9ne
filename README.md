@@ -7,6 +7,6 @@
 
 ---
 
-_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
