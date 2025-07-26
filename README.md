@@ -7,6 +7,6 @@
 
 ---
 
-_"The finish line is just the beginning of a whole new race. — *Unknown*"_
+_"He who leaves the game wins it. — *Nicolas Chamfort*"_
 
 ---
