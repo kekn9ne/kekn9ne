@@ -7,6 +7,6 @@
 
 ---
 
-_"The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive. — *Herodotus*"_
+_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
 
 ---
