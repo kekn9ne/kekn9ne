@@ -7,6 +7,6 @@
 
 ---
 
-_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
+_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
 
 ---
