@@ -7,6 +7,6 @@
 
 ---
 
-_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
+_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
 
 ---
