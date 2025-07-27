@@ -7,6 +7,6 @@
 
 ---
 
-_"What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from. — *T.S. Eliot*"_
+_"Like it or not, this moment is all we really have to work with. — *Jon Kabat-Zinn*"_
 
 ---
