@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who reads a book with a sense of obligation does not understand the art of reading. — *Lin Yutang*"_
+_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
 
 ---
