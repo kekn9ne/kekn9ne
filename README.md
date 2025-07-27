@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +33°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SPECIAL** by *ALIZADE* 🎶
 
 ---
 
-_"There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — *G.I. Gurdjieff*"_
+_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
 
 ---
