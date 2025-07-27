@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can change your mind, you can change your life. — *William James*"_
+_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
 
 ---
