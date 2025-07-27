@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
+_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
 
 ---
