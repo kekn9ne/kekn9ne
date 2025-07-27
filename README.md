@@ -7,6 +7,6 @@
 
 ---
 
-_"People should pursue what they're passionate about. That will make them happier than pretty much anything else. — *Elon Musk*"_
+_"Patience is a bitter plant, but its fruit is sweet. — *Chinese Proverb*"_
 
 ---
