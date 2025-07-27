@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen Hawking*"_
+_"Engage in those actions and thoughts that nurture the good qualities you want to have. — *Paramahansa Yogananda*"_
 
 ---
