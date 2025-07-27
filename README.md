@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **GEL** by *Orchi* 🎶
+🎧 Currently Listening: **FREESTYLE#1** by *BLOK3* 🎶
 
 ---
 
-_"The soul is neither born, and nor does it die. — *Bhagavad Gita*"_
+_"Forever is composed of now's. — *Emily Dickinson*"_
 
 ---
