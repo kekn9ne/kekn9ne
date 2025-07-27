@@ -7,6 +7,6 @@
 
 ---
 
-_"The law of harvest is to reap more than you sow. Sow an act, and you reap a habit. Sow a habit and you reap a character. Sow a character and you reap a destiny. — *James Allen*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
