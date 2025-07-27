@@ -7,6 +7,6 @@
 
 ---
 
-_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
