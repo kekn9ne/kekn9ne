@@ -7,6 +7,6 @@
 
 ---
 
-_"The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome. — *Tony Robbins*"_
+_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
 
 ---
