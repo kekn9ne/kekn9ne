@@ -7,6 +7,6 @@
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
