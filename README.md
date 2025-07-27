@@ -7,6 +7,6 @@
 
 ---
 
-_"Like it or not, this moment is all we really have to work with. — *Jon Kabat-Zinn*"_
+_"A good system shortens the road to the goal.  — *Orison Swett Marden*"_
 
 ---
