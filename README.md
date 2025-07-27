@@ -7,6 +7,6 @@
 
 ---
 
-_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
+_"People should pursue what they're passionate about. That will make them happier than pretty much anything else. — *Elon Musk*"_
 
 ---
