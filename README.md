@@ -7,6 +7,6 @@
 
 ---
 
-_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
