@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 27 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +33°C**  
+🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
+🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
 
 ---
 
-_"Don't live the same year 75 times and call it a life. — *Robin Sharma*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
