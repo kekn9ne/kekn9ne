@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
+_"Whatever your mind can conceive and believe, it can achieve. — *Napoleon Hill*"_
 
 ---
