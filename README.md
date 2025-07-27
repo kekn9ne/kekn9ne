@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever your mind can conceive and believe, it can achieve. — *Napoleon Hill*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
