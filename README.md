@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +33°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **İKİ TANE SARI** by *Lvbel C5* 🎶
+🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
 
 ---
 
-_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
+_"Don't live the same year 75 times and call it a life. — *Robin Sharma*"_
 
 ---
