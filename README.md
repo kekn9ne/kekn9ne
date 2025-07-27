@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are easily shocked should be shocked more often. — *Mae West*"_
+_"Growing up is losing some illusions, in order to acquire others. — *Virginia Woolf*"_
 
 ---
