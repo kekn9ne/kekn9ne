@@ -7,6 +7,6 @@
 
 ---
 
-_"If anything is worth doing, do it with all your heart. — *Buddha*"_
+_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
 
 ---
