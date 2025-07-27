@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
+_"A path is made by walking on it. — *Zhuangzi*"_
 
 ---
