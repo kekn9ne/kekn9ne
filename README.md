@@ -7,6 +7,6 @@
 
 ---
 
-_"It takes a very long time to become young. — *Pablo Picasso*"_
+_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
 
 ---
