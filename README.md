@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Cinnet** by *Taladro* 🎶
 
 ---
 
-_"If you want others to be happy, practice compassion. If you want to be happy, practice compassion. — *Dalai Lama*"_
+_"If a man knows not to which port he sails, no wind is favorable.   — *Seneca*"_
 
 ---
