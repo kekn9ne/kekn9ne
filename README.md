@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
