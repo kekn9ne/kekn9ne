@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
+_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
 
 ---
