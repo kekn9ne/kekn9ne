@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
+_"If anything is worth doing, do it with all your heart. — *Buddha*"_
 
 ---
