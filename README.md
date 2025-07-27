@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"The only limits in your life are those that you set yourself. — *Celestine Chua*"_
 
 ---
