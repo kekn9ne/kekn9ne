@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **FREESTYLE#1** by *BLOK3* 🎶
+🎧 Currently Listening: **euphoria** by *Kendrick Lamar* 🎶
 
 ---
 
-_"Forever is composed of now's. — *Emily Dickinson*"_
+_"It is best to begin at the beginning. — *Amelia Earhart*"_
 
 ---
