@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you're sure you can win, be careful that you can live with what you lose. — *Gary Keller*"_
+_"Those who are easily shocked should be shocked more often. — *Mae West*"_
 
 ---
