@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 27 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Money Trees** by *Kendrick Lamar* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The way we feel is the direct result of what we think. — *Peter A. Cohen*"_
+_"If you want others to be happy, practice compassion. If you want to be happy, practice compassion. — *Dalai Lama*"_
 
 ---
