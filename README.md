@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
+_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
 
 ---
