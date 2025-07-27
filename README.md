@@ -7,6 +7,6 @@
 
 ---
 
-_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
+_"Quiet people have the loudest minds. — *Stephen Hawking*"_
 
 ---
