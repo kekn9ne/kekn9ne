@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
+_"Little by little, one travels far. — *J.R.R. Tolkien*"_
 
 ---
