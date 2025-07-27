@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
