@@ -7,6 +7,6 @@
 
 ---
 
-_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
+_"Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — *Buddha*"_
 
 ---
