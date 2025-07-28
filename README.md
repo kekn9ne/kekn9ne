@@ -7,6 +7,6 @@
 
 ---
 
-_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
+_"Don't set your own goals by what other people make important. — *Lolly Daskal*"_
 
 ---
