@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 28 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +33°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
+_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
 
 ---
