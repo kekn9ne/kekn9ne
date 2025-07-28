@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't live the same year 75 times and call it a life. — *Robin Sharma*"_
+_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
 
 ---
