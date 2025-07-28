@@ -7,6 +7,6 @@
 
 ---
 
-_"Even in the grave, all is not lost. — *Edgar Allan Poe*"_
+_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
 
 ---
