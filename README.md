@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 29 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +33°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Delilik** by *Cem Kısmet - Pilli Bebek* 🎶
+🎧 Currently Listening: **Affettim Herkesi** by *Sena Şener* 🎶
 
 ---
 
-_"Men go to far greater lengths to avoid what they fear than to obtain what they desire. — *Dan Brown*"_
+_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
 
 ---
