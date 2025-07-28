@@ -7,6 +7,6 @@
 
 ---
 
-_"To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others. — *Criss Jami*"_
+_"A man should never be ashamed to own that he has been in the wrong, which is but saying, that he is wiser today than yesterday. — *Jonathan Swift*"_
 
 ---
