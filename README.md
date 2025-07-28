@@ -7,6 +7,6 @@
 
 ---
 
-_"Never whine, never complain, never try to justify yourself. — *Robert Greene*"_
+_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
 
 ---
