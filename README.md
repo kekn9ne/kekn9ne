@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 28 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **ŞAM & ORCHI - SOKAĞIN RÜYASI CYPHER** by *91* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We think too much and feel too little. — *Charlie Chaplin*"_
+_"Action may not always bring happiness, but there is no happiness without action. — *William James*"_
 
 ---
