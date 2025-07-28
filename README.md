@@ -7,6 +7,6 @@
 
 ---
 
-_"You must find the place inside yourself where nothing is impossible. — *Deepak Chopra*"_
+_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
 
 ---
