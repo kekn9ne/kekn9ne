@@ -7,6 +7,6 @@
 
 ---
 
-_"The quieter you become, the more you are able to hear. — *Rumi*"_
+_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
 
 ---
