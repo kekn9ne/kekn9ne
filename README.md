@@ -7,6 +7,6 @@
 
 ---
 
-_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
+_"Every day is an opportunity to a make a new happy ending. — *Jonathan Swift*"_
 
 ---
