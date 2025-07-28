@@ -7,6 +7,6 @@
 
 ---
 
-_"Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — *Buddha*"_
+_"The most virtuous are those who content themselves with being virtuous without seeking to appear so. — *Plato*"_
 
 ---
