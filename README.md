@@ -7,6 +7,6 @@
 
 ---
 
-_"Man is made by his belief. As he believes, so he is. — *Bhagavad Gita*"_
+_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
 
 ---
