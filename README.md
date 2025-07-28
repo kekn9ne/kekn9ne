@@ -7,6 +7,6 @@
 
 ---
 
-_"The healthiest response to life is joy. — *Deepak Chopra*"_
+_"If we will be quiet and ready enough, we shall find compensation in every disappointment. — *Henry David Thoreau*"_
 
 ---
