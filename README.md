@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
+_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
 
 ---
