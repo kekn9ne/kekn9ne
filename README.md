@@ -7,6 +7,6 @@
 
 ---
 
-_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
+_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
 
 ---
