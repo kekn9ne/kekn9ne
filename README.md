@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
+_"Don't live the same year 75 times and call it a life. — *Robin Sharma*"_
 
 ---
