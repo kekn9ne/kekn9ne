@@ -7,6 +7,6 @@
 
 ---
 
-_"Stay strong. Keep coding. 💪"_
+_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
 
 ---
