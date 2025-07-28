@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
+_"A Quitter never wins - and - a Winner never quits. — *Napoleon Hill*"_
 
 ---
