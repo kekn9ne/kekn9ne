@@ -7,6 +7,6 @@
 
 ---
 
-_"Action may not always bring happiness, but there is no happiness without action. — *William James*"_
+_"To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength. — *Criss Jami*"_
 
 ---
