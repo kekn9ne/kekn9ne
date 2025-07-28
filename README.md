@@ -7,6 +7,6 @@
 
 ---
 
-_"Life begins where fear ends. — *Osho*"_
+_"The healthiest response to life is joy. — *Deepak Chopra*"_
 
 ---
