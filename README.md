@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
+_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
 
 ---
