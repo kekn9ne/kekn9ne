@@ -7,6 +7,6 @@
 
 ---
 
-_"Be curious, not judgmental. — *Walt Whitman*"_
+_"Stop comparing yourself to others and focus on your own improvement. — *Lolly Daskal*"_
 
 ---
