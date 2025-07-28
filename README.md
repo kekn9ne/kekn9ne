@@ -7,6 +7,6 @@
 
 ---
 
-_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
+_"Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do. — *Elvis Presley*"_
 
 ---
