@@ -7,6 +7,6 @@
 
 ---
 
-_"You can never get enough of what you don't need to make you happy. — *Eric Hoffer*"_
+_"We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities. — *Josh Waitzkin*"_
 
 ---
