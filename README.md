@@ -7,6 +7,6 @@
 
 ---
 
-_"Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do. — *Elvis Presley*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
