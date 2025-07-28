@@ -7,6 +7,6 @@
 
 ---
 
-_"Quality is not an act, it is a habit. — *Aristotle*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
