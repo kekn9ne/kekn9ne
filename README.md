@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
+_"The quieter you become, the more you are able to hear. — *Rumi*"_
 
 ---
