@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day is an opportunity to a make a new happy ending. — *Jonathan Swift*"_
+_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
 
 ---
