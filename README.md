@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
 
 ---
