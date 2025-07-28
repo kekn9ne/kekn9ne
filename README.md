@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. — *Simon Sinek*"_
+_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
 
 ---
