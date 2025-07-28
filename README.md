@@ -7,6 +7,6 @@
 
 ---
 
-_"To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength. — *Criss Jami*"_
+_"You must find the place inside yourself where nothing is impossible. — *Deepak Chopra*"_
 
 ---
