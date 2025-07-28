@@ -7,6 +7,6 @@
 
 ---
 
-_"All men who have achieved great things have been great dreamers.  — *Orison Swett Marden*"_
+_"Man is made by his belief. As he believes, so he is. — *Bhagavad Gita*"_
 
 ---
