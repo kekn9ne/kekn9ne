@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others. — *Criss Jami*"_
 
 ---
