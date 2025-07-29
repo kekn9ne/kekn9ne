@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Tuesday, 29 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
-📊 GitHub Contributions: **Unavailable**  
-🎧 Currently Listening: Not listening to anything right now ❌
+📊 GitHub Contributions: **68**  
+🎧 Currently Listening: **Mektup** by *Motive* 🎶
 
 ---
 
-_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
+_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
 
 ---
