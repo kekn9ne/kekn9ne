@@ -7,6 +7,6 @@
 
 ---
 
-_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
+_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
 
 ---
