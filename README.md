@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
+_"It is better to be looked over than overlooked. — *Mae West*"_
 
 ---
