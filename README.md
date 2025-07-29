@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
+_"Man is made by his belief. As he believes, so he is. — *Bhagavad Gita*"_
 
 ---
