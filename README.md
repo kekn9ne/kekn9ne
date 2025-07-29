@@ -7,6 +7,6 @@
 
 ---
 
-_"Growing up is losing some illusions, in order to acquire others. — *Virginia Woolf*"_
+_"The most important things are the hardest to say. — *Stephen King*"_
 
 ---
