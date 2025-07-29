@@ -7,6 +7,6 @@
 
 ---
 
-_"Time and health are two precious assets that we don't recognize and appreciate until they have been depleted.  — *Denis Waitley*"_
+_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
 
 ---
