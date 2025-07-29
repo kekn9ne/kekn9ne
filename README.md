@@ -7,6 +7,6 @@
 
 ---
 
-_"Be where your enemy is not. — *Sun Tzu*"_
+_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
 
 ---
