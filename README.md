@@ -7,6 +7,6 @@
 
 ---
 
-_"Great loves too must be endured. — *Coco Chanel*"_
+_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
 
 ---
