@@ -7,6 +7,6 @@
 
 ---
 
-_"You can suffer the pain of change or suffer remaining the way you are. — *Joyce Meyer*"_
+_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
 
 ---
