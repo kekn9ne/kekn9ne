@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important things are the hardest to say. — *Stephen King*"_
+_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
 
 ---
