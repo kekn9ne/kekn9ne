@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember, hope is a good thing, maybe the best of things. — *Stephen King*"_
+_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
 
 ---
