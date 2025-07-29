@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you. — *Jeffrey Gitomer*"_
+_"Presents are made for the pleasure of who gives them, not the merits of who receives them. — *Carlos Ruiz Zafon*"_
 
 ---
