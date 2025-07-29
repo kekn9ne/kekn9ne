@@ -7,6 +7,6 @@
 
 ---
 
-_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
+_"Time and health are two precious assets that we don't recognize and appreciate until they have been depleted.  — *Denis Waitley*"_
 
 ---
