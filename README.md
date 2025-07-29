@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 29 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Mektup** by *Motive* 🎶
+🎧 Currently Listening: **WOW** by *Ati242* 🎶
 
 ---
 
-_"If you believe you can, you can. If you believe you can't, then, well you can't. — *Celestine Chua*"_
+_"It isn't what you do, but how you do it. — *John Wooden*"_
 
 ---
