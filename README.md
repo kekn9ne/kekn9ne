@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
+_"Only when one allows themself the right to die, do they then give yourself the permission to live. — *C. Sean McGee*"_
 
 ---
