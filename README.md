@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Kalbime Gömerim O Zaman** by *unknxwnreal* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Educating the mind without educating the heart is no education at all. — *Aristotle*"_
+_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
 
 ---
