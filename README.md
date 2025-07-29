@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 29 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **WOW** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It isn't what you do, but how you do it. — *John Wooden*"_
+_"Waste not fresh tears over old griefs. — *Euripides*"_
 
 ---
