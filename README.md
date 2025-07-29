@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe you can and you will be halfway there. — *Lolly Daskal*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
