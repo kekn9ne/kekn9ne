@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 29 July 2025**  
-🌤️ Weather in Istanbul: **☀️   +33°C**  
+🌤️ Weather in Istanbul: **🌫  +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
