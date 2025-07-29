@@ -7,6 +7,6 @@
 
 ---
 
-_"Only when one allows themself the right to die, do they then give yourself the permission to live. — *C. Sean McGee*"_
+_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
 
 ---
