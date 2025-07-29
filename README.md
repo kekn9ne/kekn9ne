@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
+_"If you believe you can, you can. If you believe you can't, then, well you can't. — *Celestine Chua*"_
 
 ---
