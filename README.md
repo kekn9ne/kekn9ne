@@ -7,6 +7,6 @@
 
 ---
 
-_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
