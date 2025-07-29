@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
+_"Nature does not hurry, yet everything is accomplished. — *Lao Tzu*"_
 
 ---
