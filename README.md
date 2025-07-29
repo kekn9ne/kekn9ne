@@ -7,6 +7,6 @@
 
 ---
 
-_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
+_"Kindness is a language which the deaf can hear and the blind can see. — *Mark Twain*"_
 
 ---
