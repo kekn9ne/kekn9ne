@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"Believe you can and you will be halfway there. — *Lolly Daskal*"_
 
 ---
