@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot change your destination overnight but you can change your direction overnight. — *Jim Rohn*"_
+_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
 
 ---
