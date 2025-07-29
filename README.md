@@ -7,6 +7,6 @@
 
 ---
 
-_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
+_"In the End, we will remember not the words of our enemies, but the silence of our friends. — *Martin Luther King, Jr.*"_
 
 ---
