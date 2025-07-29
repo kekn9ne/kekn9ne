@@ -7,6 +7,6 @@
 
 ---
 
-_"Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments. — *Ming-Dao Deng*"_
+_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
 
 ---
