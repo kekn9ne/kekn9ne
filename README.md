@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 29 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **ŞUT** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
+_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
 
 ---
