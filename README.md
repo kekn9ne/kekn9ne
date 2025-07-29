@@ -7,6 +7,6 @@
 
 ---
 
-_"The happiest people in the world are those who feel absolutely terrific about themselves. — *Brian Tracy*"_
+_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
 
 ---
