@@ -7,6 +7,6 @@
 
 ---
 
-_"Because a thing seems difficult for you, do not think it impossible. — *Marcus Aurelius*"_
+_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
 
 ---
