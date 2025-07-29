@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 29 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ömrüm** by *Motive* 🎶
 
 ---
 
-_"Waste not fresh tears over old griefs. — *Euripides*"_
+_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
 
 ---
