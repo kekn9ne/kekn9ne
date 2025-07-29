@@ -7,6 +7,6 @@
 
 ---
 
-_"A minute's success pays the failure of years. — *Robert Browning*"_
+_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
 
 ---
