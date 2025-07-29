@@ -7,6 +7,6 @@
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"Because a thing seems difficult for you, do not think it impossible. — *Marcus Aurelius*"_
 
 ---
