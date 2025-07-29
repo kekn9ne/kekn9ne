@@ -7,6 +7,6 @@
 
 ---
 
-_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
+_"The happiest people in the world are those who feel absolutely terrific about themselves. — *Brian Tracy*"_
 
 ---
