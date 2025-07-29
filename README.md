@@ -7,6 +7,6 @@
 
 ---
 
-_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
+_"Remember, hope is a good thing, maybe the best of things. — *Stephen King*"_
 
 ---
