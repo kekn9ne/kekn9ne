@@ -7,6 +7,6 @@
 
 ---
 
-_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
+_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
 
 ---
