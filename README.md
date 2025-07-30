@@ -7,6 +7,6 @@
 
 ---
 
-_"A successful man is one who can lay a firm foundation with the bricks others have thrown at him.   — *David Brinkley*"_
+_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
 
 ---
