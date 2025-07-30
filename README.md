@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
+_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
 
 ---
