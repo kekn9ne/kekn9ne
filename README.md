@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed.  — *Albert Einstein*"_
+_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
 
 ---
