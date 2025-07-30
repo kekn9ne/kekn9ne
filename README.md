@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is found in unlikely places. — *J.R.R. Tolkien*"_
+_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
 
 ---
