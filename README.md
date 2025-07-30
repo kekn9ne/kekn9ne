@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **7/24** by *Jeff Redd* 🎶
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"You can't tell big dreams to small minded people. — *Steve Harvey*"_
+_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
 
 ---
