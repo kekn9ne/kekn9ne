@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
+_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
 
 ---
