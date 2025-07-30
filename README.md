@@ -7,6 +7,6 @@
 
 ---
 
-_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
+_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
 
 ---
