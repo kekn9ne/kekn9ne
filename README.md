@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Notre Dame** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
+_"Courage is found in unlikely places. — *J.R.R. Tolkien*"_
 
 ---
