@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **HMDL** by *ERAY067* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
+_"Not why the addiction but why the pain. — *Gabor Mate*"_
 
 ---
