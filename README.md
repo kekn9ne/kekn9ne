@@ -7,6 +7,6 @@
 
 ---
 
-_"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting. — *Zig Ziglar*"_
+_"The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts. — *George Bernard Shaw*"_
 
 ---
