@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
