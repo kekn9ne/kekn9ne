@@ -7,6 +7,6 @@
 
 ---
 
-_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
+_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
 
 ---
