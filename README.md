@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **HMDL** by *ERAY067* 🎶
 
 ---
 
-_"Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place. — *Richard Bach*"_
+_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
 
 ---
