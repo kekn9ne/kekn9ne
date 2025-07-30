@@ -7,6 +7,6 @@
 
 ---
 
-_"Only when I fall do I get up again. — *Vincent van Gogh*"_
+_"I have never let my schooling interfere with my education. — *Mark Twain*"_
 
 ---
