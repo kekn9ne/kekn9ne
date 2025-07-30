@@ -7,6 +7,6 @@
 
 ---
 
-_"I believe that one of life's greatest risks is never daring to risk. — *Oprah Winfrey*"_
+_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
 
 ---
