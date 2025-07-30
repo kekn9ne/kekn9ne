@@ -7,6 +7,6 @@
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"If you think adventure is dangerous, try routine; it is lethal. — *Paulo Coelho*"_
 
 ---
