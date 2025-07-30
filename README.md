@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 31 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
 
 ---
 
-_"You can't get to a place that you don't believe exists. — *Unknown*"_
+_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
 
 ---
