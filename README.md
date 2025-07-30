@@ -7,6 +7,6 @@
 
 ---
 
-_"People become attached to their burdens sometimes more than the burdens are attached to them. — *George Bernard Shaw*"_
+_"There is peace even in the storm. — *Vincent van Gogh*"_
 
 ---
