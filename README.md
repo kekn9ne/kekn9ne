@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
+_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
 
 ---
