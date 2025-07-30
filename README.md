@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **7/24** by *Jeff Redd* 🎶
 
 ---
 
-_"Not why the addiction but why the pain. — *Gabor Mate*"_
+_"You can't tell big dreams to small minded people. — *Steve Harvey*"_
 
 ---
