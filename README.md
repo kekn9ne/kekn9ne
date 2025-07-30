@@ -7,6 +7,6 @@
 
 ---
 
-_"Study logic and math, because once you've mastered them, you won't fear any book. — *Naval Ravikant*"_
+_"You can't get to a place that you don't believe exists. — *Unknown*"_
 
 ---
