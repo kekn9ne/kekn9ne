@@ -7,6 +7,6 @@
 
 ---
 
-_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
+_"All men are equal before fish. — *Herbert Hoover*"_
 
 ---
