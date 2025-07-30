@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Notre Dame** by *Ceg* 🎶
 
 ---
 
-_"Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.  — *Paramahansa Yogananda*"_
+_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
 
 ---
