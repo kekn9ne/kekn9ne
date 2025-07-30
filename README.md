@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 31 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
+_"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting. — *Zig Ziglar*"_
 
 ---
