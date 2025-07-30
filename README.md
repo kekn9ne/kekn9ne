@@ -7,6 +7,6 @@
 
 ---
 
-_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
 
 ---
