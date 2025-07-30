@@ -7,6 +7,6 @@
 
 ---
 
-_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
+_"The best answer to anger is silence. — *Marcus Aurelius*"_
 
 ---
