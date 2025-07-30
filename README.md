@@ -7,6 +7,6 @@
 
 ---
 
-_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
+_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
 
 ---
