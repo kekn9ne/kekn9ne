@@ -7,6 +7,6 @@
 
 ---
 
-_"Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. — *Dale Carnegie*"_
+_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
 
 ---
