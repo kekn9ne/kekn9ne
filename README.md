@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
+_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
 
 ---
