@@ -7,6 +7,6 @@
 
 ---
 
-_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
+_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
 
 ---
