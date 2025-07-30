@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 30 July 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **16-24** by *Wegh* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To the world you may be one person; but to one person you may be the world. — *Dr. Seuss*"_
+_"Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. — *Dale Carnegie*"_
 
 ---
