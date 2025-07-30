@@ -7,6 +7,6 @@
 
 ---
 
-_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
+_"Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right. — *Albus Dumbledore*"_
 
 ---
