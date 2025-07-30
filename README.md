@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts. — *George Bernard Shaw*"_
+_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
 
 ---
