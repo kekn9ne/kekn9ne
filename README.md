@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
+_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
 
 ---
