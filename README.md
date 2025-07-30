@@ -7,6 +7,6 @@
 
 ---
 
-_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
+_"A successful man is one who can lay a firm foundation with the bricks others have thrown at him.   — *David Brinkley*"_
 
 ---
