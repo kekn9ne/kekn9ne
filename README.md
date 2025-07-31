@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 31 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Gece** by *Şanışer* 🎶
 
 ---
 
-_"The most important battle is one to conquer yourself. — *Yanni*"_
+_"The cost of leadership is self-interest. — *Simon Sinek*"_
 
 ---
