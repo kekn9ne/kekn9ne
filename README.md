@@ -7,6 +7,6 @@
 
 ---
 
-_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
+_"All human beings can alter their lives by altering their attitudes. — *Andrew Carnegie*"_
 
 ---
