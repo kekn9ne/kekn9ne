@@ -7,6 +7,6 @@
 
 ---
 
-_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
+_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
 
 ---
