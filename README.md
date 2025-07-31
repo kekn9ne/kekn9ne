@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
+_"What do we live for if not to make life less difficult for each other? — *T.S. Eliot*"_
 
 ---
