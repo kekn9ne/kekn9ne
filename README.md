@@ -7,6 +7,6 @@
 
 ---
 
-_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
+_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
 
 ---
