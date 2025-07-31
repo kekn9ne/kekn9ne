@@ -7,6 +7,6 @@
 
 ---
 
-_"To know even one life has breathed easier because you have lived. This is to have succeeded. — *Ralph Waldo Emerson*"_
+_"Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.  — *Franz Kafka*"_
 
 ---
