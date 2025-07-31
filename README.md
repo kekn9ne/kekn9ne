@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
+_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
 
 ---
