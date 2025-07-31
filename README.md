@@ -7,6 +7,6 @@
 
 ---
 
-_"The road to success and the road to failure are almost exactly the same. — *Colin R. Davis*"_
+_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
 
 ---
