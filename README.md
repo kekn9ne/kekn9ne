@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change. — *Mark Manson*"_
+_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
 
 ---
