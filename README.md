@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll get more from being a peacemaker than a warrior. — *Arnold Schwarzenegger*"_
+_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
 
 ---
