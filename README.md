@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 31 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **İSTEMEM!** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Behzat ç 2.0** by *lexian* 🎶
 
 ---
 
-_"A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided. — *Tony Robbins*"_
+_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
 
 ---
