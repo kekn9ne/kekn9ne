@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen. — *Winston Churchill*"_
+_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
 
 ---
