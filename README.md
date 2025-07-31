@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
+_"The most important battle is one to conquer yourself. — *Yanni*"_
 
 ---
