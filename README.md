@@ -7,6 +7,6 @@
 
 ---
 
-_"Never buy a thing you do not want, because it is cheap, it will be dear to you. — *Thomas Jefferson*"_
+_"The fact of the matter is that there will be nothing learned from any challenge in which we don't try our hardest. — *Josh Waitzkin*"_
 
 ---
