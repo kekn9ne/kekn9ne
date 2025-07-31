@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
+_"To know even one life has breathed easier because you have lived. This is to have succeeded. — *Ralph Waldo Emerson*"_
 
 ---
