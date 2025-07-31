@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
 
 ---
