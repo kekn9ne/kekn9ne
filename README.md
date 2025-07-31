@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is about creating value. — *Candice Carpenter*"_
+_"The more we value things, the less we value ourselves.   — *Bruce Lee*"_
 
 ---
