@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
+_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
 
 ---
