@@ -7,6 +7,6 @@
 
 ---
 
-_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
+_"Every blessing ignored becomes a curse. — *Paulo Coelho*"_
 
 ---
