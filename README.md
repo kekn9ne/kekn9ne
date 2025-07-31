@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
+_"You'll get more from being a peacemaker than a warrior. — *Arnold Schwarzenegger*"_
 
 ---
