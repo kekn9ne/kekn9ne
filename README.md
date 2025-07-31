@@ -7,6 +7,6 @@
 
 ---
 
-_"A good teacher opens the door for you, but you must enter the room by yourself. — *Zen Proverb*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
