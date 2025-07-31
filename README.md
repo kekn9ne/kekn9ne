@@ -7,6 +7,6 @@
 
 ---
 
-_"To be truly ignorant, be content with your own knowledge. — *Zhuangzi*"_
+_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
 
 ---
