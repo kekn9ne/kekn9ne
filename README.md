@@ -7,6 +7,6 @@
 
 ---
 
-_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
+_"A good teacher opens the door for you, but you must enter the room by yourself. — *Zen Proverb*"_
 
 ---
