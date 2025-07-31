@@ -7,6 +7,6 @@
 
 ---
 
-_"What most people need to learn in life is how to love people and use things instead of using people and loving things. — *Unknown*"_
+_"The road to success and the road to failure are almost exactly the same. — *Colin R. Davis*"_
 
 ---
