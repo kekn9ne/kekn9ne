@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
+_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
 
 ---
