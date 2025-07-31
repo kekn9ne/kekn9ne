@@ -7,6 +7,6 @@
 
 ---
 
-_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
+_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
 
 ---
