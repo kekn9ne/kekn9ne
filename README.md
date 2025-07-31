@@ -7,6 +7,6 @@
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"Don't bother people for help without first trying to solve the problem yourself. — *Colin Powell*"_
 
 ---
