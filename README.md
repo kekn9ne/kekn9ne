@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 31 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Gece** by *Şanışer* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The cost of leadership is self-interest. — *Simon Sinek*"_
+_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
 
 ---
