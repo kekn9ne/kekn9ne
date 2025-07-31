@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't bother people for help without first trying to solve the problem yourself. — *Colin Powell*"_
+_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
 
 ---
