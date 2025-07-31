@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
+_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
 
 ---
