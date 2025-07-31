@@ -7,6 +7,6 @@
 
 ---
 
-_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
