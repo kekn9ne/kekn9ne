@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 31 July 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İSTEMEM!** by *Lvbel C5* 🎶
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided. — *Tony Robbins*"_
 
 ---
