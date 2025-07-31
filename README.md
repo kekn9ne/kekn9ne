@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
+_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
 
 ---
