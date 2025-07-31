@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you meet is fighting a battle you know nothing about. Be kind. Always. — *Robin Williams*"_
+_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
 
 ---
