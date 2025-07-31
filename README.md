@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
 
 ---
 
-_"True knowledge exists in knowing that you know nothing. — *Socrates*"_
+_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
 
 ---
