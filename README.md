@@ -7,6 +7,6 @@
 
 ---
 
-_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
+_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
 
 ---
