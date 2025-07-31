@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for if not to make life less difficult for each other? — *T.S. Eliot*"_
+_"Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen. — *Winston Churchill*"_
 
 ---
