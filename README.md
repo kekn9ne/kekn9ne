@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"To lead the people, walk behind them. — *Lao Tzu*"_
 
 ---
