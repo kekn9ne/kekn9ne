@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead the people, walk behind them. — *Lao Tzu*"_
+_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
 
 ---
