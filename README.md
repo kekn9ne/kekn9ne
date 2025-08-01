@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window. — *Peter Drucker*"_
+_"No kind action ever stops with itself. One kind action leads to another. Good example is followed. — *Amelia Earhart*"_
 
 ---
