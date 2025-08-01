@@ -7,6 +7,6 @@
 
 ---
 
-_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
+_"Whoever is happy will make others happy too. — *Anne Frank*"_
 
 ---
