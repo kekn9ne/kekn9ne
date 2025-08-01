@@ -7,6 +7,6 @@
 
 ---
 
-_"When the time is gone, you can never get it back. — *Stephen King*"_
+_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
 
 ---
