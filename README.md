@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
 
 ---
 
-_"Circumstances rule men; men do not rule circumstances.  — *Herodotus*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
