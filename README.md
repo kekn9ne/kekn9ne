@@ -7,6 +7,6 @@
 
 ---
 
-_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
+_"Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. — *Arnold Schwarzenegger*"_
 
 ---
