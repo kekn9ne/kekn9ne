@@ -7,6 +7,6 @@
 
 ---
 
-_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
+_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
 
 ---
