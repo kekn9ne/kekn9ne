@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
+_"If you done it, it ain't bragging. — *Walt Whitman*"_
 
 ---
