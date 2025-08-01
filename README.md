@@ -7,6 +7,6 @@
 
 ---
 
-_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
+_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
 
 ---
