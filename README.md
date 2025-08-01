@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Ağla** by *ElMusto* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT. — *Deepak Chopra*"_
+_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
 
 ---
