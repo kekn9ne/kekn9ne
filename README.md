@@ -7,6 +7,6 @@
 
 ---
 
-_"I love fools' experiments. I am always making them. — *Charles Darwin*"_
+_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
 
 ---
