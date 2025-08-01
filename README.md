@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Whoever is happy will make others happy too. — *Anne Frank*"_
+_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
 
 ---
