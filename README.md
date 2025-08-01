@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
+_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
 
 ---
