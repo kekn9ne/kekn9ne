@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"A little impatience will spoil great plans. — *Chinese Proverb*"_
 
 ---
