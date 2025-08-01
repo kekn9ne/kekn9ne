@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
+_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
 
 ---
