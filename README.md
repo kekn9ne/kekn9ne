@@ -7,6 +7,6 @@
 
 ---
 
-_"If you done it, it ain't bragging. — *Walt Whitman*"_
+_"Better to live until you die. — *Dan Millman*"_
 
 ---
