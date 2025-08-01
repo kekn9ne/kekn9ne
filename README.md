@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
+_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
 
 ---
