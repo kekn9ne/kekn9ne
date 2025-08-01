@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
+_"I love fools' experiments. I am always making them. — *Charles Darwin*"_
 
 ---
