@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a poor teacher. — *Robert Kiyosaki*"_
+_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
 
 ---
