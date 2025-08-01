@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 02 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yanıbaşımdan** by *Duman* 🎶
 
 ---
 
-_"Peace begins with a smile. — *Mother Teresa*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
