@@ -7,6 +7,6 @@
 
 ---
 
-_"Where does a thought go when it's forgotten? — *Sigmund Freud*"_
+_"Where there is no struggle, there is no strength.  — *Oprah Winfrey*"_
 
 ---
