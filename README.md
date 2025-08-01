@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SPOTIFY ARTIST(FREESTYLE)** by *Era7capone* 🎶
 
 ---
 
-_"No kind action ever stops with itself. One kind action leads to another. Good example is followed. — *Amelia Earhart*"_
+_"Live as if you were to die tomorrow. Learn as if you were to live forever. — *Mahatma Gandhi*"_
 
 ---
