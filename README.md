@@ -7,6 +7,6 @@
 
 ---
 
-_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
+_"When the time is gone, you can never get it back. — *Stephen King*"_
 
 ---
