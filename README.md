@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
+_"A hopeless man is a very desperate and dangerous man, almost a dead man. — *Robert F. Kennedy*"_
 
 ---
