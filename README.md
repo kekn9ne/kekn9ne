@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"Confidence breeds beauty.   — *Estee Lauder*"_
 
 ---
