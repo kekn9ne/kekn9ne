@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
+_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
 
 ---
