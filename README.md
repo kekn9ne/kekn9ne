@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
