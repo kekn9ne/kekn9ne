@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there is no struggle, there is no strength.  — *Oprah Winfrey*"_
+_"Success is a poor teacher. — *Robert Kiyosaki*"_
 
 ---
