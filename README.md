@@ -7,6 +7,6 @@
 
 ---
 
-_"Time you enjoy wasting, was not wasted. — *John Lennon*"_
+_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
 
 ---
