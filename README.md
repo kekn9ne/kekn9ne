@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 01 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
+🎧 Currently Listening: **BANA GÖNDER!** by *Lvbel C5* 🎶
 
 ---
 
-_"The more you know, the more you know you don't know. — *Aristotle*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
