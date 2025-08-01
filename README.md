@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. — *Arnold Schwarzenegger*"_
+_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
 
 ---
