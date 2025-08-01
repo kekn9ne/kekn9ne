@@ -7,6 +7,6 @@
 
 ---
 
-_"A little impatience will spoil great plans. — *Chinese Proverb*"_
+_"Where does a thought go when it's forgotten? — *Sigmund Freud*"_
 
 ---
