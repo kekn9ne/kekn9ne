@@ -7,6 +7,6 @@
 
 ---
 
-_"Let the beauty of what you love be what you do. — *Rumi*"_
+_"Discipline is the mark of intelligent living. — *Sathya Sai Baba*"_
 
 ---
