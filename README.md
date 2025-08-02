@@ -7,6 +7,6 @@
 
 ---
 
-_"Find your Light; They can't love you if they can't see you. — *Bette Midler*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
