@@ -7,6 +7,6 @@
 
 ---
 
-_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
+_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
 
 ---
