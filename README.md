@@ -7,6 +7,6 @@
 
 ---
 
-_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
