@@ -7,6 +7,6 @@
 
 ---
 
-_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
+_"Act as if what you do makes a difference. It does. — *William James*"_
 
 ---
