@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 02 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bamba (feat. Aitch & BIA)** by *Luciano* 🎶
 
 ---
 
-_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
+_"A person is only by the thoughts that he chooses. — *James Allen*"_
 
 ---
