@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
 
 ---
