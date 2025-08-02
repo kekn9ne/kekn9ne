@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
 
 ---
