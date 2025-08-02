@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
+_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
 
 ---
