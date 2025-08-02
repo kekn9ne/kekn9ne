@@ -7,6 +7,6 @@
 
 ---
 
-_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
+_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
 
 ---
