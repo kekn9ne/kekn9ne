@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
+_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
 
 ---
