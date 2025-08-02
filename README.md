@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in yourself! Have faith in your abilities! Without a humble but reasonable confidence in your own powers you cannot be successful or happy. — *Norman Vincent Peale*"_
+_"Find your Light; They can't love you if they can't see you. — *Bette Midler*"_
 
 ---
