@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who will risk going too far can possibly find out how far one can go. — *T.S. Eliot*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
