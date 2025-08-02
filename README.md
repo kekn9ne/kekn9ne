@@ -7,6 +7,6 @@
 
 ---
 
-_"Words have no power to impress the mind without the exquisite horror of their reality. — *Edgar Allan Poe*"_
+_"A friend to all is a friend to none. — *Aristotle*"_
 
 ---
