@@ -7,6 +7,6 @@
 
 ---
 
-_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
+_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
 
 ---
