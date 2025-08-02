@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
+_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
 
 ---
