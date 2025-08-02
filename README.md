@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
