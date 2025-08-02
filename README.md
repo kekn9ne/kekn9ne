@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your outlook on life that counts. — *Betty White*"_
+_"Let the beauty of what you love be what you do. — *Rumi*"_
 
 ---
