@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
+_"It's your outlook on life that counts. — *Betty White*"_
 
 ---
