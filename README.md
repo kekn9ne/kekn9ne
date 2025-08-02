@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 02 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Ride on Me** by *YB Y.9thstreet* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you aim at nothing, you will hit it every time.   — *Zig Ziglar*"_
+_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
 
 ---
