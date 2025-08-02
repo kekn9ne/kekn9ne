@@ -7,6 +7,6 @@
 
 ---
 
-_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
