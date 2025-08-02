@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage Is a Love Affair with the Unknown — *Osho*"_
+_"What is planted in each person's soul will sprout.   — *Rumi*"_
 
 ---
