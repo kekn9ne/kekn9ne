@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 02 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +26°C**  
+🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is difficult to free fools from the chains they revere.  — *Voltaire*"_
+_"The man who does not value himself, cannot value anything or anyone. — *Ayn Rand*"_
 
 ---
