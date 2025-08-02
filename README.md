@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you open your heart to others, the more your heart suffers. — *Deepak Chopra*"_
+_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
 
 ---
