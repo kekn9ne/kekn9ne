@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
