@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be one person in this world, but to one person you may mean the world. — *Unknown*"_
+_"What kills the creative force is not age or lack of talent, but our own spirit, our own attitude. — *Robert Greene*"_
 
 ---
