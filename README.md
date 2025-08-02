@@ -7,6 +7,6 @@
 
 ---
 
-_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
+_"Reading should be a pleasure, not a chore. — *Joan Rivers*"_
 
 ---
