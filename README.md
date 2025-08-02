@@ -7,6 +7,6 @@
 
 ---
 
-_"What is planted in each person's soul will sprout.   — *Rumi*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
