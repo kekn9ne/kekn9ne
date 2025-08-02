@@ -7,6 +7,6 @@
 
 ---
 
-_"Every drop in the ocean counts.  — *Yoko Ono*"_
+_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
 
 ---
