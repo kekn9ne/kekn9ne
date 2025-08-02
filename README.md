@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
+_"Respect was invented to cover the empty place where love should be. — *Leo Tolstoy*"_
 
 ---
