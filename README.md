@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 02 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Bamba (feat. Aitch & BIA)** by *Luciano* 🎶
+🎧 Currently Listening: **Ride on Me** by *YB Y.9thstreet* 🎶
 
 ---
 
-_"A person is only by the thoughts that he chooses. — *James Allen*"_
+_"If you aim at nothing, you will hit it every time.   — *Zig Ziglar*"_
 
 ---
