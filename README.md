@@ -7,6 +7,6 @@
 
 ---
 
-_"The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence. — *Josh Waitzkin*"_
+_"Courage Is a Love Affair with the Unknown — *Osho*"_
 
 ---
