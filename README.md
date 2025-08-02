@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
+_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
 
 ---
