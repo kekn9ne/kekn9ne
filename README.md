@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. — *Jon Kabat-Zinn*"_
+_"The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence. — *Josh Waitzkin*"_
 
 ---
