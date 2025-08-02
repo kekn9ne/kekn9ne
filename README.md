@@ -7,6 +7,6 @@
 
 ---
 
-_"You will not do incredible things without an incredible dream. — *John Eliot*"_
+_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
 
 ---
