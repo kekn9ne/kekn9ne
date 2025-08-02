@@ -7,6 +7,6 @@
 
 ---
 
-_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
