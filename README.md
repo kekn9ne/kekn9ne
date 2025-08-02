@@ -7,6 +7,6 @@
 
 ---
 
-_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
