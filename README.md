@@ -7,6 +7,6 @@
 
 ---
 
-_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
+_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
 
 ---
