@@ -7,6 +7,6 @@
 
 ---
 
-_"What kills the creative force is not age or lack of talent, but our own spirit, our own attitude. — *Robert Greene*"_
+_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
 
 ---
