@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 02 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **SUVs** by *Luciano* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Even when a friend does something you do not like, he continues to be your friend.  — *Genghis Khan*"_
+_"Be willing to be a beginner every single morning. — *Meister Eckhart*"_
 
 ---
