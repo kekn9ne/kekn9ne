@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 02 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
 
 ---
 
-_"Reading should be a pleasure, not a chore. — *Joan Rivers*"_
+_"It is difficult to free fools from the chains they revere.  — *Voltaire*"_
 
 ---
