@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
+_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
 
 ---
