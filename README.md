@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 03 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +31°C**  
+🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The whole is greater than the sum of its parts. — *Aristotle*"_
+_"The quality, not the longevity, of one's life is what is important. — *Martin Luther King, Jr.*"_
 
 ---
