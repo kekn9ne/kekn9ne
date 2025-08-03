@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"Champions keep playing until they get it right. — *Billie Jean King*"_
 
 ---
