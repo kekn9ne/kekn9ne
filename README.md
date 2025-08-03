@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
+_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
 
 ---
