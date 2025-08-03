@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
+_"Nothing you do is going to matter that much in the long run. Don't take yourself so seriously. — *Naval Ravikant*"_
 
 ---
