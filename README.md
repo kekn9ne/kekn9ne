@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it! — *Sathya Sai Baba*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
