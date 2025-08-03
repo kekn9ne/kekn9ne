@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
+_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
 
 ---
