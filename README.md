@@ -7,6 +7,6 @@
 
 ---
 
-_"Champions keep playing until they get it right. — *Billie Jean King*"_
+_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
 
 ---
