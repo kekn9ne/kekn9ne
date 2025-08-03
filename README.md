@@ -7,6 +7,6 @@
 
 ---
 
-_"Often in the real world, it's not the smart that get ahead, but the bold. — *Robert Kiyosaki*"_
+_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
 
 ---
