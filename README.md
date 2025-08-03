@@ -7,6 +7,6 @@
 
 ---
 
-_"The decisions of our past are the architects of our present. — *Dan Brown*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
