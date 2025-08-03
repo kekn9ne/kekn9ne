@@ -7,6 +7,6 @@
 
 ---
 
-_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
+_"Supreme excellence consists of breaking the enemy's resistance without fighting. — *Sun Tzu*"_
 
 ---
