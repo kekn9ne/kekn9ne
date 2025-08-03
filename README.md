@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone wants to go to Heaven, but no one wants to die. — *Robert Kiyosaki*"_
+_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
 
 ---
