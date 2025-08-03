@@ -7,6 +7,6 @@
 
 ---
 
-_"Supreme excellence consists of breaking the enemy's resistance without fighting. — *Sun Tzu*"_
+_"The whole is greater than the sum of its parts. — *Aristotle*"_
 
 ---
