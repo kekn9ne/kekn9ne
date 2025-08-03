@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
+_"Everyone wants to go to Heaven, but no one wants to die. — *Robert Kiyosaki*"_
 
 ---
