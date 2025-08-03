@@ -7,6 +7,6 @@
 
 ---
 
-_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
+_"Conquer the devils with a little thing called love. — *Bob Marley*"_
 
 ---
