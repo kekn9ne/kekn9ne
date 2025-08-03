@@ -7,6 +7,6 @@
 
 ---
 
-_"A friend to all is a friend to none. — *Aristotle*"_
+_"Life goes by fast. Enjoy it. Calm down. It's all funny. — *Joan Rivers*"_
 
 ---
