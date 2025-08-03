@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 03 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **SUVs** by *Luciano* 🎶
+🎧 Currently Listening: **Yağsın Dünya Üstüme** by *Wegh* 🎶
 
 ---
 
-_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
+_"Far and away the best prize that life has to offer is the chance to work hard at work worth doing. — *Theodore Roosevelt*"_
 
 ---
