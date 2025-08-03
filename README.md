@@ -7,6 +7,6 @@
 
 ---
 
-_"A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided. — *Tony Robbins*"_
+_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
 
 ---
