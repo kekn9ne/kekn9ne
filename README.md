@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
+_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
 
 ---
