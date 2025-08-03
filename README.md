@@ -7,6 +7,6 @@
 
 ---
 
-_"Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry. — *Celestine Chua*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
