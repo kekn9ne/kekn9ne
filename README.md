@@ -7,6 +7,6 @@
 
 ---
 
-_"Life goes by fast. Enjoy it. Calm down. It's all funny. — *Joan Rivers*"_
+_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
 
 ---
