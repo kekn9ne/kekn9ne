@@ -7,6 +7,6 @@
 
 ---
 
-_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
+_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
 
 ---
