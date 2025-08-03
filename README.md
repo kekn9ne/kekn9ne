@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no greater agony than bearing an untold story inside you. — *Maya Angelou*"_
+_"A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided. — *Tony Robbins*"_
 
 ---
