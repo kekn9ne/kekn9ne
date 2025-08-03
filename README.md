@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
+_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
 
 ---
