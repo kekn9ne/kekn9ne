@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
+_"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.  — *St. Jerome*"_
 
 ---
