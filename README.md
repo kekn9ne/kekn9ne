@@ -7,6 +7,6 @@
 
 ---
 
-_"Wit is educated insolence. — *Aristotle*"_
+_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
 
 ---
