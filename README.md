@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
+_"Make your life a mission - not an intermission. — *Unknown*"_
 
 ---
