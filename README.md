@@ -7,6 +7,6 @@
 
 ---
 
-_"Conquer the devils with a little thing called love. — *Bob Marley*"_
+_"Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry. — *Celestine Chua*"_
 
 ---
