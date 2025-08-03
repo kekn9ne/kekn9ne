@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
