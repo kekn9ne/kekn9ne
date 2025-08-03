@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your life a mission - not an intermission. — *Unknown*"_
+_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
 
 ---
