@@ -7,6 +7,6 @@
 
 ---
 
-_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
+_"If you want to keep your memories, you first have to live them. — *Bob Dylan*"_
 
 ---
