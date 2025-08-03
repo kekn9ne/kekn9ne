@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to keep your memories, you first have to live them. — *Bob Dylan*"_
+_"I admire those who do good and expect nothing in return. — *Roy T. Bennett*"_
 
 ---
