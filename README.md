@@ -7,6 +7,6 @@
 
 ---
 
-_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.  — *Henry Ford*"_
+_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
 
 ---
