@@ -7,6 +7,6 @@
 
 ---
 
-_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
+_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.  — *Henry Ford*"_
 
 ---
