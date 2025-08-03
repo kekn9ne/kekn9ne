@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing you do is going to matter that much in the long run. Don't take yourself so seriously. — *Naval Ravikant*"_
+_"If you do not tell the truth about yourself you cannot tell it about other people. — *Virginia Woolf*"_
 
 ---
