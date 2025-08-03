@@ -7,6 +7,6 @@
 
 ---
 
-_"To earn more you must learn more. — *Brian Tracy*"_
+_"The purpose of life is the life of purpose. — *Robin Sharma*"_
 
 ---
