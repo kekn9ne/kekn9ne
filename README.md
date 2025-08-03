@@ -7,6 +7,6 @@
 
 ---
 
-_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
+_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
 
 ---
