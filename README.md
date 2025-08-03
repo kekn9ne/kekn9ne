@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality, not the longevity, of one's life is what is important. — *Martin Luther King, Jr.*"_
+_"To earn more you must learn more. — *Brian Tracy*"_
 
 ---
