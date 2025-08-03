@@ -7,6 +7,6 @@
 
 ---
 
-_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
+_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
 
 ---
