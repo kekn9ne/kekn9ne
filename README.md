@@ -7,6 +7,6 @@
 
 ---
 
-_"I admire those who do good and expect nothing in return. — *Roy T. Bennett*"_
+_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
 
 ---
