@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
 
 ---
