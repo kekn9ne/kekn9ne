@@ -7,6 +7,6 @@
 
 ---
 
-_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
+_"The truly rich men are the ones who have health, loved ones and a work they love. — *Maxime Lagace*"_
 
 ---
