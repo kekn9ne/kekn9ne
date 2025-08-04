@@ -7,6 +7,6 @@
 
 ---
 
-_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
+_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
 
 ---
