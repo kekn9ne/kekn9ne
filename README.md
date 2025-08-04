@@ -7,6 +7,6 @@
 
 ---
 
-_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
+_"The big thing is to make a winning effort. I'm not obsessed with wins. — *Morgan Wootten*"_
 
 ---
