@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 04 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Body (Remix) [feat. ArrDee, E1 (3x3), ZT (3x3), Bugzy Malone, Buni, Fivio Foreign & Darkoo]** by *Tion Wayne* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
+_"Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right. — *Albus Dumbledore*"_
 
 ---
