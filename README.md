@@ -7,6 +7,6 @@
 
 ---
 
-_"The trouble with the rat race is that even if you win, you're still a rat. — *Lily Tomlin*"_
+_"We are all here for some special reason. — *Robin Sharma*"_
 
 ---
