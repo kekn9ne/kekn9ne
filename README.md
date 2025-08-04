@@ -7,6 +7,6 @@
 
 ---
 
-_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
+_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
 
 ---
