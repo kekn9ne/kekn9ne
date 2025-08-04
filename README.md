@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 04 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Mektup** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The only defense against the world is a thorough knowledge of it. — *John Locke*"_
+_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
 
 ---
