@@ -7,6 +7,6 @@
 
 ---
 
-_"The truly rich men are the ones who have health, loved ones and a work they love. — *Maxime Lagace*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
