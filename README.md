@@ -7,6 +7,6 @@
 
 ---
 
-_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
+_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
 
 ---
