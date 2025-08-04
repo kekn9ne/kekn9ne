@@ -7,6 +7,6 @@
 
 ---
 
-_"Always turn a negative situation into a positive situation. — *Michael Jordan*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
