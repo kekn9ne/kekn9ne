@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"Hope is a waking dream. — *Aristotle*"_
 
 ---
