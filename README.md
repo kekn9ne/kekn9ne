@@ -7,6 +7,6 @@
 
 ---
 
-_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
+_"Without the rain there would be no rainbow. — *Gilbert Chesterton*"_
 
 ---
