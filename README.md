@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to success is to focus our conscious mind on things we desire not things we fear.  — *Brian Tracy*"_
+_"Always turn a negative situation into a positive situation. — *Michael Jordan*"_
 
 ---
