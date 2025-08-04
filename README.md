@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
