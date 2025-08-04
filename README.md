@@ -7,6 +7,6 @@
 
 ---
 
-_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
+_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
 
 ---
