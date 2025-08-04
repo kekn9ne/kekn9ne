@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 04 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mektup** by *Motive* 🎶
 
 ---
 
-_"The more you know, the more you know you don't know. — *Aristotle*"_
+_"The only defense against the world is a thorough knowledge of it. — *John Locke*"_
 
 ---
