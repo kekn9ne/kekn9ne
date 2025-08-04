@@ -7,6 +7,6 @@
 
 ---
 
-_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
+_"There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will. — *Epictetus*"_
 
 ---
