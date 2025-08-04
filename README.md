@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
+_"You have the ability, now apply yourself. — *Benjamin Mays*"_
 
 ---
