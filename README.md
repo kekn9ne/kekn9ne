@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen Hawking*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
