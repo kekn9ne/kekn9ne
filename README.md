@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
 
 ---
