@@ -7,6 +7,6 @@
 
 ---
 
-_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
+_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
 
 ---
