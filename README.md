@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
+_"Do not think you will necessarily be aware of your own enlightenment. — *Dogen*"_
 
 ---
