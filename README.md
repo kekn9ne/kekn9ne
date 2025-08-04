@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
+_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
 
 ---
