@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
