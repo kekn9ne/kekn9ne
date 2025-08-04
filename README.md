@@ -7,6 +7,6 @@
 
 ---
 
-_"When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there. — *Zig Ziglar*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
