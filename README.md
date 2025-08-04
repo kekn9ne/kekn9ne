@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
 
 ---
