@@ -7,6 +7,6 @@
 
 ---
 
-_"A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided. — *Tony Robbins*"_
+_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
 
 ---
