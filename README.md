@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 04 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +24°C**  
+🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
+_"The trouble with the rat race is that even if you win, you're still a rat. — *Lily Tomlin*"_
 
 ---
