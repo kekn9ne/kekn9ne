@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you respond to negative people, the more positive your life will become. — *Paulo Coelho*"_
+_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
 
 ---
