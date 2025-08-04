@@ -7,6 +7,6 @@
 
 ---
 
-_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
+_"The less you respond to negative people, the more positive your life will become. — *Paulo Coelho*"_
 
 ---
