@@ -7,6 +7,6 @@
 
 ---
 
-_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
+_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
 
 ---
