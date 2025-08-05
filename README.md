@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
 
 ---
