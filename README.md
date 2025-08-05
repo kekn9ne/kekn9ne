@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
+_"We're responsible for everything that happens to us. — *Yanni*"_
 
 ---
