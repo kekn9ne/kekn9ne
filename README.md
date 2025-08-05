@@ -7,6 +7,6 @@
 
 ---
 
-_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
+_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
 
 ---
