@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
+_"I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in. — *Virginia Woolf*"_
 
 ---
