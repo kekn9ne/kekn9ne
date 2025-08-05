@@ -7,6 +7,6 @@
 
 ---
 
-_"To find yourself, think for yourself. — *Socrates*"_
+_"Show up even when you don't want to show up. — *Steve Harvey*"_
 
 ---
