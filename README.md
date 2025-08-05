@@ -7,6 +7,6 @@
 
 ---
 
-_"We're responsible for everything that happens to us. — *Yanni*"_
+_"To be truly ignorant, be content with your own knowledge. — *Zhuangzi*"_
 
 ---
