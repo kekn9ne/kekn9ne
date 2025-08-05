@@ -7,6 +7,6 @@
 
 ---
 
-_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
+_"Every great change is preceded by chaos. — *Deepak Chopra*"_
 
 ---
