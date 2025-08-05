@@ -7,6 +7,6 @@
 
 ---
 
-_"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live. — *Nicolas Chamfort*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
