@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 05 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The best time to plant a tree was 20 years ago. The second best time is now. — *Zen Proverb*"_
+_"When you stop questioning, you stop learning. — *Lolly Daskal*"_
 
 ---
