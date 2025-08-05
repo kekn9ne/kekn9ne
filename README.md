@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 05 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
+🎧 Currently Listening: **BOYNA GALAVA** by *Batuflex* 🎶
 
 ---
 
-_"You are today where your thoughts have brought you. — *James Allen*"_
+_"Anyone who has ever made anything of importance was disciplined. — *Andrew Hendrixson*"_
 
 ---
