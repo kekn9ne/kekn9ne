@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 06 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Uçurtma** by *Taladro* 🎶
 
 ---
 
-_"To be truly ignorant, be content with your own knowledge. — *Zhuangzi*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
