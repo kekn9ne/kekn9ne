@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
+_"If you can't feed a hundred people, then feed just one. — *Mother Teresa*"_
 
 ---
