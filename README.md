@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 05 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Treacherous Twins** by *Drake* 🎶
+🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
 
 ---
 
-_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
+_"You are today where your thoughts have brought you. — *James Allen*"_
 
 ---
