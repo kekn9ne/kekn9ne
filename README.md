@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — *John Lennon*"_
+_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
 
 ---
