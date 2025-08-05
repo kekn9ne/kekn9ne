@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
+_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
 
 ---
