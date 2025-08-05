@@ -7,6 +7,6 @@
 
 ---
 
-_"I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in. — *Virginia Woolf*"_
+_"He who hesitates is a damned fool. — *Mae West*"_
 
 ---
