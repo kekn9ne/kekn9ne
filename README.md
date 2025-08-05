@@ -7,6 +7,6 @@
 
 ---
 
-_"If your happiness depends on what somebody else does, I guess you do have a problem. — *Richard Bach*"_
+_"Every artist dips his brush in his own soul, and paints his own nature into his pictures. — *Henry Ward Beecher*"_
 
 ---
