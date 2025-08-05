@@ -7,6 +7,6 @@
 
 ---
 
-_"Where the willingness is great, the difficulties cannot be great. — *Niccolo Machiavelli*"_
+_"Know your gifts and share them. — *Les Brown*"_
 
 ---
