@@ -7,6 +7,6 @@
 
 ---
 
-_"When you stop questioning, you stop learning. — *Lolly Daskal*"_
+_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
 
 ---
