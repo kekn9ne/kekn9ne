@@ -7,6 +7,6 @@
 
 ---
 
-_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
+_"You will succeed because most people are lazy. — *Shahir Zag*"_
 
 ---
