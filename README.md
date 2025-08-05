@@ -7,6 +7,6 @@
 
 ---
 
-_"The problem happens when we have multiple desires. When we have fuzzy desires. When we want to do ten different things and we're not clear about which is the one we care about. — *Naval Ravikant*"_
+_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
 
 ---
