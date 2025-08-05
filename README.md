@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 05 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **HUHU!** by *Batuflex* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"I cannot make my days longer so I strive to make them better. — *Henry David Thoreau*"_
+_"The best time to plant a tree was 20 years ago. The second best time is now. — *Zen Proverb*"_
 
 ---
