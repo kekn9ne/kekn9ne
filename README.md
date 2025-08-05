@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"Where the willingness is great, the difficulties cannot be great. — *Niccolo Machiavelli*"_
 
 ---
