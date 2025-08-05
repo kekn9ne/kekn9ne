@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what you feel in your heart to be right - for you'll be criticized anyway. — *Eleanor Roosevelt*"_
+_"Do every act of your life as if it were your last. — *Marcus Aurelius*"_
 
 ---
