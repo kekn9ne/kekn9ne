@@ -7,6 +7,6 @@
 
 ---
 
-_"He who hesitates is a damned fool. — *Mae West*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
