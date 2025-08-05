@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 05 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Treacherous Twins** by *Drake* 🎶
 
 ---
 
-_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
+_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
 
 ---
