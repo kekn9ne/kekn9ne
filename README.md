@@ -7,6 +7,6 @@
 
 ---
 
-_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
+_"In the practice of tolerance, one's enemy is the best teacher. — *Dalai Lama*"_
 
 ---
