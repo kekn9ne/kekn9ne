@@ -7,6 +7,6 @@
 
 ---
 
-_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
+_"Make peace within, and there will be no one who can overcome you. And no one you will wish to overcome. — *Dan Millman*"_
 
 ---
