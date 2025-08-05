@@ -7,6 +7,6 @@
 
 ---
 
-_"Know your gifts and share them. — *Les Brown*"_
+_"The mind is the limit. — *Arnold Schwarzenegger*"_
 
 ---
