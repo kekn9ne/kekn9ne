@@ -7,6 +7,6 @@
 
 ---
 
-_"Show up even when you don't want to show up. — *Steve Harvey*"_
+_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
 
 ---
