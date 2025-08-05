@@ -7,6 +7,6 @@
 
 ---
 
-_"New beginnings are disguised as painful endings. — *Lao Tzu*"_
+_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
 
 ---
