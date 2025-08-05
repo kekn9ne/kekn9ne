@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 05 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every day may not be good, but there's something good in every day. — *Unknown*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
