@@ -7,6 +7,6 @@
 
 ---
 
-_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
+_"New beginnings are disguised as painful endings. — *Lao Tzu*"_
 
 ---
