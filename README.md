@@ -7,6 +7,6 @@
 
 ---
 
-_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
+_"Every day may not be good, but there's something good in every day. — *Unknown*"_
 
 ---
