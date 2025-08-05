@@ -7,6 +7,6 @@
 
 ---
 
-_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
+_"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live. — *Nicolas Chamfort*"_
 
 ---
