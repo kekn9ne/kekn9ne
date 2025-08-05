@@ -7,6 +7,6 @@
 
 ---
 
-_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
+_"It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — *John Lennon*"_
 
 ---
