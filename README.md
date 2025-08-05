@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
+_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
 
 ---
