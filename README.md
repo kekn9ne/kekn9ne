@@ -7,6 +7,6 @@
 
 ---
 
-_"The mind is the limit. — *Arnold Schwarzenegger*"_
+_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
 
 ---
