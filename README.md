@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in changing that we find purpose. — *Heraclitus*"_
+_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
 
 ---
