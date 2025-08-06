@@ -7,6 +7,6 @@
 
 ---
 
-_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
+_"You can live a whole life time never being awake. — *Dan Millman*"_
 
 ---
