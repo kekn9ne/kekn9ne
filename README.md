@@ -7,6 +7,6 @@
 
 ---
 
-_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
+_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
 
 ---
