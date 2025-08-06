@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
+_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
 
 ---
