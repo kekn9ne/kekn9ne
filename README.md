@@ -7,6 +7,6 @@
 
 ---
 
-_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
+_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
 
 ---
