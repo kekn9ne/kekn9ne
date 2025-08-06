@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your commitments will determine the course of your life. — *Ralph Marston*"_
+_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
 
 ---
