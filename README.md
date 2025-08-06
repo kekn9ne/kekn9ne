@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
+_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
 
 ---
