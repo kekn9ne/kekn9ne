@@ -7,6 +7,6 @@
 
 ---
 
-_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
+_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
 
 ---
