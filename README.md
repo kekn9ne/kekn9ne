@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is only real, when shared. — *Christopher McCandless*"_
+_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
 
 ---
