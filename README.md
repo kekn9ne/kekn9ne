@@ -7,6 +7,6 @@
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"All has not been said and never will be. — *Samuel Beckett*"_
 
 ---
