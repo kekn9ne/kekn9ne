@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
+_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
 
 ---
