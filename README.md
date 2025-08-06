@@ -7,6 +7,6 @@
 
 ---
 
-_"Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments. — *Ming-Dao Deng*"_
+_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
 
 ---
