@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
