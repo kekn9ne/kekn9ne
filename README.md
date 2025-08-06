@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 06 August 2025**  
+🗓️ Today is: **Thursday, 07 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mayın Tarlası** by *Şebnem Ferah* 🎶
 
 ---
 
-_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
+_"Reversing your treatment of the man you have wronged is better than asking his forgiveness. — *Elbert Hubbard*"_
 
 ---
