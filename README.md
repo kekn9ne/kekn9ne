@@ -7,6 +7,6 @@
 
 ---
 
-_"We are shaped and fashioned by what we love. — *Johann Wolfgang von Goethe*"_
+_"Gratitude is the fairest blossom which springs from the soul. — *Henry Ward Beecher*"_
 
 ---
