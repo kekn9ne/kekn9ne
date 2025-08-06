@@ -7,6 +7,6 @@
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"Happiness is only real, when shared. — *Christopher McCandless*"_
 
 ---
