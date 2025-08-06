@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
+_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
 
 ---
