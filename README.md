@@ -7,6 +7,6 @@
 
 ---
 
-_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
+_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
 
 ---
