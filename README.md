@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
+_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
 
 ---
