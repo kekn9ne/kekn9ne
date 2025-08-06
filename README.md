@@ -7,6 +7,6 @@
 
 ---
 
-_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
+_"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot. — *Wayne Gretzky*"_
 
 ---
