@@ -7,6 +7,6 @@
 
 ---
 
-_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
+_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
 
 ---
