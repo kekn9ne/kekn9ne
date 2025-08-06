@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
+_"Hold yourself responsible for a higher standard than anybody else expects of you. — *Henry Ward Beecher*"_
 
 ---
