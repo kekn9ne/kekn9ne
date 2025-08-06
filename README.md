@@ -7,6 +7,6 @@
 
 ---
 
-_"Hold yourself responsible for a higher standard than anybody else expects of you. — *Henry Ward Beecher*"_
+_"Every traveler has a home of his own, and he learns to appreciate it the more from his wandering. — *Charles Dickens*"_
 
 ---
