@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 07 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Mayın Tarlası** by *Şebnem Ferah* 🎶
+🎧 Currently Listening: **Yalan** by *Ceren Sagu* 🎶
 
 ---
 
-_"Reversing your treatment of the man you have wronged is better than asking his forgiveness. — *Elbert Hubbard*"_
+_"Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. — *Zen Proverb*"_
 
 ---
