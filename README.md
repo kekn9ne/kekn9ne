@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 06 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Yabancı** by *Sıla* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
 
 ---
