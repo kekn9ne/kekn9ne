@@ -7,6 +7,6 @@
 
 ---
 
-_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
+_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
 
 ---
