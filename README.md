@@ -7,6 +7,6 @@
 
 ---
 
-_"Make peace with your inner turmoil. — *Unknown*"_
+_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
 
 ---
