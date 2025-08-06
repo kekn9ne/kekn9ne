@@ -7,6 +7,6 @@
 
 ---
 
-_"You can live a whole life time never being awake. — *Dan Millman*"_
+_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
 
 ---
