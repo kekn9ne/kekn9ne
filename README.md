@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
+_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
 
 ---
