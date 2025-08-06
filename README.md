@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you. — *Criss Jami*"_
+_"If you want something you've never had you must be willing to do something you've never done. — *Thomas Jefferson*"_
 
 ---
