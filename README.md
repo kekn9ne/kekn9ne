@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
