@@ -7,6 +7,6 @@
 
 ---
 
-_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
+_"It is in changing that we find purpose. — *Heraclitus*"_
 
 ---
