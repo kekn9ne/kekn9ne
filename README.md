@@ -7,6 +7,6 @@
 
 ---
 
-_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
+_"Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments. — *Ming-Dao Deng*"_
 
 ---
