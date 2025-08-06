@@ -7,6 +7,6 @@
 
 ---
 
-_"Gratitude is the fairest blossom which springs from the soul. — *Henry Ward Beecher*"_
+_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
 
 ---
