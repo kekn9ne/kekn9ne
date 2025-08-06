@@ -7,6 +7,6 @@
 
 ---
 
-_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
+_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
 
 ---
