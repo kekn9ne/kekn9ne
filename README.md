@@ -7,6 +7,6 @@
 
 ---
 
-_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
+_"The quality of your commitments will determine the course of your life. — *Ralph Marston*"_
 
 ---
