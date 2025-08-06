@@ -7,6 +7,6 @@
 
 ---
 
-_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
+_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
 
 ---
