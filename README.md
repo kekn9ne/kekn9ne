@@ -7,6 +7,6 @@
 
 ---
 
-_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
+_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
 
 ---
