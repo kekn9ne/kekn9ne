@@ -7,6 +7,6 @@
 
 ---
 
-_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
+_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
 
 ---
