@@ -7,6 +7,6 @@
 
 ---
 
-_"All has not been said and never will be. — *Samuel Beckett*"_
+_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
 
 ---
