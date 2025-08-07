@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 07 August 2025**  
 🌤️ Weather in Istanbul: **🌦   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"Even a hare will bite when it is cornered.  — *Chinese Proverb*"_
 
 ---
