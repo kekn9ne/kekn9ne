@@ -7,6 +7,6 @@
 
 ---
 
-_"Honesty is the first chapter in the book of wisdom. — *Thomas Jefferson*"_
+_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
 
 ---
