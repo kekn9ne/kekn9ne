@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 08 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Kanıtlandık** by *Aksan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Would you rather live your life according to the approval of others or aligned with your truth and your dreams? — *Robin Sharma*"_
+_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
 
 ---
