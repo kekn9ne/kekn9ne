@@ -7,6 +7,6 @@
 
 ---
 
-_"Getting over a painful experience is much like crossing monkey bars. You have to let go at some point in order to move forward. — *Unknown*"_
+_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
 
 ---
