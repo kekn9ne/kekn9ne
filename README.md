@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
+_"Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — *Morihei Ueshiba*"_
 
 ---
