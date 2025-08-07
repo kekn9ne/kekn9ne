@@ -7,6 +7,6 @@
 
 ---
 
-_"You may delay, but time will not. — *Benjamin Franklin*"_
+_"Champions keep playing until they get it right. — *Billie Jean King*"_
 
 ---
