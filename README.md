@@ -7,6 +7,6 @@
 
 ---
 
-_"What loneliness is more lonely than distrust? — *George Eliot*"_
+_"Work is always an antidote to depression. — *Eleanor Roosevelt*"_
 
 ---
