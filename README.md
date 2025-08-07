@@ -7,6 +7,6 @@
 
 ---
 
-_"Our life isn't how much we can take out, but how much we can put in.   — *Estee Lauder*"_
+_"All life is a manifestation of the spirit, the manifestation of love. — *Morihei Ueshiba*"_
 
 ---
