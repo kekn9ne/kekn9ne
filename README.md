@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
