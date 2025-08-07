@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
+_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
 
 ---
