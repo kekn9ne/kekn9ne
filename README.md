@@ -7,6 +7,6 @@
 
 ---
 
-_"What have you done today to make someone else happy? — *Deepam Chaterjee*"_
+_"Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy. — *Ralph Marston*"_
 
 ---
