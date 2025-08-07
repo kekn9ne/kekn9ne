@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 07 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To be prepared is half the victory.  — *Miguel de Cervantes*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
