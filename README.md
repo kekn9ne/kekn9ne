@@ -7,6 +7,6 @@
 
 ---
 
-_"Conquer the devils with a little thing called love. — *Bob Marley*"_
+_"To be totally at leisure for one day is to be immortal for one day.  — *Chinese Proverb*"_
 
 ---
