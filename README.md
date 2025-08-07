@@ -7,6 +7,6 @@
 
 ---
 
-_"Work is always an antidote to depression. — *Eleanor Roosevelt*"_
+_"Learn from the rejection and turn it into an opportunity! — *Mary Engelbreit*"_
 
 ---
