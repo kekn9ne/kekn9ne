@@ -7,6 +7,6 @@
 
 ---
 
-_"Champions keep playing until they get it right. — *Billie Jean King*"_
+_"Success is often achieved by those who don't know that failure is inevitable. — *Coco Chanel*"_
 
 ---
