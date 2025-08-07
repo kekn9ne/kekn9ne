@@ -7,6 +7,6 @@
 
 ---
 
-_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
+_"What loneliness is more lonely than distrust? — *George Eliot*"_
 
 ---
