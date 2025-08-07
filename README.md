@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn from the rejection and turn it into an opportunity! — *Mary Engelbreit*"_
+_"If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving. — *Martin Luther King, Jr.*"_
 
 ---
