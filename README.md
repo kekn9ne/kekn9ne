@@ -7,6 +7,6 @@
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"Getting over a painful experience is much like crossing monkey bars. You have to let go at some point in order to move forward. — *Unknown*"_
 
 ---
