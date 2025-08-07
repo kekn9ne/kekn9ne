@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 08 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Optimism is the one quality more associated with success and happiness than any other. — *Brian Tracy*"_
+_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
 
 ---
