@@ -7,6 +7,6 @@
 
 ---
 
-_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
+_"What have you done today to make someone else happy? — *Deepam Chaterjee*"_
 
 ---
