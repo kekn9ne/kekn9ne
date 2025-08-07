@@ -7,6 +7,6 @@
 
 ---
 
-_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
+_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
 
 ---
