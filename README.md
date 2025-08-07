@@ -7,6 +7,6 @@
 
 ---
 
-_"Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand. — *Colin Powell*"_
+_"A poet should be so crafty with words that he is envied even for his pains. — *Criss Jami*"_
 
 ---
