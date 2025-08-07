@@ -7,6 +7,6 @@
 
 ---
 
-_"Think and wonder, wonder and think. — *Dr. Seuss*"_
+_"Belief creates the actual fact. — *William James*"_
 
 ---
