@@ -7,6 +7,6 @@
 
 ---
 
-_"All life is a manifestation of the spirit, the manifestation of love. — *Morihei Ueshiba*"_
+_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
 
 ---
