@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving. — *Martin Luther King, Jr.*"_
+_"Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. — *Celestine Chua*"_
 
 ---
