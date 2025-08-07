@@ -7,6 +7,6 @@
 
 ---
 
-_"A poet should be so crafty with words that he is envied even for his pains. — *Criss Jami*"_
+_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
 
 ---
