@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"It's easier to go down a hill than up it but the view is much better at the top. — *Henry Ward Beecher*"_
 
 ---
