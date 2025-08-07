@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is the ability to act rightly without precedent - the power to do the right thing the first time. — *Elbert Hubbard*"_
+_"Our life isn't how much we can take out, but how much we can put in.   — *Estee Lauder*"_
 
 ---
