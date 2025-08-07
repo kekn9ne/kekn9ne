@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something you've never had you must be willing to do something you've never done. — *Thomas Jefferson*"_
+_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
 
 ---
