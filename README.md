@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 07 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"To be prepared is half the victory.  — *Miguel de Cervantes*"_
 
 ---
