@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 07 August 2025**  
 🌤️ Weather in Istanbul: **🌦   +23°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Many a man has failed because he had his wishbone where his backbone should have been. — *Ronald Reagan*"_
+_"It's possible in ways both large or small to make a difference in someone's life. — *Yanni*"_
 
 ---
