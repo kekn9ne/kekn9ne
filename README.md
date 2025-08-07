@@ -7,6 +7,6 @@
 
 ---
 
-_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
+_"Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place. — *Richard Bach*"_
 
 ---
