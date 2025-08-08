@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership is solving problems — *Colin Powell*"_
+_"The greatest mistake you can make in life is to be continually fearing you will make one. — *Elbert Hubbard*"_
 
 ---
