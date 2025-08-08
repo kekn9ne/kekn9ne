@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
+_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
 
 ---
