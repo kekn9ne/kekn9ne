@@ -7,6 +7,6 @@
 
 ---
 
-_"Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine. — *Zen Proverb*"_
+_"A poet should be so crafty with words that he is envied even for his pains. — *Criss Jami*"_
 
 ---
