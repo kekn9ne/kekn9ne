@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
