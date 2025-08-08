@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 08 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you can't make them see the light, make them feel the heat. — *Ronald Reagan*"_
+_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
 
 ---
