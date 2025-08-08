@@ -7,6 +7,6 @@
 
 ---
 
-_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
+_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
 
 ---
