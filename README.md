@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
+_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
 
 ---
