@@ -7,6 +7,6 @@
 
 ---
 
-_"Never close your lips to those whom you have already opened your heart. — *Charles Dickens*"_
+_"The single biggest problem in communication is the illusion that it has taken place. — *George Bernard Shaw*"_
 
 ---
