@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. — *Thomas Jefferson*"_
+_"Well done is better than well said. — *Benjamin Franklin*"_
 
 ---
