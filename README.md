@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 08 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
 
 ---
 
-_"Integrity is the ability to stand by an idea. — *Ayn Rand*"_
+_"When you can't make them see the light, make them feel the heat. — *Ronald Reagan*"_
 
 ---
