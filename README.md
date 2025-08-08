@@ -7,6 +7,6 @@
 
 ---
 
-_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
+_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
 
 ---
