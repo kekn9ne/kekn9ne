@@ -7,6 +7,6 @@
 
 ---
 
-_"A moving door hinge never corrodes. Flowing water never grows stagnant. — *Ming-Dao Deng*"_
+_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
 
 ---
