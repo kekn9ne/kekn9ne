@@ -7,6 +7,6 @@
 
 ---
 
-_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
+_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
 
 ---
