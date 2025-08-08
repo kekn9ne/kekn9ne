@@ -7,6 +7,6 @@
 
 ---
 
-_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
+_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
 
 ---
