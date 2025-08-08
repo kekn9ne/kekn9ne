@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 09 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
+_"Through discipline comes freedom. — *Aristotle*"_
 
 ---
