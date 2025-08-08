@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your mind your own business. — *Jack Butcher*"_
+_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
 
 ---
