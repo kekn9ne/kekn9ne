@@ -7,6 +7,6 @@
 
 ---
 
-_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
+_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
 
 ---
