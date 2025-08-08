@@ -7,6 +7,6 @@
 
 ---
 
-_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
+_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
 
 ---
