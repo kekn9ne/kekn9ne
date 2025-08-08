@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
+_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
 
 ---
