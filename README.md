@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
 
 ---
