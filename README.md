@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't have anything worthwhile without difficulties. — *Harry S. Truman*"_
+_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
 
 ---
