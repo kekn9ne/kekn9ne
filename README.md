@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 08 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **in da club - Lewo remix** by *$hadowflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
+_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
 
 ---
