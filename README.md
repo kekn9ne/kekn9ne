@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no way to happiness - happiness is the way. — *Thich Nhat Hanh*"_
+_"Leadership is solving problems — *Colin Powell*"_
 
 ---
