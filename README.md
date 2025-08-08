@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
+_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
 
 ---
