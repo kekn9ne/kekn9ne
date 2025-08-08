@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest mistake you can make in life is to be continually fearing you will make one. — *Elbert Hubbard*"_
+_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
 
 ---
