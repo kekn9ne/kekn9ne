@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
+_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
 
 ---
