@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 08 August 2025**  
+🗓️ Today is: **Saturday, 09 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
 
 ---
 
-_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
+_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
 
 ---
