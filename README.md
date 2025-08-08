@@ -7,6 +7,6 @@
 
 ---
 
-_"To every action there is always opposed an equal reaction. — *Isaac Newton*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
