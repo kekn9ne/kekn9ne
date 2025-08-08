@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 08 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **in da club - Lewo remix** by *$hadowflex* 🎶
 
 ---
 
-_"The single biggest problem in communication is the illusion that it has taken place. — *George Bernard Shaw*"_
+_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
 
 ---
