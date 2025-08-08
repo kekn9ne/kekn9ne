@@ -7,6 +7,6 @@
 
 ---
 
-_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
+_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
 
 ---
