@@ -7,6 +7,6 @@
 
 ---
 
-_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
 
 ---
