@@ -7,6 +7,6 @@
 
 ---
 
-_"Living life in style also means living a life of balance. — *Jim Rohn*"_
+_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
 
 ---
