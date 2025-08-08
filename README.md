@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
+_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
 
 ---
