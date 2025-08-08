@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
+_"Success is getting what you want... Happiness is wanting what you get. — *Dale Carnegie*"_
 
 ---
