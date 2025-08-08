@@ -7,6 +7,6 @@
 
 ---
 
-_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
+_"Until you change how you get things done, you'll never know what works best. — *Roy T. Bennett*"_
 
 ---
