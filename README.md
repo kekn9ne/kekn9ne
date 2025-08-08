@@ -7,6 +7,6 @@
 
 ---
 
-_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
+_"You can't have anything worthwhile without difficulties. — *Harry S. Truman*"_
 
 ---
