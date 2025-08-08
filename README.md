@@ -7,6 +7,6 @@
 
 ---
 
-_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
+_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
 
 ---
