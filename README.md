@@ -7,6 +7,6 @@
 
 ---
 
-_"Your past does not equal your future. — *Tony Robbins*"_
+_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
 
 ---
