@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
