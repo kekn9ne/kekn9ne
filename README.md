@@ -7,6 +7,6 @@
 
 ---
 
-_"To a mind that is still, the entire universe surrenders. — *Zhuangzi*"_
+_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
 
 ---
