@@ -7,6 +7,6 @@
 
 ---
 
-_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
+_"To every action there is always opposed an equal reaction. — *Isaac Newton*"_
 
 ---
