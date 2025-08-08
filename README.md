@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
+_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
 
 ---
