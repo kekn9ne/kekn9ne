@@ -7,6 +7,6 @@
 
 ---
 
-_"Be willing to be a beginner every single morning. — *Meister Eckhart*"_
+_"Integrity is the ability to stand by an idea. — *Ayn Rand*"_
 
 ---
