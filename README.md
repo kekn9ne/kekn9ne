@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 09 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
