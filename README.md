@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
+_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
 
 ---
