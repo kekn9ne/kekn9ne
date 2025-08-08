@@ -7,6 +7,6 @@
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"Living life in style also means living a life of balance. — *Jim Rohn*"_
 
 ---
