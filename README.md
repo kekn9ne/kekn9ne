@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't explain your philosophy. Embody it. — *Epictetus*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
