@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not to be pursued, it is to be attracted by the person you become. — *Jim Rohn*"_
+_"You have to make time, even for something as universal as staring at the stars. — *W.P. Kinsella*"_
 
 ---
