@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
+_"The wise man reads both books and life itself. — *Lin Yutang*"_
 
 ---
