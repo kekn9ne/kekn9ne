@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"There is a difference between giving directions and giving direction. — *Simon Sinek*"_
 
 ---
