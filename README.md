@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a wisdom of the head, and there is a wisdom of the heart. — *Charles Dickens*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
