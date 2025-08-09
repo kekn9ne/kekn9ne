@@ -7,6 +7,6 @@
 
 ---
 
-_"Nature loves to hide. — *Heraclitus*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
