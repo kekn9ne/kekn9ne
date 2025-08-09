@@ -7,6 +7,6 @@
 
 ---
 
-_"Remain calm. Be kind. — *Colin Powell*"_
+_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
 
 ---
