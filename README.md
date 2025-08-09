@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to make time, even for something as universal as staring at the stars. — *W.P. Kinsella*"_
+_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
 
 ---
