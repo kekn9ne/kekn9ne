@@ -7,6 +7,6 @@
 
 ---
 
-_"You only live once, but if you do it right, once is enough. — *Mae West*"_
+_"We become brave by doing brave acts. — *Aristotle*"_
 
 ---
