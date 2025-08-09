@@ -7,6 +7,6 @@
 
 ---
 
-_"What have you done today to make someone else happy? — *Deepam Chaterjee*"_
+_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
 
 ---
