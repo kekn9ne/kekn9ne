@@ -7,6 +7,6 @@
 
 ---
 
-_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
+_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
 
 ---
