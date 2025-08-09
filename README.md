@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
+_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
 
 ---
