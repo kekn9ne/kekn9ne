@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is the true magic carpet. — *Norman Vincent Peale*"_
+_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
 
 ---
