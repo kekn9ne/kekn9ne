@@ -7,6 +7,6 @@
 
 ---
 
-_"We become brave by doing brave acts. — *Aristotle*"_
+_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
 
 ---
