@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no greatness where there is not simplicity, goodness, and truth. — *Leo Tolstoy*"_
+_"Deeds will not be less valiant because they are upraised. — *J.R.R. Tolkien*"_
 
 ---
