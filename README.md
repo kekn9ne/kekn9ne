@@ -7,6 +7,6 @@
 
 ---
 
-_"A strong man overcomes an obstacle, a wise man goes the whole way. — *Zen Proverb*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
