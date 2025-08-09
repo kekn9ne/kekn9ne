@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
+_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
 
 ---
