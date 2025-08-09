@@ -7,6 +7,6 @@
 
 ---
 
-_"When you believe in a thing, believe in it all the way, implicitly and unquestionable. — *Walt Disney*"_
+_"Hold yourself responsible for a higher standard than anybody else expects of you. — *Henry Ward Beecher*"_
 
 ---
