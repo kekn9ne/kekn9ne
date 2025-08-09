@@ -7,6 +7,6 @@
 
 ---
 
-_"Hold yourself responsible for a higher standard than anybody else expects of you. — *Henry Ward Beecher*"_
+_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
 
 ---
