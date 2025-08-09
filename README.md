@@ -7,6 +7,6 @@
 
 ---
 
-_"Chase your passion, not your pension.  — *Denis Waitley*"_
+_"You only live once, but if you do it right, once is enough. — *Mae West*"_
 
 ---
