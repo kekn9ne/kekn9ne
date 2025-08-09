@@ -7,6 +7,6 @@
 
 ---
 
-_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
+_"When you believe in a thing, believe in it all the way, implicitly and unquestionable. — *Walt Disney*"_
 
 ---
