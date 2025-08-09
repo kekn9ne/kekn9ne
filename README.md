@@ -7,6 +7,6 @@
 
 ---
 
-_"Beware of false knowledge, it is more dangerous than ignorance. — *George Bernard Shaw*"_
+_"Act as if what you do makes a difference. It does. — *William James*"_
 
 ---
