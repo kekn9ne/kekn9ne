@@ -7,6 +7,6 @@
 
 ---
 
-_"All wealth is the product of labor. — *John Locke*"_
+_"Remain calm. Be kind. — *Colin Powell*"_
 
 ---
