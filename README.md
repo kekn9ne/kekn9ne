@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise man reads both books and life itself. — *Lin Yutang*"_
+_"What have you done today to make someone else happy? — *Deepam Chaterjee*"_
 
 ---
