@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
+_"Everything is in your own heart. — *Thich Nhat Hanh*"_
 
 ---
