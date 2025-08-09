@@ -7,6 +7,6 @@
 
 ---
 
-_"Riches don't make a man rich, they only make him busier. — *Christopher Columbus*"_
+_"Don't explain your philosophy. Embody it. — *Epictetus*"_
 
 ---
