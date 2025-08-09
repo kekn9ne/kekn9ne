@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
+_"Imagination is the true magic carpet. — *Norman Vincent Peale*"_
 
 ---
