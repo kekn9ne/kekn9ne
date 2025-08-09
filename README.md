@@ -7,6 +7,6 @@
 
 ---
 
-_"Deeds will not be less valiant because they are upraised. — *J.R.R. Tolkien*"_
+_"Success is not to be pursued, it is to be attracted by the person you become. — *Jim Rohn*"_
 
 ---
