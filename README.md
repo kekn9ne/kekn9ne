@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is in your own heart. — *Thich Nhat Hanh*"_
+_"At every moment where language can't go, that's your mind. — *Bodhidharma*"_
 
 ---
