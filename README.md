@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
+_"There is a wisdom of the head, and there is a wisdom of the heart. — *Charles Dickens*"_
 
 ---
