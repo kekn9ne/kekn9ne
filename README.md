@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
 
 ---
