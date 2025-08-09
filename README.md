@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Riches don't make a man rich, they only make him busier. — *Christopher Columbus*"_
 
 ---
