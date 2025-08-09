@@ -7,6 +7,6 @@
 
 ---
 
-_"What you become is far more important than what you get. — *Jim Rohn*"_
+_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
 
 ---
