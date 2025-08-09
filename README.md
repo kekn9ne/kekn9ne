@@ -7,6 +7,6 @@
 
 ---
 
-_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
+_"Chase your passion, not your pension.  — *Denis Waitley*"_
 
 ---
