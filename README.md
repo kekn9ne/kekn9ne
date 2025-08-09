@@ -7,6 +7,6 @@
 
 ---
 
-_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
