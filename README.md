@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 10 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bırakın Arasın** by *Ceren Sagu* 🎶
 
 ---
 
-_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
+_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
 
 ---
