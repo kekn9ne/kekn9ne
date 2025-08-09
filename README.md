@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing like a health problem to turn up the contrast dial for the rest of life. — *Naval Ravikant*"_
+_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
 
 ---
