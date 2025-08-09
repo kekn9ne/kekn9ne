@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 10 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Bırakın Arasın** by *Ceren Sagu* 🎶
+🎧 Currently Listening: **GÜNAH** by *Ceren Sagu* 🎶
 
 ---
 
-_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
+_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
 
 ---
