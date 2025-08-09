@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"All wealth is the product of labor. — *John Locke*"_
 
 ---
