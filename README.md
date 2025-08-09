@@ -7,6 +7,6 @@
 
 ---
 
-_"Act as if what you do makes a difference. It does. — *William James*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
