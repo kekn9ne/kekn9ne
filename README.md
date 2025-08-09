@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes adversity is what you need to face in order to become successful. — *Zig Ziglar*"_
+_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
 
 ---
