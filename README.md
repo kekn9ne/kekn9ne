@@ -7,6 +7,6 @@
 
 ---
 
-_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
+_"Sometimes adversity is what you need to face in order to become successful. — *Zig Ziglar*"_
 
 ---
