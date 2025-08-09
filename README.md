@@ -7,6 +7,6 @@
 
 ---
 
-_"At every moment where language can't go, that's your mind. — *Bodhidharma*"_
+_"Beware of false knowledge, it is more dangerous than ignorance. — *George Bernard Shaw*"_
 
 ---
