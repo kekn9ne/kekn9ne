@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise man reads both books and life itself. — *Lin Yutang*"_
+_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
 
 ---
