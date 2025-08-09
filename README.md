@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a difference between giving directions and giving direction. — *Simon Sinek*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
