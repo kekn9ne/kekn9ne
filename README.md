@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
+_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
 
 ---
