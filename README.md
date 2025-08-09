@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
+_"Educating the mind without educating the heart is no education at all. — *Aristotle*"_
 
 ---
