@@ -7,6 +7,6 @@
 
 ---
 
-_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
+_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
 
 ---
