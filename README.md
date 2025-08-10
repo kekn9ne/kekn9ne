@@ -7,6 +7,6 @@
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"Manifest plainness, embrace simplicity, reduce selfishness, have few desires. — *Lao Tzu*"_
 
 ---
