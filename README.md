@@ -7,6 +7,6 @@
 
 ---
 
-_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
+_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
 
 ---
