@@ -7,6 +7,6 @@
 
 ---
 
-_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
+_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
 
 ---
