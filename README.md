@@ -7,6 +7,6 @@
 
 ---
 
-_"You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. — *Norman Vincent Peale*"_
+_"Failure is acceptable. Not trying is a whole different ball park. — *Michael Jordan*"_
 
 ---
