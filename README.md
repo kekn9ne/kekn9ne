@@ -7,6 +7,6 @@
 
 ---
 
-_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
+_"Coming together is a beginning, staying together is progress, and working together is success.  — *Henry Ford*"_
 
 ---
