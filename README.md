@@ -7,6 +7,6 @@
 
 ---
 
-_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
+_"You cannot teach a crab to walk straight. — *Aristophanes*"_
 
 ---
