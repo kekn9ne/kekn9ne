@@ -7,6 +7,6 @@
 
 ---
 
-_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
