@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
+_"If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results. — *Tony Robbins*"_
 
 ---
