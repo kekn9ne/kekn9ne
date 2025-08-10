@@ -7,6 +7,6 @@
 
 ---
 
-_"A friend to all is a friend to none. — *Aristotle*"_
+_"To find yourself, think for yourself. — *Socrates*"_
 
 ---
