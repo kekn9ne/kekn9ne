@@ -7,6 +7,6 @@
 
 ---
 
-_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
+_"You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. — *Norman Vincent Peale*"_
 
 ---
