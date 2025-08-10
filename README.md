@@ -7,6 +7,6 @@
 
 ---
 
-_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
+_"All wealth is the product of labor. — *John Locke*"_
 
 ---
