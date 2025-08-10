@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
