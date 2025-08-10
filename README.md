@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the greatest of all mistakes to do nothing because you can only do little; do something. — *Sydney Smith*"_
+_"It's much better to do good in a way that no one knows anything about it. — *Leo Tolstoy*"_
 
 ---
