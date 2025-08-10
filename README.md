@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
