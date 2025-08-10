@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
+_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
 
 ---
