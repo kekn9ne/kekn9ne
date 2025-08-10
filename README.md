@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. — *Earl Nightingale*"_
+_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
 
 ---
