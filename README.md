@@ -7,6 +7,6 @@
 
 ---
 
-_"Men trust their ears less than their eyes. — *Herodotus*"_
+_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
 
 ---
