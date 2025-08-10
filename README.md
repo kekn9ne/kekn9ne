@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you meet is fighting a battle you know nothing about. Be kind. Always. — *Robin Williams*"_
+_"Time doesn't heal emotional pain, you need to learn how to let go. — *Roy T. Bennett*"_
 
 ---
