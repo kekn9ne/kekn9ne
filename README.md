@@ -7,6 +7,6 @@
 
 ---
 
-_"People think you're crazy if you talk about things they don't understand. — *Elvis Presley*"_
+_"Men trust their ears less than their eyes. — *Herodotus*"_
 
 ---
