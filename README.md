@@ -7,6 +7,6 @@
 
 ---
 
-_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
+_"You can't get to a place that you don't believe exists. — *Unknown*"_
 
 ---
