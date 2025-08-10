@@ -7,6 +7,6 @@
 
 ---
 
-_"To find yourself, think for yourself. — *Socrates*"_
+_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
 
 ---
