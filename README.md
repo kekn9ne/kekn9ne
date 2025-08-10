@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
+_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
 
 ---
