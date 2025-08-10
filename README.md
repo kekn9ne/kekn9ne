@@ -7,6 +7,6 @@
 
 ---
 
-_"I do not seek. I find. — *Pablo Picasso*"_
+_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
 
 ---
