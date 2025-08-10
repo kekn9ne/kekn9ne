@@ -7,6 +7,6 @@
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
 
 ---
