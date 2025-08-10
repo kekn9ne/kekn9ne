@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
+_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
 
 ---
