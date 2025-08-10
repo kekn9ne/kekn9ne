@@ -7,6 +7,6 @@
 
 ---
 
-_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
+_"People think you're crazy if you talk about things they don't understand. — *Elvis Presley*"_
 
 ---
