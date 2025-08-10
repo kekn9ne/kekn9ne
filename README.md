@@ -7,6 +7,6 @@
 
 ---
 
-_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
