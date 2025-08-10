@@ -7,6 +7,6 @@
 
 ---
 
-_"Manifest plainness, embrace simplicity, reduce selfishness, have few desires. — *Lao Tzu*"_
+_"Because of your smile, you make life more beautiful. — *Thich Nhat Hanh*"_
 
 ---
