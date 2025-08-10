@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
 
 ---
