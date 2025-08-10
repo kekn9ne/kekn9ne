@@ -7,6 +7,6 @@
 
 ---
 
-_"We become brave by doing brave acts. — *Aristotle*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
