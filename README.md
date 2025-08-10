@@ -7,6 +7,6 @@
 
 ---
 
-_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
+_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
 
 ---
