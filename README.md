@@ -7,6 +7,6 @@
 
 ---
 
-_"Common sense is not so common.  — *Voltaire*"_
+_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
 
 ---
