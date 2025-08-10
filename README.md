@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't get to a place that you don't believe exists. — *Unknown*"_
+_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
 
 ---
