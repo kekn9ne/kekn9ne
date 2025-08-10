@@ -7,6 +7,6 @@
 
 ---
 
-_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
+_"Great deeds are usually wrought at great risks. — *Herodotus*"_
 
 ---
