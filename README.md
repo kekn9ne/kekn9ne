@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
