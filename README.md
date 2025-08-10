@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"We become brave by doing brave acts. — *Aristotle*"_
 
 ---
