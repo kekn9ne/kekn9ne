@@ -7,6 +7,6 @@
 
 ---
 
-_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
+_"Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. — *Earl Nightingale*"_
 
 ---
