@@ -7,6 +7,6 @@
 
 ---
 
-_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
+_"The smallest act of kindness is worth more than the greatest intention.   — *Kahlil Gibran*"_
 
 ---
