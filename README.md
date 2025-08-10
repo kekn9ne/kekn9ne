@@ -7,6 +7,6 @@
 
 ---
 
-_"Great deeds are usually wrought at great risks. — *Herodotus*"_
+_"It is the greatest of all mistakes to do nothing because you can only do little; do something. — *Sydney Smith*"_
 
 ---
