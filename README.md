@@ -7,6 +7,6 @@
 
 ---
 
-_"Because of your smile, you make life more beautiful. — *Thich Nhat Hanh*"_
+_"Honesty is the first chapter in the book of wisdom. — *Thomas Jefferson*"_
 
 ---
