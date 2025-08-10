@@ -7,6 +7,6 @@
 
 ---
 
-_"Time doesn't heal emotional pain, you need to learn how to let go. — *Roy T. Bennett*"_
+_"We become brave by doing brave acts. — *Aristotle*"_
 
 ---
