@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people tend to become more successful because they are always thinking about their successes. — *Brian Tracy*"_
+_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
 
 ---
