@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
+_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
 
 ---
