@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot teach a crab to walk straight. — *Aristophanes*"_
+_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
 
 ---
