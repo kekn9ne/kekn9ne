@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
+_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
 
 ---
