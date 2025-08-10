@@ -7,6 +7,6 @@
 
 ---
 
-_"Don´t hesitate or allow yourself to make excuses. Just get out and do it. — *Christopher McCandless*"_
+_"It is better to learn late than never. — *Publilius Syrus*"_
 
 ---
