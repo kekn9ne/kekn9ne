@@ -7,6 +7,6 @@
 
 ---
 
-_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
+_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
 
 ---
