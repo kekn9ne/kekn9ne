@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
+_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
 
 ---
