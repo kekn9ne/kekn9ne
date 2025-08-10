@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to learn late than never. — *Publilius Syrus*"_
+_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
 
 ---
