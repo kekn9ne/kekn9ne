@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"The ego wants comfort and certainty. The soul wants to live fully. — *Maxime Lagace*"_
 
 ---
