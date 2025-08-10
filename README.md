@@ -7,6 +7,6 @@
 
 ---
 
-_"All wealth is the product of labor. — *John Locke*"_
+_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
 
 ---
