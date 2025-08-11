@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
+_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
 
 ---
