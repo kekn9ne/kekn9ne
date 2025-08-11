@@ -7,6 +7,6 @@
 
 ---
 
-_"All things come into being by conflict of opposites. — *Heraclitus*"_
+_"To seek is to suffer. To seek nothing is bliss. — *Bodhidharma*"_
 
 ---
