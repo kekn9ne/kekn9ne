@@ -7,6 +7,6 @@
 
 ---
 
-_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
+_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
 
 ---
