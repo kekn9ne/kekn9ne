@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
