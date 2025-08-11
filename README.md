@@ -7,6 +7,6 @@
 
 ---
 
-_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
+_"You can't go forward and backwards at the same time. — *Steve Harvey*"_
 
 ---
