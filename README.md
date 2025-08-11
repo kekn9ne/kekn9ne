@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 11 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +32°C**  
+🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **SHOT** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
 
 ---
