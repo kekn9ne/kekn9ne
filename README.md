@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect is earned by effort not age, all things age without effort. — *C. Sean McGee*"_
+_"Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge. — *Robert Greene*"_
 
 ---
