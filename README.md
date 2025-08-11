@@ -7,6 +7,6 @@
 
 ---
 
-_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
+_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
 
 ---
