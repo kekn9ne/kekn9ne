@@ -7,6 +7,6 @@
 
 ---
 
-_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
+_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
 
 ---
