@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 11 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +29°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
 
 ---
 
-_"What worries you, masters you. — *John Locke*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
