@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
+_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
 
 ---
