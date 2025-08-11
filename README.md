@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
+_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
 
 ---
