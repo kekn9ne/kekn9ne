@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not what you think you are, You are not what others think you are, You are what you think others think you are. — *Unknown*"_
+_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
 
 ---
