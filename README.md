@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
