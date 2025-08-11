@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 11 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
