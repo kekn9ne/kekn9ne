@@ -7,6 +7,6 @@
 
 ---
 
-_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
+_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
 
 ---
