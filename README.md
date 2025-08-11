@@ -7,6 +7,6 @@
 
 ---
 
-_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"Remember that sometimes not getting what you want is a wonderful stroke of luck. — *Dalai Lama*"_
 
 ---
