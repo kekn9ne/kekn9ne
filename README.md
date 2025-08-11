@@ -7,6 +7,6 @@
 
 ---
 
-_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
+_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
 
 ---
