@@ -7,6 +7,6 @@
 
 ---
 
-_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
+_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
 
 ---
