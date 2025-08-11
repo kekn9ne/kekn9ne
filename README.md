@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
 
 ---
