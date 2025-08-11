@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 12 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **I Don't Care** by *PINKEU* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Confidence is like a dragon where, for every head cut off, two more heads grow back. — *Criss Jami*"_
+_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
 
 ---
