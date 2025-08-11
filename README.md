@@ -7,6 +7,6 @@
 
 ---
 
-_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
+_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
 
 ---
