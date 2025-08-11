@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
+_"No great discovery was ever made without a bold guess.  — *Isaac Newton*"_
 
 ---
