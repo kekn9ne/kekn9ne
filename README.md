@@ -7,6 +7,6 @@
 
 ---
 
-_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
+_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
 
 ---
