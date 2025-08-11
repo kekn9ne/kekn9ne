@@ -7,6 +7,6 @@
 
 ---
 
-_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
+_"Throughout this life, you can never be certain of living long enough to take another breath. — *Zen Proverb*"_
 
 ---
