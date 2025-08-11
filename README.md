@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
+_"Many people will walk in and out of your life, but only true friends will leave footprints in your heart. — *Eleanor Roosevelt*"_
 
 ---
