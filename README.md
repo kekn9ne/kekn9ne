@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
+_"Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity. — *Charles Spurgeon*"_
 
 ---
