@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"Love is the expression of one's values. — *Ayn Rand*"_
 
 ---
