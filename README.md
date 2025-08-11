@@ -7,6 +7,6 @@
 
 ---
 
-_"True knowledge exists in knowing that you know nothing. — *Socrates*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
