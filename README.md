@@ -7,6 +7,6 @@
 
 ---
 
-_"Throughout this life, you can never be certain of living long enough to take another breath. — *Zen Proverb*"_
+_"The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive. — *Herodotus*"_
 
 ---
