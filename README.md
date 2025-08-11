@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 11 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +32°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SHOT** by *Lvbel C5* 🎶
 
 ---
 
-_"You can't go forward and backwards at the same time. — *Steve Harvey*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
