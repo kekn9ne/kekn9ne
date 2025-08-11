@@ -7,6 +7,6 @@
 
 ---
 
-_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
+_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
 
 ---
