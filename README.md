@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the expression of one's values. — *Ayn Rand*"_
+_"I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves. — *Steve Maraboli*"_
 
 ---
