@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 11 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
+_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
 
 ---
