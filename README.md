@@ -7,6 +7,6 @@
 
 ---
 
-_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
+_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
 
 ---
