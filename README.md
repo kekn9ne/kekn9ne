@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 11 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
+_"Never buy a thing you do not want, because it is cheap, it will be dear to you. — *Thomas Jefferson*"_
 
 ---
