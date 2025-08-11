@@ -7,6 +7,6 @@
 
 ---
 
-_"The essence of the Way is detachment. — *Bodhidharma*"_
+_"Respect is earned by effort not age, all things age without effort. — *C. Sean McGee*"_
 
 ---
