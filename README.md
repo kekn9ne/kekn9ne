@@ -7,6 +7,6 @@
 
 ---
 
-_"An un-examined life is not worth living. — *Socrates*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
