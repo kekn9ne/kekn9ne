@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"Life is love and love is life. — *Elvis Presley*"_
 
 ---
