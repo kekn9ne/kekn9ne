@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
 
 ---
