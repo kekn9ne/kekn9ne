@@ -7,6 +7,6 @@
 
 ---
 
-_"The businessman's tool is value. — *Ayn Rand*"_
+_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
 
 ---
