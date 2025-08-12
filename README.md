@@ -7,6 +7,6 @@
 
 ---
 
-_"Even a hare will bite when it is cornered.  — *Chinese Proverb*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
