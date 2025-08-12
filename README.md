@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
+_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
 
 ---
