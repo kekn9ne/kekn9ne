@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
+_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
 
 ---
