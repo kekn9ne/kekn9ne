@@ -7,6 +7,6 @@
 
 ---
 
-_"Circumstances rule men; men do not rule circumstances.  — *Herodotus*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
