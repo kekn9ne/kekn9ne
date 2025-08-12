@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
+_"Happiness is only real, when shared. — *Christopher McCandless*"_
 
 ---
