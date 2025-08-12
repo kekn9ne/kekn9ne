@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
+_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
 
 ---
