@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is the beginning of creation. — *George Bernard Shaw*"_
+_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
 
 ---
