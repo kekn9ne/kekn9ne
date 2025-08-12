@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
+_"The power to make and break habits and learning how to do that is really important. — *Naval Ravikant*"_
 
 ---
