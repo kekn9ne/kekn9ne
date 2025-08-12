@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
