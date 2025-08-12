@@ -7,6 +7,6 @@
 
 ---
 
-_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
+_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
 
 ---
