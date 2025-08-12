@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
+_"Your spirit is the true shield. — *Morihei Ueshiba*"_
 
 ---
