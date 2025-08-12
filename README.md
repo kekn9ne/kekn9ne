@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is acceptable. Not trying is a whole different ball park. — *Michael Jordan*"_
+_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
 
 ---
