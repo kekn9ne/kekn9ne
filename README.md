@@ -7,6 +7,6 @@
 
 ---
 
-_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
+_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
 
 ---
