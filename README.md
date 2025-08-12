@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
