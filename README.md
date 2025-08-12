@@ -7,6 +7,6 @@
 
 ---
 
-_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
+_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
 
 ---
