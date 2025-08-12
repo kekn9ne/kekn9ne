@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage. — *Celestine Chua*"_
 
 ---
