@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 12 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
 
 ---
 
-_"A hopeless man is a very desperate and dangerous man, almost a dead man. — *Robert F. Kennedy*"_
+_"At first dreams seem impossible, then improbable, then inevitable. — *Christopher Reeve*"_
 
 ---
