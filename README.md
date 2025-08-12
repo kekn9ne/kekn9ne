@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is created twice, first in the mind and then in reality. — *Robin Sharma*"_
+_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
 
 ---
