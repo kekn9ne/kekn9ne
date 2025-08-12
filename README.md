@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
+_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
 
 ---
