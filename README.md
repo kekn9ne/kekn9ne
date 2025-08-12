@@ -7,6 +7,6 @@
 
 ---
 
-_"The more we value things, the less we value ourselves.   — *Bruce Lee*"_
+_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
 
 ---
