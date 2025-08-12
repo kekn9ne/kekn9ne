@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man gotta right to decide his own destiny. — *Bob Marley*"_
+_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
 
 ---
