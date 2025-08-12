@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a question and how we live it is our answer. — *Gary Keller*"_
+_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
 
 ---
