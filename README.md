@@ -7,6 +7,6 @@
 
 ---
 
-_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
+_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
 
 ---
