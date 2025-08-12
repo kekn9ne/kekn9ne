@@ -7,6 +7,6 @@
 
 ---
 
-_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
+_"The more we value things, the less we value ourselves.   — *Bruce Lee*"_
 
 ---
