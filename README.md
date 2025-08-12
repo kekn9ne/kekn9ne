@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
+_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
 
 ---
