@@ -7,6 +7,6 @@
 
 ---
 
-_"A golden cage is still just a cage. — *Anita Krizzan*"_
+_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
 
 ---
