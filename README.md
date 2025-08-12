@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is love and love is life. — *Elvis Presley*"_
+_"The least deviation from truth will be multiplied later. — *Aristotle*"_
 
 ---
