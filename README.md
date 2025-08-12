@@ -7,6 +7,6 @@
 
 ---
 
-_"The least deviation from truth will be multiplied later. — *Aristotle*"_
+_"A golden cage is still just a cage. — *Anita Krizzan*"_
 
 ---
