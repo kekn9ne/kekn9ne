@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheresoever you go, go with all your heart. — *Confucius*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
