@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
+_"Failure is acceptable. Not trying is a whole different ball park. — *Michael Jordan*"_
 
 ---
