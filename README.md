@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. — *Thomas Edison*"_
+_"Fear is a natural reaction to moving closer to the truth. — *Pema Chodron*"_
 
 ---
