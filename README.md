@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"A hopeless man is a very desperate and dangerous man, almost a dead man. — *Robert F. Kennedy*"_
 
 ---
