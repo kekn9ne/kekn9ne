@@ -7,6 +7,6 @@
 
 ---
 
-_"A man's worth is no greater than his ambitions. — *Marcus Aurelius*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
