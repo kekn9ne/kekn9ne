@@ -7,6 +7,6 @@
 
 ---
 
-_"Either write something worth reading or do something worth writing. — *Benjamin Franklin*"_
+_"He who can no longer pause to wonder and stand rapt in awe, is as good as dead; his eyes are closed.  — *Albert Einstein*"_
 
 ---
