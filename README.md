@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
+_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
 
 ---
