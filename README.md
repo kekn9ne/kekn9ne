@@ -7,6 +7,6 @@
 
 ---
 
-_"In all chaos there is a cosmos, in all disorder a secret order. — *Carl Jung*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
