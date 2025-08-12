@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
+_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
 
 ---
