@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 13 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **68**  
-🎧 Currently Listening: **ABBAS - Hood Trap Remix** by *Kava* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everyone is a moon, and has a dark side which he never shows to anybody. — *Mark Twain*"_
+_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
 
 ---
