@@ -7,6 +7,6 @@
 
 ---
 
-_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
+_"Every man gotta right to decide his own destiny. — *Bob Marley*"_
 
 ---
