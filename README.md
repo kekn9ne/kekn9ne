@@ -7,6 +7,6 @@
 
 ---
 
-_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
+_"A man's worth is no greater than his ambitions. — *Marcus Aurelius*"_
 
 ---
