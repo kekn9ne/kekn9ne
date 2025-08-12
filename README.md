@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is only real, when shared. — *Christopher McCandless*"_
+_"Everything is created twice, first in the mind and then in reality. — *Robin Sharma*"_
 
 ---
