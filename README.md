@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are is the entry point. — *Kabir*"_
+_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
 
 ---
