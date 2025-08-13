@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom. — *Sonia Ricotti*"_
+_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
 
 ---
