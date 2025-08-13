@@ -7,6 +7,6 @@
 
 ---
 
-_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
+_"Quality is more important than quantity. One home run is much better than two doubles. — *Steve Jobs*"_
 
 ---
