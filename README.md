@@ -7,6 +7,6 @@
 
 ---
 
-_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
+_"You have a brain and mind of your own. Use it, and reach your own decisions. — *Napoleon Hill*"_
 
 ---
