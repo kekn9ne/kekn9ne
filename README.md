@@ -7,6 +7,6 @@
 
 ---
 
-_"We think too much and feel too little. — *Charlie Chaplin*"_
+_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
 
 ---
