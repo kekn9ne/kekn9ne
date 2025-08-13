@@ -7,6 +7,6 @@
 
 ---
 
-_"Quality is more important than quantity. One home run is much better than two doubles. — *Steve Jobs*"_
+_"It's the unknown we fear when we look upon death and darkness, nothing more. — *Albus Dumbledore*"_
 
 ---
