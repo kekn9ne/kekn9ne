@@ -7,6 +7,6 @@
 
 ---
 
-_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
+_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
 
 ---
