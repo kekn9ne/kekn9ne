@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you do, not what you say you'll do. — *Carl Jung*"_
+_"True love stories never have endings. — *Richard Bach*"_
 
 ---
