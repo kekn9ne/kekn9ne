@@ -7,6 +7,6 @@
 
 ---
 
-_"Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. — *Richard Bach*"_
+_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
 
 ---
