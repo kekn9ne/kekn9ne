@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
+_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
 
 ---
