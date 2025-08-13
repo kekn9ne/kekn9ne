@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
+_"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. — *Steve Maraboli*"_
 
 ---
