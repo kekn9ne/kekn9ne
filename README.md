@@ -7,6 +7,6 @@
 
 ---
 
-_"Of all men's miseries the bitterest is this: to know so much and to have control over nothing.  — *Herodotus*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
