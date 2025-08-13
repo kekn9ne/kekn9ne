@@ -7,6 +7,6 @@
 
 ---
 
-_"All cruelty springs from weakness.   — *Seneca*"_
+_"Only in the agony of parting do we look into the depths of love. — *George Eliot*"_
 
 ---
