@@ -7,6 +7,6 @@
 
 ---
 
-_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
+_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
 
 ---
