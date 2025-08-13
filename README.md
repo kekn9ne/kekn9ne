@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
+_"Never settle for the crumbs of life. — *Og Mandino*"_
 
 ---
