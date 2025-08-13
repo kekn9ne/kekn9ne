@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. — *Mark Twain*"_
+_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
 
 ---
