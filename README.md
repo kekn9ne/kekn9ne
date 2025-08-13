@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 13 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Gülşen** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Not everything that weighs you down is yours to carry. — *Unknown*"_
+_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
 
 ---
