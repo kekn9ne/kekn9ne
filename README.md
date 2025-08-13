@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 13 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing ever goes away until it has taught us what we need to know. — *Pema Chodron*"_
+_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
 
 ---
