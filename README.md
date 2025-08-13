@@ -7,6 +7,6 @@
 
 ---
 
-_"Beauty is not in the face; beauty is a light in the heart. — *Kahlil Gibran*"_
+_"You are what you do, not what you say you'll do. — *Carl Jung*"_
 
 ---
