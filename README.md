@@ -7,6 +7,6 @@
 
 ---
 
-_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
+_"The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. — *Mark Twain*"_
 
 ---
