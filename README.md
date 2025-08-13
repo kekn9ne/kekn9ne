@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the unknown we fear when we look upon death and darkness, nothing more. — *Albus Dumbledore*"_
+_"It's not the size of the dog in the fight, it's the size of the fight in the dog. — *Mark Twain*"_
 
 ---
