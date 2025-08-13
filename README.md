@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom itself demands discomfort. — *Mark Manson*"_
+_"Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom. — *Sonia Ricotti*"_
 
 ---
