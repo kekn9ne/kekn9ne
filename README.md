@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the size of the dog in the fight, it's the size of the fight in the dog. — *Mark Twain*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
