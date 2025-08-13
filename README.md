@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Buldun Mu?** by *ESKRY* 🎶
 
 ---
 
-_"Life is too short to waste your time on people who don't respect, appreciate, and value you. — *Roy T. Bennett*"_
+_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
 
 ---
