@@ -7,6 +7,6 @@
 
 ---
 
-_"You have a brain and mind of your own. Use it, and reach your own decisions. — *Napoleon Hill*"_
+_"You may delay, but time will not. — *Benjamin Franklin*"_
 
 ---
