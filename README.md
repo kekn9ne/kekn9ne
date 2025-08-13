@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
+_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
 
 ---
