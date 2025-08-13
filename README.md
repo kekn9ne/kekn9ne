@@ -7,6 +7,6 @@
 
 ---
 
-_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
+_"The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become. — *Heraclitus*"_
 
 ---
