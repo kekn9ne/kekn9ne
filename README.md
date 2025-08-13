@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
+_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
 
 ---
