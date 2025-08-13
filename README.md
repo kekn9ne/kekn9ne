@@ -7,6 +7,6 @@
 
 ---
 
-_"You may delay, but time will not. — *Benjamin Franklin*"_
+_"The least deviation from truth will be multiplied later. — *Aristotle*"_
 
 ---
