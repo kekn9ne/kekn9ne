@@ -7,6 +7,6 @@
 
 ---
 
-_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
+_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
 
 ---
