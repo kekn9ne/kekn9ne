@@ -7,6 +7,6 @@
 
 ---
 
-_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
+_"Freeing oneself from words is liberation.  — *Bodhidharma*"_
 
 ---
