@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"Life is too short to waste your time on people who don't respect, appreciate, and value you. — *Roy T. Bennett*"_
 
 ---
