@@ -7,6 +7,6 @@
 
 ---
 
-_"Freeing oneself from words is liberation.  — *Bodhidharma*"_
+_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
 
 ---
