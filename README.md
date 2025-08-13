@@ -7,6 +7,6 @@
 
 ---
 
-_"Make peace with your inner turmoil. — *Unknown*"_
+_"Freedom itself demands discomfort. — *Mark Manson*"_
 
 ---
