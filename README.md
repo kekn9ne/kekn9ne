@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
+_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
 
 ---
