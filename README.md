@@ -7,6 +7,6 @@
 
 ---
 
-_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
+_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
 
 ---
