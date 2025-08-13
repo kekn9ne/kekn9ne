@@ -7,6 +7,6 @@
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"Beauty is not in the face; beauty is a light in the heart. — *Kahlil Gibran*"_
 
 ---
