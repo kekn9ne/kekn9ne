@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
+_"We think too much and feel too little. — *Charlie Chaplin*"_
 
 ---
