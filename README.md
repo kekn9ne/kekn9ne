@@ -7,6 +7,6 @@
 
 ---
 
-_"Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored. — *Earl Nightingale*"_
+_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
 
 ---
