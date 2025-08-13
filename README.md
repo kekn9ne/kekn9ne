@@ -7,6 +7,6 @@
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
 
 ---
