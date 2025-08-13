@@ -7,6 +7,6 @@
 
 ---
 
-_"The businessman's tool is value. — *Ayn Rand*"_
+_"All cruelty springs from weakness.   — *Seneca*"_
 
 ---
