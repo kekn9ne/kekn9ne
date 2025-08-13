@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
+_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
 
 ---
