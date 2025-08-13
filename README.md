@@ -7,6 +7,6 @@
 
 ---
 
-_"Only in the agony of parting do we look into the depths of love. — *George Eliot*"_
+_"Change yourself and you have done your part in changing the world. — *Paramahansa Yogananda*"_
 
 ---
