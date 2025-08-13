@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is knowing what not to fear. — *Plato*"_
+_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
 
 ---
