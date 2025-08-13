@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise warrior avoids the battle. — *Sun Tzu*"_
+_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
 
 ---
