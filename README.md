@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is a great teacher. If you're open to it every mistake has a lesson to offer. — *Oprah Winfrey*"_
+_"Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. — *Richard Bach*"_
 
 ---
