@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away. — *John Lennon*"_
+_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
 
 ---
