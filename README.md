@@ -7,6 +7,6 @@
 
 ---
 
-_"Never settle for the crumbs of life. — *Og Mandino*"_
+_"The least deviation from truth will be multiplied later. — *Aristotle*"_
 
 ---
