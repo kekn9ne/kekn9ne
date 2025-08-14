@@ -7,6 +7,6 @@
 
 ---
 
-_"Decide whether or not the goal is worth the risks involved. If it is, stop worrying. — *Amelia Earhart*"_
+_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
 
 ---
