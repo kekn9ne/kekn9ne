@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
+_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
 
 ---
