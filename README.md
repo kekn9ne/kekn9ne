@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
+_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
 
 ---
