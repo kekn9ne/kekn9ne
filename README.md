@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
+_"Choose a job you love, and you will never have to work a day in your life.  — *Confucius*"_
 
 ---
