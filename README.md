@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **İris** by *Şam* 🎶
+🎧 Currently Listening: **Hayata Küstüm** by *Cash Flow* 🎶
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
 
 ---
