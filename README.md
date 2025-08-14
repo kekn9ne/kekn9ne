@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
