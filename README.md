@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
+_"This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. — *Alan Watts*"_
 
 ---
