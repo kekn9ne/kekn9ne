@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is like money, easier made than kept. — *Samuel Butler*"_
+_"Fashion fades, only style remains the same. — *Coco Chanel*"_
 
 ---
