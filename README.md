@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Bombalar Hedef Bulur** by *Sansar Salvo* 🎶
+🎧 Currently Listening: **İris** by *Şam* 🎶
 
 ---
 
-_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
+_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
 
 ---
