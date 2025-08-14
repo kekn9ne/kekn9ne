@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Ne Kadar Umrumda ?** by *Sansar Salvo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
+_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
 
 ---
