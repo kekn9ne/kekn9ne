@@ -7,6 +7,6 @@
 
 ---
 
-_"Choose a job you love, and you will never have to work a day in your life.  — *Confucius*"_
+_"There's no coming to consciousness without pain — *Carl Jung*"_
 
 ---
