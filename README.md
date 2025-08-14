@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
+_"Tall oaks grow from little acorns. — *Andrew Carnegie*"_
 
 ---
