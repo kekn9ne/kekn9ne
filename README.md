@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **ALEV ALEV** by *Zen-G* 🎶
+🎧 Currently Listening: **MASERATI** by *Organize* 🎶
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"In life you need either inspiration or desperation. — *Tony Robbins*"_
 
 ---
