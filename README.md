@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
 
 ---
