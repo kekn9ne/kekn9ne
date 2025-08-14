@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **SUVs** by *Luciano* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
+_"Instead of worrying about what you cannot control, shift your energy to what you can create. — *Roy T. Bennett*"_
 
 ---
