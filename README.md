@@ -7,6 +7,6 @@
 
 ---
 
-_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
+_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
 
 ---
