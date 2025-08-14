@@ -7,6 +7,6 @@
 
 ---
 
-_"Men do not attract which they want but that which they are. — *James Allen*"_
+_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
 
 ---
