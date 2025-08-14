@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
+🎧 Currently Listening: **MINI TERORISTA** by *Jeff Redd* 🎶
 
 ---
 
-_"Your very silence shows you agree. — *Euripides*"_
+_"Never let the fear of striking out keep you from playing the game. — *Babe Ruth*"_
 
 ---
