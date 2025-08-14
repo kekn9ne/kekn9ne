@@ -7,6 +7,6 @@
 
 ---
 
-_"Your success and happiness lie in you. — *Helen Keller*"_
+_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
 
 ---
