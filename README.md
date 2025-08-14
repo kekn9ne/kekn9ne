@@ -7,6 +7,6 @@
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
 
 ---
