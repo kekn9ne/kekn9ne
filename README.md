@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
+_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
 
 ---
