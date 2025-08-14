@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
+_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
 
 ---
