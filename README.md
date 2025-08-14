@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **MINI TERORISTA** by *Jeff Redd* 🎶
+🎧 Currently Listening: **MERMER** by *Lvbel C5* 🎶
 
 ---
 
-_"Never let the fear of striking out keep you from playing the game. — *Babe Ruth*"_
+_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
 
 ---
