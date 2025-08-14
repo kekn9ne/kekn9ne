@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't bother people for help without first trying to solve the problem yourself. — *Colin Powell*"_
+_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
 
 ---
