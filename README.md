@@ -7,6 +7,6 @@
 
 ---
 
-_"All life is a manifestation of the spirit, the manifestation of love. — *Morihei Ueshiba*"_
+_"Men do not attract which they want but that which they are. — *James Allen*"_
 
 ---
