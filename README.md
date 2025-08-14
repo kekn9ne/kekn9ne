@@ -7,6 +7,6 @@
 
 ---
 
-_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have? — *Eckhart Tolle*"_
 
 ---
