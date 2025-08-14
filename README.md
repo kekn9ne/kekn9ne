@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no coming to consciousness without pain — *Carl Jung*"_
+_"What would you do if you weren't afraid? — *Spencer Johnson*"_
 
 ---
