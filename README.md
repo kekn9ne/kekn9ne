@@ -7,6 +7,6 @@
 
 ---
 
-_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
+_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
 
 ---
