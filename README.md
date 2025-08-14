@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all. — *Dale Carnegie*"_
+_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
 
 ---
