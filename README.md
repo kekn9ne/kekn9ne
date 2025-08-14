@@ -7,6 +7,6 @@
 
 ---
 
-_"Tall oaks grow from little acorns. — *Andrew Carnegie*"_
+_"Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all. — *Dale Carnegie*"_
 
 ---
