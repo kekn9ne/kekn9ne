@@ -7,6 +7,6 @@
 
 ---
 
-_"Meditate. It won't be fun but it will surface what you need to deal with. — *Naval Ravikant*"_
+_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
 
 ---
