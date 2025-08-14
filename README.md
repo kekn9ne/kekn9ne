@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Hayata Küstüm** by *Cash Flow* 🎶
+🎧 Currently Listening: **Ne Kadar Umrumda ?** by *Sansar Salvo* 🎶
 
 ---
 
-_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
+_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
 
 ---
