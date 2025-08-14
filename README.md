@@ -7,6 +7,6 @@
 
 ---
 
-_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
+_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
 
 ---
