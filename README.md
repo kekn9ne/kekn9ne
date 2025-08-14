@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
+_"Don't let the past steal your present. — *Cherralea Morgen*"_
 
 ---
