@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **MASERATI** by *Organize* 🎶
+🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
 
 ---
 
-_"In life you need either inspiration or desperation. — *Tony Robbins*"_
+_"Your very silence shows you agree. — *Euripides*"_
 
 ---
