@@ -7,6 +7,6 @@
 
 ---
 
-_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
