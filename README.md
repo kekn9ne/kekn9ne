@@ -7,6 +7,6 @@
 
 ---
 
-_"Fashion fades, only style remains the same. — *Coco Chanel*"_
+_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
 
 ---
