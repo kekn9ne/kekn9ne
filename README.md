@@ -7,6 +7,6 @@
 
 ---
 
-_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
+_"Think and wonder, wonder and think. — *Dr. Seuss*"_
 
 ---
