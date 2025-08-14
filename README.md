@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SUVs** by *Luciano* 🎶
 
 ---
 
-_"Think and wonder, wonder and think. — *Dr. Seuss*"_
+_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
 
 ---
