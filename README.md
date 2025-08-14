@@ -7,6 +7,6 @@
 
 ---
 
-_"Time you enjoy wasting, was not wasted. — *John Lennon*"_
+_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
 
 ---
