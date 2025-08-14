@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
+_"Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window. — *Peter Drucker*"_
 
 ---
