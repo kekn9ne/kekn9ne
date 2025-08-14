@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have? — *Eckhart Tolle*"_
+_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
 
 ---
