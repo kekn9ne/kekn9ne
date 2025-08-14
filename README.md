@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
+_"Rich people have small TVs and big libraries, and poor people have small libraries and big TVs. — *Zig Ziglar*"_
 
 ---
