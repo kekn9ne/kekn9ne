@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
+_"Don't bother people for help without first trying to solve the problem yourself. — *Colin Powell*"_
 
 ---
