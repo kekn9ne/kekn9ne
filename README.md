@@ -7,6 +7,6 @@
 
 ---
 
-_"Rich people have small TVs and big libraries, and poor people have small libraries and big TVs. — *Zig Ziglar*"_
+_"Forgive those who have hurt you. — *Les Brown*"_
 
 ---
