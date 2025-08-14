@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
+_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
 
 ---
