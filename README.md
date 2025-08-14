@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 14 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Cinnet** by *Taladro* 🎶
 
 ---
 
-_"The best answer to anger is silence. — *Marcus Aurelius*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
