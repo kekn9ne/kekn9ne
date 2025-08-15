@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
+_"Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in. — *Robert Greene*"_
 
 ---
