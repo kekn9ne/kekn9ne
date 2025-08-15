@@ -7,6 +7,6 @@
 
 ---
 
-_"Storms don't last forever. — *Unknown*"_
+_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
 
 ---
