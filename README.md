@@ -7,6 +7,6 @@
 
 ---
 
-_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
+_"If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — *Elon Musk*"_
 
 ---
