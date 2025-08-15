@@ -7,6 +7,6 @@
 
 ---
 
-_"Smell the cheese often so you know when it is getting old. — *Spencer Johnson*"_
+_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
 
 ---
