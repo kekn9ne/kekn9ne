@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
+_"Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain. — *Kabir*"_
 
 ---
