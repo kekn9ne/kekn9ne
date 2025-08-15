@@ -7,6 +7,6 @@
 
 ---
 
-_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
+_"It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance. — *Kamal Ravikant*"_
 
 ---
