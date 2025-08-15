@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
+_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
 
 ---
