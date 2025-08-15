@@ -7,6 +7,6 @@
 
 ---
 
-_"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. — *Steve Maraboli*"_
+_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
 
 ---
