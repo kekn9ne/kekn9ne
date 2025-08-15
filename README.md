@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is a game played beautifully by children. — *Heraclitus*"_
+_"In the practice of tolerance, one's enemy is the best teacher. — *Dalai Lama*"_
 
 ---
