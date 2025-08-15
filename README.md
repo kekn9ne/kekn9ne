@@ -7,6 +7,6 @@
 
 ---
 
-_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
