@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 15 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +25°C**  
+🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
+_"A goal is a dream with a deadline. — *Napoleon Hill*"_
 
 ---
