@@ -7,6 +7,6 @@
 
 ---
 
-_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
+_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
 
 ---
