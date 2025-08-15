@@ -7,6 +7,6 @@
 
 ---
 
-_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
+_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
 
 ---
