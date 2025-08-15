@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
