@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
+_"You are what you do, not what you say you'll do. — *Carl Jung*"_
 
 ---
