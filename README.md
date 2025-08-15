@@ -7,6 +7,6 @@
 
 ---
 
-_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
+_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
 
 ---
