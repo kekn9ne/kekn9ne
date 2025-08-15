@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
+_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
 
 ---
