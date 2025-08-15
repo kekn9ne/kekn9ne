@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
+_"Time is a game played beautifully by children. — *Heraclitus*"_
 
 ---
