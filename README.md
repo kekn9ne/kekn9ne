@@ -7,6 +7,6 @@
 
 ---
 
-_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
+_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
 
 ---
