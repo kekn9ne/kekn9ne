@@ -7,6 +7,6 @@
 
 ---
 
-_"Health is the greatest of all possessions. — *Jonathan Swift*"_
+_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
 
 ---
