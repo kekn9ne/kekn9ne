@@ -7,6 +7,6 @@
 
 ---
 
-_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
