@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 15 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
+_"In nature there is no alienation. Everything belongs. — *Ming-Dao Deng*"_
 
 ---
