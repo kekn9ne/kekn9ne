@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 15 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
+_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
 
 ---
