@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. — *Buddha*"_
+_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
 
 ---
