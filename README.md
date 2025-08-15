@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
+_"An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question. — *John Tukey*"_
 
 ---
