@@ -7,6 +7,6 @@
 
 ---
 
-_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
+_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
 
 ---
