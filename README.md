@@ -7,6 +7,6 @@
 
 ---
 
-_"If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — *Elon Musk*"_
+_"Your very silence shows you agree. — *Euripides*"_
 
 ---
