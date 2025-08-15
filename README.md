@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. — *Buddha*"_
 
 ---
