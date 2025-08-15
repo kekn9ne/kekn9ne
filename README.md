@@ -7,6 +7,6 @@
 
 ---
 
-_"What most people need to learn in life is how to love people and use things instead of using people and loving things. — *Unknown*"_
+_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
 
 ---
