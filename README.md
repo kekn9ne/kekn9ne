@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't spend time beating on a wall, hoping to transform it into a door. — *Coco Chanel*"_
+_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
 
 ---
