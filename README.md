@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends upon ourselves. — *Aristotle*"_
+_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
 
 ---
