@@ -7,6 +7,6 @@
 
 ---
 
-_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
+_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
 
 ---
