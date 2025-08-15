@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
+_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
 
 ---
