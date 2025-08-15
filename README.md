@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 15 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
 
 ---
 
-_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
