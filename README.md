@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
+_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
 
 ---
