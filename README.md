@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
+_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
 
 ---
