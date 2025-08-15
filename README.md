@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts. — *George Bernard Shaw*"_
+_"Far and away the best prize that life has to offer is the chance to work hard at work worth doing. — *Theodore Roosevelt*"_
 
 ---
