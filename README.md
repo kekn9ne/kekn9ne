@@ -7,6 +7,6 @@
 
 ---
 
-_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
+_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
 
 ---
