@@ -7,6 +7,6 @@
 
 ---
 
-_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
+_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
 
 ---
