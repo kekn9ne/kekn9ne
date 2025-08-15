@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
+_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
 
 ---
