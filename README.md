@@ -7,6 +7,6 @@
 
 ---
 
-_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
+_"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — *Joan Rivers*"_
 
 ---
