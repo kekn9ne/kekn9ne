@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
