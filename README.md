@@ -7,6 +7,6 @@
 
 ---
 
-_"When you rise in the morning, form a resolution to make the day a happy one for a fellow creature. — *Sydney Smith*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
