@@ -7,6 +7,6 @@
 
 ---
 
-_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
+_"Consider the rights of others before your own feelings, and the feelings of others before your own rights. — *John Wooden*"_
 
 ---
