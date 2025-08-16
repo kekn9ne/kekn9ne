@@ -7,6 +7,6 @@
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
 
 ---
