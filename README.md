@@ -7,6 +7,6 @@
 
 ---
 
-_"To forgive means pardoning the unpardonable. — *Gilbert Chesterton*"_
+_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
 
 ---
