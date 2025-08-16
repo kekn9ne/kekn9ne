@@ -7,6 +7,6 @@
 
 ---
 
-_"The smallest of actions is always better than the noblest of intentions. — *Robin Sharma*"_
+_"Life would be tragic if it weren't funny. — *Stephen Hawking*"_
 
 ---
