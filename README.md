@@ -7,6 +7,6 @@
 
 ---
 
-_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
+_"It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — *John Lennon*"_
 
 ---
