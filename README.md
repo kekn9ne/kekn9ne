@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be so open-minded that your brains fall out. — *Gilbert Chesterton*"_
+_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
 
 ---
