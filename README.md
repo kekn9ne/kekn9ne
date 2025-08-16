@@ -7,6 +7,6 @@
 
 ---
 
-_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
+_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
 
 ---
