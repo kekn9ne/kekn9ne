@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 16 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **ZIGANA** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Thinking is the hardest work there is, which is probably the reason why so few engage in it. — *Henry Ford*"_
+_"Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner. — *Arnold Schwarzenegger*"_
 
 ---
