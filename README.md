@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is an iceberg. — *Unknown*"_
+_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
 
 ---
