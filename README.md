@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try to micromanage yourself all you're going to do is make yourself miserable. — *Naval Ravikant*"_
+_"In the beginner's mind there are many possibilities, but in the expert's mind there are few. — *Shunryu Suzuki*"_
 
 ---
