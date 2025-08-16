@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
+_"By words the mind is winged. — *Aristophanes*"_
 
 ---
