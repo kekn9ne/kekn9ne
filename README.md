@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners don't Quit. That's why they Win. — *Unknown*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
