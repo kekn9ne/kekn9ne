@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Uzak** by *Kayra* 🎶
+🎧 Currently Listening: **Şart olsun** by *lusttqwe* 🎶
 
 ---
 
-_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
+_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
 
 ---
