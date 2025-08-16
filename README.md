@@ -7,6 +7,6 @@
 
 ---
 
-_"By words the mind is winged. — *Aristophanes*"_
+_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
 
 ---
