@@ -7,6 +7,6 @@
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
 
 ---
