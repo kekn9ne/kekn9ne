@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Şart olsun** by *lusttqwe* 🎶
+🎧 Currently Listening: **Olmadı** by *Velet* 🎶
 
 ---
 
-_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
+_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
 
 ---
