@@ -7,6 +7,6 @@
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
 
 ---
