@@ -7,6 +7,6 @@
 
 ---
 
-_"I do not seek. I find. — *Pablo Picasso*"_
+_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
 
 ---
