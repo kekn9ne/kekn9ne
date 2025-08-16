@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 16 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
 
 ---
 
-_"There is peace even in the storm. — *Vincent van Gogh*"_
+_"At every moment where language can't go, that's your mind. — *Bodhidharma*"_
 
 ---
