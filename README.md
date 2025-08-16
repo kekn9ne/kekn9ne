@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
+_"The source of a true smile is an awakened mind. — *Thich Nhat Hanh*"_
 
 ---
