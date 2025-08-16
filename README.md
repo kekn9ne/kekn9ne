@@ -7,6 +7,6 @@
 
 ---
 
-_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
+_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
 
 ---
