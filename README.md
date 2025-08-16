@@ -7,6 +7,6 @@
 
 ---
 
-_"Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner. — *Arnold Schwarzenegger*"_
+_"We must create our own world or we will die from inaction. — *Robert Greene*"_
 
 ---
