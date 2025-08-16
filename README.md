@@ -7,6 +7,6 @@
 
 ---
 
-_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
+_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
 
 ---
