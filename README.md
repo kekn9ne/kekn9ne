@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"I do not seek. I find. — *Pablo Picasso*"_
 
 ---
