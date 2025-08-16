@@ -7,6 +7,6 @@
 
 ---
 
-_"Life would be tragic if it weren't funny. — *Stephen Hawking*"_
+_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
 
 ---
