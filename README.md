@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Böyle İyi** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
+_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
 
 ---
