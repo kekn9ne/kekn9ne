@@ -7,6 +7,6 @@
 
 ---
 
-_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
+_"Talk does not cook rice. — *Chinese Proverb*"_
 
 ---
