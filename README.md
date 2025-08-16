@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
+_"Make each day your masterpiece. — *John Wooden*"_
 
 ---
