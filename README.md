@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy. — *Roy T. Bennett*"_
+_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
 
 ---
