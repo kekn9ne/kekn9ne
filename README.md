@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Uzak** by *Kayra* 🎶
 
 ---
 
-_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
+_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
 
 ---
