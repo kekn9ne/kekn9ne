@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
+_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
 
 ---
