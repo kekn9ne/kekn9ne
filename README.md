@@ -7,6 +7,6 @@
 
 ---
 
-_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
+_"The ones who are crazy enough to think they can change the world, are the ones that do. — *Steve Jobs*"_
 
 ---
