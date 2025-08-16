@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
+_"Winners don't Quit. That's why they Win. — *Unknown*"_
 
 ---
