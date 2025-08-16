@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BOYNA GALAVA** by *Batuflex* 🎶
 
 ---
 
-_"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf. — *Dan Millman*"_
+_"To do two things at once is to do neither. — *Publilius Syrus*"_
 
 ---
