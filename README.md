@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 16 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **NERDESİNİZ** by *Lvbel C5* 🎶
 
 ---
 
-_"The ones who are crazy enough to think they can change the world, are the ones that do. — *Steve Jobs*"_
+_"The birth of the mind is the death of the senses. — *Dan Millman*"_
 
 ---
