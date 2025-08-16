@@ -7,6 +7,6 @@
 
 ---
 
-_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
+_"I admire those who do good and expect nothing in return. — *Roy T. Bennett*"_
 
 ---
