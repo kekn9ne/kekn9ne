@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
+_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
 
 ---
