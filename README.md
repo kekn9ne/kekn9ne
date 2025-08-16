@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
+_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
 
 ---
