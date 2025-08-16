@@ -7,6 +7,6 @@
 
 ---
 
-_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
+_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
 
 ---
