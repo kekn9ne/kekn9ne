@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
 
 ---
