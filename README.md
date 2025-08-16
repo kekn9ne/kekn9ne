@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Olmadı** by *Velet* 🎶
+🎧 Currently Listening: **Seni Yazdım** by *ElMusto* 🎶
 
 ---
 
-_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
+_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
