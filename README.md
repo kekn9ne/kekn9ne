@@ -7,6 +7,6 @@
 
 ---
 
-_"Eighty percent of success is showing up.  — *Woody Allen*"_
+_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
 
 ---
