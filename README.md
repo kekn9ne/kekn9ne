@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk does not cook rice. — *Chinese Proverb*"_
+_"The smallest of actions is always better than the noblest of intentions. — *Robin Sharma*"_
 
 ---
