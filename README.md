@@ -7,6 +7,6 @@
 
 ---
 
-_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
+_"Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition. — *John Eliot*"_
 
 ---
