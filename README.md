@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 16 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kacarsa Vur** by *2vlnys* 🎶
 
 ---
 
-_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
+_"The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind. — *F. Scott Fitzgerald*"_
 
 ---
