@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
