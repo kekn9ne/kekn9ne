@@ -7,6 +7,6 @@
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
