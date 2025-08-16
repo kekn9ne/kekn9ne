@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **BOYNA GALAVA** by *Batuflex* 🎶
+🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
 
 ---
 
-_"To do two things at once is to do neither. — *Publilius Syrus*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
