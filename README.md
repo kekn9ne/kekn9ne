@@ -7,6 +7,6 @@
 
 ---
 
-_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
+_"Integrity is telling myself the truth. And honesty is telling the truth to other people. — *Spencer Johnson*"_
 
 ---
