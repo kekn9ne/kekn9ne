@@ -7,6 +7,6 @@
 
 ---
 
-_"If you believe you can, you can. If you believe you can't, then, well you can't. — *Celestine Chua*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
