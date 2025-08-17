@@ -7,6 +7,6 @@
 
 ---
 
-_"Night is a more quiet time to work. It aids thought. — *Alexander Graham Bell*"_
+_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
 
 ---
