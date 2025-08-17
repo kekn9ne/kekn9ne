@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **ETA (feat. Luciano)** by *Nemzzz* 🎶
+🎧 Currently Listening: **Body (Remix) [feat. Capo Plaza & Rondodasosa]** by *Tion Wayne* 🎶
 
 ---
 
-_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
+_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
 
 ---
