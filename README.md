@@ -7,6 +7,6 @@
 
 ---
 
-_"Too many of us are not living our dreams because we are living our fears. — *Les Brown*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
