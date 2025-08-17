@@ -7,6 +7,6 @@
 
 ---
 
-_"Love doesn't need reason. It speaks from the irrational wisdom of the heart. — *Deepak Chopra*"_
+_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
 
 ---
