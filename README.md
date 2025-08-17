@@ -7,6 +7,6 @@
 
 ---
 
-_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
+_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
 
 ---
