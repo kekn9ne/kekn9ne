@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
+_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
 
 ---
