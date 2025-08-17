@@ -7,6 +7,6 @@
 
 ---
 
-_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
+_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
 
 ---
