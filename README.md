@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no significance in life without struggle. — *Lolly Daskal*"_
+_"Greatness lies not in being strong, but in the right use of strength. — *Henry Ward Beecher*"_
 
 ---
