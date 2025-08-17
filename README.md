@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
+_"The mind is the limit. — *Arnold Schwarzenegger*"_
 
 ---
