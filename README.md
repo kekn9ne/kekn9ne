@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 18 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Med Cezir** by *Ceza* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
