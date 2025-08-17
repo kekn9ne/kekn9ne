@@ -7,6 +7,6 @@
 
 ---
 
-_"It is only depth of character that determines the profundity with which we face life. — *Ming-Dao Deng*"_
+_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
 
 ---
