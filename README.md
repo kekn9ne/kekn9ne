@@ -7,6 +7,6 @@
 
 ---
 
-_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
+_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
 
 ---
