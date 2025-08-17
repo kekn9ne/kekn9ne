@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Knock Knock** by *Tion Wayne* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. — *Thomas Edison*"_
+_"The greatest mistake you can make in life is to be continually fearing you will make one. — *Elbert Hubbard*"_
 
 ---
