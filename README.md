@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
 
 ---
