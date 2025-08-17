@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
+_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
 
 ---
