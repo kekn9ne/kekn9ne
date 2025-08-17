@@ -7,6 +7,6 @@
 
 ---
 
-_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
+_"The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings. — *Henry Ward Beecher*"_
 
 ---
