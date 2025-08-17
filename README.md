@@ -7,6 +7,6 @@
 
 ---
 
-_"All men are equal before fish. — *Herbert Hoover*"_
+_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
 
 ---
