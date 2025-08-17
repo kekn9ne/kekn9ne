@@ -7,6 +7,6 @@
 
 ---
 
-_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
+_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
 
 ---
