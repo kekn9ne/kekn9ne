@@ -7,6 +7,6 @@
 
 ---
 
-_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
