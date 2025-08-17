@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"Charms strike the sight, but merit wins the soul. — *Alexander Pope*"_
 
 ---
