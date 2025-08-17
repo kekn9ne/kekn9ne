@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
