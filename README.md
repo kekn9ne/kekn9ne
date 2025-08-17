@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no coming to consciousness without pain — *Carl Jung*"_
+_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
 
 ---
