@@ -7,6 +7,6 @@
 
 ---
 
-_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
+_"The whole is greater than the sum of its parts. — *Aristotle*"_
 
 ---
