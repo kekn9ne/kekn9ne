@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest mistake you can make in life is to be continually fearing you will make one. — *Elbert Hubbard*"_
+_"Make no small plans for they have no power to stir the soul. — *Niccolo Machiavelli*"_
 
 ---
