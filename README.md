@@ -7,6 +7,6 @@
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"Progress is impossible without change, and those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
 
 ---
