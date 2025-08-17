@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 17 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +26°C**  
+🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **2MS** by *Nemzzz* 🎶
 
 ---
 
-_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
+_"People become attached to their burdens sometimes more than the burdens are attached to them. — *George Bernard Shaw*"_
 
 ---
