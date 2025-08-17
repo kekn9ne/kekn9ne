@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is impossible without change, and those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
+_"Success on the outside means nothing unless you also have success within. — *Robin Sharma*"_
 
 ---
