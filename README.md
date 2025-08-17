@@ -7,6 +7,6 @@
 
 ---
 
-_"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies. — *Emily Dickinson*"_
+_"Where there's life, there's hope. — *Stephen Hawking*"_
 
 ---
