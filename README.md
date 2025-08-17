@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not always a matter of holding good cards, but sometimes, playing a poor hand well.  — *Jack London*"_
+_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
 
 ---
