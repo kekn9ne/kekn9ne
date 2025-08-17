@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
+_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
 
 ---
