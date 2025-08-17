@@ -7,6 +7,6 @@
 
 ---
 
-_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
+_"Life is not always a matter of holding good cards, but sometimes, playing a poor hand well.  — *Jack London*"_
 
 ---
