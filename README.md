@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatness lies not in being strong, but in the right use of strength. — *Henry Ward Beecher*"_
+_"There's no coming to consciousness without pain — *Carl Jung*"_
 
 ---
