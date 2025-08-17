@@ -7,6 +7,6 @@
 
 ---
 
-_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
+_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
 
 ---
