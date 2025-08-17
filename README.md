@@ -7,6 +7,6 @@
 
 ---
 
-_"Charms strike the sight, but merit wins the soul. — *Alexander Pope*"_
+_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
 
 ---
