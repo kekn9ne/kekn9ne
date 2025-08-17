@@ -7,6 +7,6 @@
 
 ---
 
-_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
