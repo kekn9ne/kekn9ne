@@ -7,6 +7,6 @@
 
 ---
 
-_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
+_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
 
 ---
