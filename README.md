@@ -7,6 +7,6 @@
 
 ---
 
-_"The mind is the limit. — *Arnold Schwarzenegger*"_
+_"It is only depth of character that determines the profundity with which we face life. — *Ming-Dao Deng*"_
 
 ---
