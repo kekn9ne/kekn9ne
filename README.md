@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
