@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
 
 ---
