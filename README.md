@@ -7,6 +7,6 @@
 
 ---
 
-_"A single dream is more powerful than a thousand realities. — *J.R.R. Tolkien*"_
+_"Love doesn't need reason. It speaks from the irrational wisdom of the heart. — *Deepak Chopra*"_
 
 ---
