@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
 
 ---
