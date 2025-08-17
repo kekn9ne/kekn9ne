@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there's life, there's hope. — *Stephen Hawking*"_
+_"Too many of us are not living our dreams because we are living our fears. — *Les Brown*"_
 
 ---
