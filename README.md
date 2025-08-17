@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
 
 ---
