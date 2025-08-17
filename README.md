@@ -7,6 +7,6 @@
 
 ---
 
-_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
+_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
 
 ---
