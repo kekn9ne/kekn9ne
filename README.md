@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
+_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
 
 ---
