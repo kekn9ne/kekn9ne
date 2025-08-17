@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
+_"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies. — *Emily Dickinson*"_
 
 ---
