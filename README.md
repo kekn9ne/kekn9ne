@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
+_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
 
 ---
