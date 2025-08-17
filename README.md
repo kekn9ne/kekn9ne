@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
