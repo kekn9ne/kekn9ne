@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 17 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Knock Knock** by *Tion Wayne* 🎶
 
 ---
 
-_"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — *Henry Ward Beecher*"_
+_"Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. — *Thomas Edison*"_
 
 ---
