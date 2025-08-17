@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
+_"It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have. — *Gary Keller*"_
 
 ---
