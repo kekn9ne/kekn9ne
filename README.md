@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
+_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
 
 ---
