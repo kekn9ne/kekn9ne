@@ -7,6 +7,6 @@
 
 ---
 
-_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
+_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
 
 ---
