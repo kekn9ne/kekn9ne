@@ -7,6 +7,6 @@
 
 ---
 
-_"If you look for perfection, you'll never be content. — *Leo Tolstoy*"_
+_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
 
 ---
