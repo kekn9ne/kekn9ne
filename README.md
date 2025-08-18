@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
+_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
 
 ---
