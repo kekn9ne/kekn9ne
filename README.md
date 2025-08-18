@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 18 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
 
 ---
