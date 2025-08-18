@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't what you do, but how you do it. — *John Wooden*"_
+_"Self-control is strength. — *James Allen*"_
 
 ---
