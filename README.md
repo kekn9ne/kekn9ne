@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no significance in life without struggle. — *Lolly Daskal*"_
+_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
 
 ---
