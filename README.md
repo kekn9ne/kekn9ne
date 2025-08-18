@@ -7,6 +7,6 @@
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
 
 ---
