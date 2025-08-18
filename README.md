@@ -7,6 +7,6 @@
 
 ---
 
-_"Self-control is strength. — *James Allen*"_
+_"Talk does not cook rice. — *Chinese Proverb*"_
 
 ---
