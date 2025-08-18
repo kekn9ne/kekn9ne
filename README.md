@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
+_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
 
 ---
