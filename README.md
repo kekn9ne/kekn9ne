@@ -7,6 +7,6 @@
 
 ---
 
-_"Living life in style also means living a life of balance. — *Jim Rohn*"_
+_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
 
 ---
