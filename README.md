@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 18 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **SLM** by *Batuflex* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
+_"He who fails to plan, plans to fail. — *Unknown*"_
 
 ---
