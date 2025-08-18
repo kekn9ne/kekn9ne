@@ -7,6 +7,6 @@
 
 ---
 
-_"Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner. — *Sonia Ricotti*"_
+_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
 
 ---
