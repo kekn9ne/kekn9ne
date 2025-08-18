@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 18 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
+_"When one door closes another door opens.  — *Alexander Graham Bell*"_
 
 ---
