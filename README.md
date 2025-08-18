@@ -7,6 +7,6 @@
 
 ---
 
-_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
+_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
 
 ---
