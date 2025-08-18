@@ -7,6 +7,6 @@
 
 ---
 
-_"Even in the grave, all is not lost. — *Edgar Allan Poe*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
