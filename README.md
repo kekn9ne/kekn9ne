@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
+_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
 
 ---
