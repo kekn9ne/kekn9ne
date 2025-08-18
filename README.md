@@ -7,6 +7,6 @@
 
 ---
 
-_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
