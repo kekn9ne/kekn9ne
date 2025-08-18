@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 18 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Prenses 2.0** by *Dethron* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be brave enough to suck at something new. — *Unknown*"_
+_"We build too many walls and not enough bridges. — *Isaac Newton*"_
 
 ---
