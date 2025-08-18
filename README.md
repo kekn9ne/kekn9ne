@@ -7,6 +7,6 @@
 
 ---
 
-_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
+_"Receive without complaint, Work with fate. — *Ming-Dao Deng*"_
 
 ---
