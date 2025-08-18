@@ -7,6 +7,6 @@
 
 ---
 
-_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
+_"Even in the grave, all is not lost. — *Edgar Allan Poe*"_
 
 ---
