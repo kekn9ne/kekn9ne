@@ -7,6 +7,6 @@
 
 ---
 
-_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
