@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 18 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +26°C**  
+🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
+_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
 
 ---
