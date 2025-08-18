@@ -7,6 +7,6 @@
 
 ---
 
-_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
+_"If you look for perfection, you'll never be content. — *Leo Tolstoy*"_
 
 ---
