@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
+_"Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner. — *Sonia Ricotti*"_
 
 ---
