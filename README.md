@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is never final; failure is never fatal. — *Conrad Hilton*"_
+_"Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity. — *Charles Spurgeon*"_
 
 ---
