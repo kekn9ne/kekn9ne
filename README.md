@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
+_"The foolish reject what they see, not what they think; the wise reject what they think, not what they see. — *Huang Po*"_
 
 ---
