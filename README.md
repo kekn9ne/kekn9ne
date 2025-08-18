@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
