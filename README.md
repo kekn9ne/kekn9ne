@@ -7,6 +7,6 @@
 
 ---
 
-_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
