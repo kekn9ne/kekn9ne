@@ -7,6 +7,6 @@
 
 ---
 
-_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
+_"Remember that the best relationship is one in which your love for each other exceeds your need for each other. — *Dalai Lama*"_
 
 ---
