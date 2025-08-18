@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
+_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
 
 ---
