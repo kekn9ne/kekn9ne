@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"The less you respond to negative people, the more positive your life will become. — *Paulo Coelho*"_
 
 ---
