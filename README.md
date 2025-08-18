@@ -7,6 +7,6 @@
 
 ---
 
-_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
+_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
 
 ---
