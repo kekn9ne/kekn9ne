@@ -7,6 +7,6 @@
 
 ---
 
-_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
+_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
 
 ---
