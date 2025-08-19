@@ -7,6 +7,6 @@
 
 ---
 
-_"If you done it, it ain't bragging. — *Walt Whitman*"_
+_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
 
 ---
