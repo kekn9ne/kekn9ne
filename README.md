@@ -7,6 +7,6 @@
 
 ---
 
-_"This is such a short and precious life that it's really important that you don't spend it being unhappy. — *Naval Ravikant*"_
+_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
 
 ---
