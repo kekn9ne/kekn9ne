@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Tuesday, 19 August 2025**  
+🗓️ Today is: **Wednesday, 20 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
+_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
 
 ---
