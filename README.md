@@ -7,6 +7,6 @@
 
 ---
 
-_"The attempt to escape from pain, is what creates more pain. — *Gabor Mate*"_
+_"Our joy does not have to be based on our circumstances. — *Joyce Meyer*"_
 
 ---
