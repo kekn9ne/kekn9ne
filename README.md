@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 19 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +29°C**  
+🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
+_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
 
 ---
