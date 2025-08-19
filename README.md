@@ -7,6 +7,6 @@
 
 ---
 
-_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
+_"To be able to forget means sanity. — *Jack London*"_
 
 ---
