@@ -7,6 +7,6 @@
 
 ---
 
-_"Without the confidence, nothing can be accomplished. — *Sathya Sai Baba*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
