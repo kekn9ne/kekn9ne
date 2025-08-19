@@ -7,6 +7,6 @@
 
 ---
 
-_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
+_"Giving is living. If you stop wanting to give, there's nothing more to live for. — *Audrey Hepburn*"_
 
 ---
