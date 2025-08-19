@@ -7,6 +7,6 @@
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
 
 ---
