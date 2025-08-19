@@ -7,6 +7,6 @@
 
 ---
 
-_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
 
 ---
