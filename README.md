@@ -7,6 +7,6 @@
 
 ---
 
-_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
+_"A zen master's life is one continuous mistake. — *Dogen*"_
 
 ---
