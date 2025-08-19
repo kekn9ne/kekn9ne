@@ -7,6 +7,6 @@
 
 ---
 
-_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
+_"If you want peace, you won't get it with violence. — *John Lennon*"_
 
 ---
