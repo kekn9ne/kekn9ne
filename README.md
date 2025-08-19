@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 19 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Kacarsa Vur** by *2vlnys* 🎶
+🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
 
 ---
 
-_"Health is the greatest of all possessions. — *Jonathan Swift*"_
+_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
 
 ---
