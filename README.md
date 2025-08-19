@@ -7,6 +7,6 @@
 
 ---
 
-_"Life begins where fear ends. — *Osho*"_
+_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
 
 ---
