@@ -7,6 +7,6 @@
 
 ---
 
-_"To be able to forget means sanity. — *Jack London*"_
+_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
 
 ---
