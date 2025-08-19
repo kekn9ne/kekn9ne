@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 19 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Arabayı Yakalım Mı** by *Mokali* 🎶
+🎧 Currently Listening: **Kacarsa Vur** by *2vlnys* 🎶
 
 ---
 
-_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
+_"Health is the greatest of all possessions. — *Jonathan Swift*"_
 
 ---
