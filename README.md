@@ -7,6 +7,6 @@
 
 ---
 
-_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
+_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
