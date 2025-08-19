@@ -7,6 +7,6 @@
 
 ---
 
-_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
+_"If you are going to achieve excellence in big things, you develop the habit in little matters. — *Colin Powell*"_
 
 ---
