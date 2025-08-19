@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 19 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Arabayı Yakalım Mı** by *Mokali* 🎶
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
 
 ---
