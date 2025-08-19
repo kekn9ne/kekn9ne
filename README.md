@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever happens always happens on time. — *Zen Proverb*"_
+_"Man's character is his fate. — *Heraclitus*"_
 
 ---
