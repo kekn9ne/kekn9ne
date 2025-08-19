@@ -7,6 +7,6 @@
 
 ---
 
-_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
+_"An ounce of performance is worth pounds of promises. — *Mae West*"_
 
 ---
