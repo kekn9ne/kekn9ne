@@ -7,6 +7,6 @@
 
 ---
 
-_"Youth has no age. — *Pablo Picasso*"_
+_"Fear, uncertainty, and discomfort are your compasses toward growth. — *Celestine Chua*"_
 
 ---
