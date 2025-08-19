@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change. — *Mark Manson*"_
+_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
 
 ---
