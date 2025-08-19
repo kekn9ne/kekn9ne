@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 19 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
 
 ---
 
-_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
+_"Treat everyone with politeness and kindness, not because they are nice, but because you are. — *Roy T. Bennett*"_
 
 ---
