@@ -7,6 +7,6 @@
 
 ---
 
-_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
+_"We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change. — *Mark Manson*"_
 
 ---
