@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
