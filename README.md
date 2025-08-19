@@ -7,6 +7,6 @@
 
 ---
 
-_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
+_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
 
 ---
