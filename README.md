@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want peace, you won't get it with violence. — *John Lennon*"_
+_"You cannot have a positive life and a negative mind. — *Joyce Meyer*"_
 
 ---
