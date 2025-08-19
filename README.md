@@ -7,6 +7,6 @@
 
 ---
 
-_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
+_"Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. — *Zen Proverb*"_
 
 ---
