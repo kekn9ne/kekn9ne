@@ -7,6 +7,6 @@
 
 ---
 
-_"Our joy does not have to be based on our circumstances. — *Joyce Meyer*"_
+_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
 
 ---
