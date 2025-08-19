@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot have a positive life and a negative mind. — *Joyce Meyer*"_
+_"For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter. — *Celestine Chua*"_
 
 ---
