@@ -7,6 +7,6 @@
 
 ---
 
-_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
+_"If you hang out with chickens, you're going to cluck and if you hang out with eagles, you're going to fly. — *Steve Maraboli*"_
 
 ---
