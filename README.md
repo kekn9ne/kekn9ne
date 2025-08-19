@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are tough on yourself, life is going to be infinitely easier on you.   — *Zig Ziglar*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
