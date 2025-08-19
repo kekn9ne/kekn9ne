@@ -7,6 +7,6 @@
 
 ---
 
-_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
+_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
 
 ---
