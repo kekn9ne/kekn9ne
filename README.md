@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are going to achieve excellence in big things, you develop the habit in little matters. — *Colin Powell*"_
+_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
 
 ---
