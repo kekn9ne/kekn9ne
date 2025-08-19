@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
+_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
 
 ---
