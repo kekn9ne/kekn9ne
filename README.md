@@ -7,6 +7,6 @@
 
 ---
 
-_"For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter. — *Celestine Chua*"_
+_"Our life isn't how much we can take out, but how much we can put in.   — *Estee Lauder*"_
 
 ---
