@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving is living. If you stop wanting to give, there's nothing more to live for. — *Audrey Hepburn*"_
+_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
 
 ---
