@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
 
 ---
