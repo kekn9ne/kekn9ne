@@ -7,6 +7,6 @@
 
 ---
 
-_"Our life isn't how much we can take out, but how much we can put in.   — *Estee Lauder*"_
+_"The most important things are the hardest to say. — *Stephen King*"_
 
 ---
