@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't like something change it; if you can't change it, change the way you think about it. — *Mary Engelbreit*"_
+_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
 
 ---
