@@ -7,6 +7,6 @@
 
 ---
 
-_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
+_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
 
 ---
