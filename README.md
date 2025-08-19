@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 19 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
+🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
 
 ---
 
-_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
+_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
 
 ---
