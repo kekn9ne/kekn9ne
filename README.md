@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
+_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
 
 ---
