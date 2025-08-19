@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't criticize what you can't understand.  — *Bob Dylan*"_
+_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
 
 ---
