@@ -7,6 +7,6 @@
 
 ---
 
-_"Your purpose will be clear only when you listen to your heart. — *Lolly Daskal*"_
+_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
 
 ---
