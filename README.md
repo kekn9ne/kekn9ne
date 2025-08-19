@@ -7,6 +7,6 @@
 
 ---
 
-_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
+_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
 
 ---
