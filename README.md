@@ -7,6 +7,6 @@
 
 ---
 
-_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
+_"Your purpose will be clear only when you listen to your heart. — *Lolly Daskal*"_
 
 ---
