@@ -7,6 +7,6 @@
 
 ---
 
-_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
+_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
 
 ---
