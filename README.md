@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
+_"Without the confidence, nothing can be accomplished. — *Sathya Sai Baba*"_
 
 ---
