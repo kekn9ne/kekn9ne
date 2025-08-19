@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
+_"The attempt to escape from pain, is what creates more pain. — *Gabor Mate*"_
 
 ---
