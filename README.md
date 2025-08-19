@@ -7,6 +7,6 @@
 
 ---
 
-_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
+_"When you are tough on yourself, life is going to be infinitely easier on you.   — *Zig Ziglar*"_
 
 ---
