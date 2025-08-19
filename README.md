@@ -7,6 +7,6 @@
 
 ---
 
-_"I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams. — *D. H. Lawrence*"_
+_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
 
 ---
