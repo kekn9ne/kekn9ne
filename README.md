@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
+_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
 
 ---
