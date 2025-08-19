@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear, uncertainty, and discomfort are your compasses toward growth. — *Celestine Chua*"_
+_"Success is often achieved by those who don't know that failure is inevitable. — *Coco Chanel*"_
 
 ---
