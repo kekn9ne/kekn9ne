@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
 
 ---
