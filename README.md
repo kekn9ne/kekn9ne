@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is the beginning of creation. — *George Bernard Shaw*"_
+_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
 
 ---
