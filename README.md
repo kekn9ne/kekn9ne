@@ -7,6 +7,6 @@
 
 ---
 
-_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
+_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
 
 ---
