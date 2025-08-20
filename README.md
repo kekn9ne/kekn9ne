@@ -7,6 +7,6 @@
 
 ---
 
-_"There are only two ways to live your life. One is as if nothing is a miracle. The other is as if everything is a miracle. — *Albert Einstein*"_
+_"There are no limitations to the mind except those we acknowledge... — *Napoleon Hill*"_
 
 ---
