@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
+_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
 
 ---
