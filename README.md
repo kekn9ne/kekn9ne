@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
 
 ---
