@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who is his own master cannot tolerate another boss.  — *Chinese Proverb*"_
+_"You're never given a dream without also being given the power to make it true. — *Richard Bach*"_
 
 ---
