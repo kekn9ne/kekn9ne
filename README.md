@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
+_"Short cuts make long delays. — *J.R.R. Tolkien*"_
 
 ---
