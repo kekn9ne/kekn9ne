@@ -7,6 +7,6 @@
 
 ---
 
-_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
+_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
 
 ---
