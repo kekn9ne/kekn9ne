@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get, the better you get. Unless you're a banana. — *Betty White*"_
+_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
 
 ---
