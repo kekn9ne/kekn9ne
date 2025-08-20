@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
+_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
 
 ---
