@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no limitations to the mind except those we acknowledge... — *Napoleon Hill*"_
+_"Your gift is something that you can do innately better than anything else. — *Steve Harvey*"_
 
 ---
