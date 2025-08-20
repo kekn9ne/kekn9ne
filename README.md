@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 20 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
+_"When your intuition is strong, follow it. — *Lolly Daskal*"_
 
 ---
