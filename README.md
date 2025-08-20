@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 20 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DOĞUŞTAN BERİ HAKLIYIM (tmm)** by *Lvbel C5* 🎶
 
 ---
 
-_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
+_"Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service. — *Earl Nightingale*"_
 
 ---
