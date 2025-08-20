@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 20 August 2025**  
 🌤️ Weather in Istanbul: **🌦   +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **maalesef** by *Ravend* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
+_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
 
 ---
