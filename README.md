@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
+_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
 
 ---
