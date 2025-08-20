@@ -7,6 +7,6 @@
 
 ---
 
-_"It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose. — *Ming-Dao Deng*"_
+_"The older you get, the better you get. Unless you're a banana. — *Betty White*"_
 
 ---
