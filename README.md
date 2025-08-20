@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
+_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
 
 ---
