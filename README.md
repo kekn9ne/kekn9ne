@@ -7,6 +7,6 @@
 
 ---
 
-_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
+_"It always seems impossible until it's done. — *Nelson Mandela*"_
 
 ---
