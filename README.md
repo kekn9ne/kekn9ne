@@ -7,6 +7,6 @@
 
 ---
 
-_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
+_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
 
 ---
