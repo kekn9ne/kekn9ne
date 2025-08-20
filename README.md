@@ -7,6 +7,6 @@
 
 ---
 
-_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
+_"True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. — *Socrates*"_
 
 ---
