@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
+_"The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality. — *Brian Tracy*"_
 
 ---
