@@ -7,6 +7,6 @@
 
 ---
 
-_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
+_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
 
 ---
