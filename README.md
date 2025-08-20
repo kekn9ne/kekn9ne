@@ -7,6 +7,6 @@
 
 ---
 
-_"A real decision is measured by the fact that you've taken a new action. If there's no action, you haven't truly decided. — *Tony Robbins*"_
+_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
 
 ---
