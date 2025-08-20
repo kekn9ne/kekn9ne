@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
+_"Forgive yourself for your faults and your mistakes and move on. — *Les Brown*"_
 
 ---
