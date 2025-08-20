@@ -7,6 +7,6 @@
 
 ---
 
-_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
+_"One loyal friend is worth ten thousand relatives. — *Euripides*"_
 
 ---
