@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 20 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
