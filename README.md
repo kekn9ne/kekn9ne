@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in your moments of decision that your destiny is shaped. — *Tony Robbins*"_
+_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
 
 ---
