@@ -7,6 +7,6 @@
 
 ---
 
-_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
+_"Courage Is a Love Affair with the Unknown — *Osho*"_
 
 ---
