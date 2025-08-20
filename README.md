@@ -7,6 +7,6 @@
 
 ---
 
-_"One loyal friend is worth ten thousand relatives. — *Euripides*"_
+_"Arise, slay thy enemies, enjoy a prosperous kingdom. — *Bhagavad Gita*"_
 
 ---
