@@ -7,6 +7,6 @@
 
 ---
 
-_"Arise, slay thy enemies, enjoy a prosperous kingdom. — *Bhagavad Gita*"_
+_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
 
 ---
