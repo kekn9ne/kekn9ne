@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 20 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **INTRO(PARALEL)** by *Era7capone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Children are our greatest natural resource. — *Herbert Hoover*"_
+_"Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending. — *Carl Bard*"_
 
 ---
