@@ -7,6 +7,6 @@
 
 ---
 
-_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
+_"It ain't where you start in life, it's where you end up, and what you did along the way. — *Colin Powell*"_
 
 ---
