@@ -7,6 +7,6 @@
 
 ---
 
-_"Freeing oneself from words is liberation.  — *Bodhidharma*"_
+_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
 
 ---
