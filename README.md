@@ -7,6 +7,6 @@
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
 
 ---
