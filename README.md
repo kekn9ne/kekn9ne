@@ -7,6 +7,6 @@
 
 ---
 
-_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
+_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
 
 ---
