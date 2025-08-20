@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 20 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +27°C**  
+🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
+_"It doesn't matter what you do, only how well you do it. — *Dan Millman*"_
 
 ---
