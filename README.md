@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
+_"When you are able to employ your will always for constructive purposes, you become the controller of your destiny. — *Paramahansa Yogananda*"_
 
 ---
