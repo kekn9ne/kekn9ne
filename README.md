@@ -7,6 +7,6 @@
 
 ---
 
-_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
+_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
 
 ---
