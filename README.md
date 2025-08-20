@@ -7,6 +7,6 @@
 
 ---
 
-_"Your gift is something that you can do innately better than anything else. — *Steve Harvey*"_
+_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
 
 ---
