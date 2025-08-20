@@ -7,6 +7,6 @@
 
 ---
 
-_"It always seems impossible until it's done. — *Nelson Mandela*"_
+_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
 
 ---
