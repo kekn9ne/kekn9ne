@@ -7,6 +7,6 @@
 
 ---
 
-_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
+_"It is in your moments of decision that your destiny is shaped. — *Tony Robbins*"_
 
 ---
