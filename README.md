@@ -7,6 +7,6 @@
 
 ---
 
-_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
+_"The measure of who we are is what we do with what we have. — *Vince Lombardi*"_
 
 ---
