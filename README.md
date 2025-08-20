@@ -7,6 +7,6 @@
 
 ---
 
-_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
+_"All problems are interpersonal relationship problems. — *Alfred Adler*"_
 
 ---
