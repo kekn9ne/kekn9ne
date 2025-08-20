@@ -7,6 +7,6 @@
 
 ---
 
-_"The measure of who we are is what we do with what we have. — *Vince Lombardi*"_
+_"Freeing oneself from words is liberation.  — *Bodhidharma*"_
 
 ---
