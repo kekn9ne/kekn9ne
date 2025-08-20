@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter what you do, only how well you do it. — *Dan Millman*"_
+_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
 
 ---
