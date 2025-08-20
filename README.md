@@ -7,6 +7,6 @@
 
 ---
 
-_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
+_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
 
 ---
