@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
 
 ---
