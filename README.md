@@ -7,6 +7,6 @@
 
 ---
 
-_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
+_"One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy. — *Elon Musk*"_
 
 ---
