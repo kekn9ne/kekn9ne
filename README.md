@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"What you become is far more important than what you get. — *Jim Rohn*"_
 
 ---
