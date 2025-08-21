@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
+_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
 
 ---
