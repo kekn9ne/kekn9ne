@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
 
 ---
 
-_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
