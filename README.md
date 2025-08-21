@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is simply the opportunity to begin again, this time more intelligently. — *Henry Ford*"_
+_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
 
 ---
