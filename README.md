@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 22 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Rock'n Roll** by *Cegıd* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
+_"We build too many walls and not enough bridges. — *Isaac Newton*"_
 
 ---
