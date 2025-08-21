@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest value of a picture is when it forces us to notice what we never expected to see. — *John Tukey*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
