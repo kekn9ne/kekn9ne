@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"For things to change, you have to change. — *Jim Rohn*"_
+_"Failure is simply the opportunity to begin again, this time more intelligently. — *Henry Ford*"_
 
 ---
