@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
+_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
 
 ---
