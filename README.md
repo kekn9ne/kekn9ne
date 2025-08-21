@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving is living. If you stop wanting to give, there's nothing more to live for. — *Audrey Hepburn*"_
+_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
 
 ---
