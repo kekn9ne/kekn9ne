@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. — *Thomas Jefferson*"_
+_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
 
 ---
