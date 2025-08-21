@@ -7,6 +7,6 @@
 
 ---
 
-_"What you become is far more important than what you get. — *Jim Rohn*"_
+_"Absurdity is the ecstasy of intellectualism. — *Criss Jami*"_
 
 ---
