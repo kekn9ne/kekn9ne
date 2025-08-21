@@ -7,6 +7,6 @@
 
 ---
 
-_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
+_"Giving is living. If you stop wanting to give, there's nothing more to live for. — *Audrey Hepburn*"_
 
 ---
