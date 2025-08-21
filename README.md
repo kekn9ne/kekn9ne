@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Olmadı** by *Velet* 🎶
+🎧 Currently Listening: **Dünya Gül Bana** by *No.1* 🎶
 
 ---
 
-_"The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace. — *Ming-Dao Deng*"_
+_"No matter how smart we may think we are, no matter how committed we are to our truth, we can lose our way. — *Kamal Ravikant*"_
 
 ---
