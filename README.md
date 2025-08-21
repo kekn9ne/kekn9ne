@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
+_"For things to change, you have to change. — *Jim Rohn*"_
 
 ---
