@@ -7,6 +7,6 @@
 
 ---
 
-_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
+_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
 
 ---
