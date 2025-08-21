@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Uzak** by *Kayra* 🎶
+🎧 Currently Listening: **Mahvet 2.0** by *Güneş* 🎶
 
 ---
 
-_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
+_"Your conscience is the measure of the honesty of your selfishness. Listen to it carefully. — *Richard Bach*"_
 
 ---
