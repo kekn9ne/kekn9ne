@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no value in anything until it is finished.  — *Genghis Khan*"_
+_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
 
 ---
