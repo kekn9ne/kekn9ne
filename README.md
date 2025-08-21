@@ -7,6 +7,6 @@
 
 ---
 
-_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
+_"Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it. — *Alexandre Dumas*"_
 
 ---
