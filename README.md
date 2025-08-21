@@ -7,6 +7,6 @@
 
 ---
 
-_"If I persist long enough I will win. — *Og Mandino*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
