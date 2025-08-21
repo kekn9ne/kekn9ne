@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
+🎧 Currently Listening: **Canavar** by *No.1* 🎶
 
 ---
 
-_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
+_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
 
 ---
