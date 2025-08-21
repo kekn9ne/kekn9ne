@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest value of a picture is when it forces us to notice what we never expected to see. — *John Tukey*"_
+_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
 
 ---
