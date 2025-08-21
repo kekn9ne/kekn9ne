@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 22 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **MASERATI** by *Organize* 🎶
+🎧 Currently Listening: **16-24** by *Wegh* 🎶
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"The guest will judge better of a feast than the cook. — *Aristotle*"_
 
 ---
