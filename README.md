@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
+_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
 
 ---
