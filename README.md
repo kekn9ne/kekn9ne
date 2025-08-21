@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Bu Sefer Sorun Bende** by *Sokrat St* 🎶
+🎧 Currently Listening: **Olmadı** by *Velet* 🎶
 
 ---
 
-_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace. — *Ming-Dao Deng*"_
 
 ---
