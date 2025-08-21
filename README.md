@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot find peace avoiding life. — *Virginia Woolf*"_
+_"If I persist long enough I will win. — *Og Mandino*"_
 
 ---
