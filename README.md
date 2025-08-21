@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
+_"You cannot find peace avoiding life. — *Virginia Woolf*"_
 
 ---
