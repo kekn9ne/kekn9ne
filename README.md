@@ -7,6 +7,6 @@
 
 ---
 
-_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
+_"Much learning does not teach understanding. — *Heraclitus*"_
 
 ---
