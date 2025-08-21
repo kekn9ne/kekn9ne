@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There is no significance in life without struggle. — *Lolly Daskal*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
