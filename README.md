@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
+_"Absurdity is the ecstasy of intellectualism. — *Criss Jami*"_
 
 ---
