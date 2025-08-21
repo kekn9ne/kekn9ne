@@ -7,6 +7,6 @@
 
 ---
 
-_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
+_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
 
 ---
