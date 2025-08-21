@@ -7,6 +7,6 @@
 
 ---
 
-_"Absurdity is the ecstasy of intellectualism. — *Criss Jami*"_
+_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
 
 ---
