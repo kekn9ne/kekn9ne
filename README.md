@@ -7,6 +7,6 @@
 
 ---
 
-_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
+_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
 
 ---
