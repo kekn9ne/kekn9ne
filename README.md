@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 21 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +28°C**  
+🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Para Yapmakta** by *Era7capone* 🎶
+🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
 
 ---
 
-_"Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality. — *Earl Nightingale*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
