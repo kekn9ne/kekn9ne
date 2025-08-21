@@ -7,6 +7,6 @@
 
 ---
 
-_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
+_"Don't be afraid to see what you see. — *Ronald Reagan*"_
 
 ---
