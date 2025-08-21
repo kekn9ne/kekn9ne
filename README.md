@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to see what you see. — *Ronald Reagan*"_
+_"It's not the men in your life that matters, it's the life in your men. — *Mae West*"_
 
 ---
