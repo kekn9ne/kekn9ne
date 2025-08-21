@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the men in your life that matters, it's the life in your men. — *Mae West*"_
+_"The greatest value of a picture is when it forces us to notice what we never expected to see. — *John Tukey*"_
 
 ---
