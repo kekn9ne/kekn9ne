@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Canavar** by *No.1* 🎶
+🎧 Currently Listening: **Şeytan ve Melekler** by *Heja* 🎶
 
 ---
 
-_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
+_"The future belongs to those who learn more skills and combine them in creative ways. — *Robert Greene*"_
 
 ---
