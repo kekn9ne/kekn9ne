@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 22 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **16-24** by *Wegh* 🎶
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"The guest will judge better of a feast than the cook. — *Aristotle*"_
+_"The future depends on what you do today.  — *Mahatma Gandhi*"_
 
 ---
