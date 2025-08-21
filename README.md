@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Korkma** by *Gazapizm* 🎶
+🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
 
 ---
