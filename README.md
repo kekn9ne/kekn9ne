@@ -7,6 +7,6 @@
 
 ---
 
-_"Prefer to be defeated in the presence of the wise than to excel among fools. — *Dogen*"_
+_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
 
 ---
