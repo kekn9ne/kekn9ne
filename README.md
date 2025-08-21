@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
+_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
 
 ---
