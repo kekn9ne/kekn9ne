@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **SLM** by *Batuflex* 🎶
+🎧 Currently Listening: **Para Yapmakta** by *Era7capone* 🎶
 
 ---
 
-_"The greatest test of courage on earth is to bear defeat without losing heart. — *Robert Greene*"_
+_"Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality. — *Earl Nightingale*"_
 
 ---
