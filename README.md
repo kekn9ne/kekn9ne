@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
+🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
 
 ---
 
-_"Debt is the slavery of the free. — *Publilius Syrus*"_
+_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
 
 ---
