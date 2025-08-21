@@ -7,6 +7,6 @@
 
 ---
 
-_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
+_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
 
 ---
