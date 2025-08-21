@@ -7,6 +7,6 @@
 
 ---
 
-_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
+_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
 
 ---
