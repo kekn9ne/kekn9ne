@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Thursday, 21 August 2025**  
+🗓️ Today is: **Friday, 22 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **SUKUNA ITADORI** by *13 Killoki* 🎶
+🎧 Currently Listening: **Rock'n Roll** by *Cegıd* 🎶
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
 
 ---
