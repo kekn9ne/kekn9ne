@@ -7,6 +7,6 @@
 
 ---
 
-_"Much learning does not teach understanding. — *Heraclitus*"_
+_"Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. — *Thomas Jefferson*"_
 
 ---
