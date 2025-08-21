@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Zigana 2.0** by *Dethron* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
