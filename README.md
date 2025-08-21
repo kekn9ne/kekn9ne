@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. — *Deepak Chopra*"_
+_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
 
 ---
