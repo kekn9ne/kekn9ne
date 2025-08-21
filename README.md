@@ -7,6 +7,6 @@
 
 ---
 
-_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
+_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
 
 ---
