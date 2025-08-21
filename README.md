@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
 
 ---
 
-_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
+_"Be approximately right rather than exactly wrong. — *John Tukey*"_
 
 ---
