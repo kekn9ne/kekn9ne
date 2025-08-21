@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
+_"There is no value in anything until it is finished.  — *Genghis Khan*"_
 
 ---
