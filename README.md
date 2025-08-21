@@ -7,6 +7,6 @@
 
 ---
 
-_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
+_"Prefer to be defeated in the presence of the wise than to excel among fools. — *Dogen*"_
 
 ---
