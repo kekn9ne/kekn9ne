@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Mükemmeliyetçi** by *Ceg* 🎶
+🎧 Currently Listening: **Sağlamlık Testi** by *Borqy* 🎶
 
 ---
 
-_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
+_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
 
 ---
