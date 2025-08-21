@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 21 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mükemmeliyetçi** by *Ceg* 🎶
 
 ---
 
-_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
+_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
 
 ---
