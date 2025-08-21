@@ -7,6 +7,6 @@
 
 ---
 
-_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
+_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
 
 ---
