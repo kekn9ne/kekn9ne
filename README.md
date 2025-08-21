@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
+_"There is no truth. There is only perception. — *Gustave Flaubert*"_
 
 ---
