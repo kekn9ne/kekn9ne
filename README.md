@@ -7,6 +7,6 @@
 
 ---
 
-_"You have as much laughter as you have faith. — *Martin Luther*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
