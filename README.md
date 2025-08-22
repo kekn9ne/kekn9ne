@@ -7,6 +7,6 @@
 
 ---
 
-_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
+_"If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving. — *Martin Luther King, Jr.*"_
 
 ---
