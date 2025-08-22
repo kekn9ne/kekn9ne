@@ -7,6 +7,6 @@
 
 ---
 
-_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
+_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
 
 ---
