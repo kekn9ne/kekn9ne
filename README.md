@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 22 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Mecbursun** by *Sertab Erener* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Great minds are always feared by lesser minds. — *Dan Brown*"_
+_"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf. — *Dan Millman*"_
 
 ---
