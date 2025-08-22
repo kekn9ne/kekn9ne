@@ -7,6 +7,6 @@
 
 ---
 
-_"The power to make and break habits and learning how to do that is really important. — *Naval Ravikant*"_
+_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
 
 ---
