@@ -7,6 +7,6 @@
 
 ---
 
-_"Wisdom is doing now what you are going to be happy with later on. — *Joyce Meyer*"_
+_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
 
 ---
