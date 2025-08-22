@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
 
 ---
