@@ -7,6 +7,6 @@
 
 ---
 
-_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
+_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
 
 ---
