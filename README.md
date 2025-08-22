@@ -7,6 +7,6 @@
 
 ---
 
-_"Paths are made by walking. — *Franz Kafka*"_
+_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
 
 ---
