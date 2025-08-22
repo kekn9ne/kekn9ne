@@ -7,6 +7,6 @@
 
 ---
 
-_"I have no methods; all I do is accept people as they are. — *Joan Rivers*"_
+_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
 
 ---
