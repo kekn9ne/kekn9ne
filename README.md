@@ -7,6 +7,6 @@
 
 ---
 
-_"You will succeed because most people are lazy. — *Shahir Zag*"_
+_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
 
 ---
