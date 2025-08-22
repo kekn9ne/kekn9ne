@@ -7,6 +7,6 @@
 
 ---
 
-_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
+_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
 
 ---
