@@ -7,6 +7,6 @@
 
 ---
 
-_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
+_"The power to make and break habits and learning how to do that is really important. — *Naval Ravikant*"_
 
 ---
