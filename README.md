@@ -7,6 +7,6 @@
 
 ---
 
-_"Would you rather live your life according to the approval of others or aligned with your truth and your dreams? — *Robin Sharma*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
