@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
+_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
 
 ---
