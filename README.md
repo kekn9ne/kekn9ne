@@ -7,6 +7,6 @@
 
 ---
 
-_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
+_"Help others and give something back. — *Arnold Schwarzenegger*"_
 
 ---
