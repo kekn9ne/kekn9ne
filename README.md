@@ -7,6 +7,6 @@
 
 ---
 
-_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
+_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
 
 ---
