@@ -7,6 +7,6 @@
 
 ---
 
-_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
+_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
 
 ---
