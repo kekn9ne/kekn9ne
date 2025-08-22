@@ -7,6 +7,6 @@
 
 ---
 
-_"Nature loves to hide. — *Heraclitus*"_
+_"The more something scares you, the more you should do it. — *Mark Manson*"_
 
 ---
