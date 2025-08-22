@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
+_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
 
 ---
