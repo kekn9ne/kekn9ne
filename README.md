@@ -7,6 +7,6 @@
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"I have no methods; all I do is accept people as they are. — *Joan Rivers*"_
 
 ---
