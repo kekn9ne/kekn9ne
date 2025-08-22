@@ -7,6 +7,6 @@
 
 ---
 
-_"Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  — *Lao Tzu*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
