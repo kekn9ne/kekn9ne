@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 23 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rock'n Roll** by *Cegıd* 🎶
 
 ---
 
-_"Life was meant to be lived, and curiosity must be kept alive. One must never, for whatever reason, turn his back on life. — *Eleanor Roosevelt*"_
+_"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories. — *Ray Bradbury*"_
 
 ---
