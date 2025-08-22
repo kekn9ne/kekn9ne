@@ -7,6 +7,6 @@
 
 ---
 
-_"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf. — *Dan Millman*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
