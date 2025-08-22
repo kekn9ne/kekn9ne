@@ -7,6 +7,6 @@
 
 ---
 
-_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
