@@ -7,6 +7,6 @@
 
 ---
 
-_"To get angry is like to revenge yourself for the guilt of others. — *Jonathan Swift*"_
+_"Those who are easily shocked should be shocked more often. — *Mae West*"_
 
 ---
