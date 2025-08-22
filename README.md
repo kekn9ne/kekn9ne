@@ -7,6 +7,6 @@
 
 ---
 
-_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
+_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
 
 ---
