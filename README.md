@@ -7,6 +7,6 @@
 
 ---
 
-_"Never confuse a single defeat with a final defeat. — *F. Scott Fitzgerald*"_
+_"If your mind is empty, it is always ready for anything, it is open to everything. — *Shunryu Suzuki*"_
 
 ---
