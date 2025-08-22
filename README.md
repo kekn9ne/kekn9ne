@@ -7,6 +7,6 @@
 
 ---
 
-_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
+_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
 
 ---
