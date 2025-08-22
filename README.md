@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
