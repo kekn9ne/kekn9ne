@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
+_"The more you give, the more comes back to you. — *Napoleon Hill*"_
 
 ---
