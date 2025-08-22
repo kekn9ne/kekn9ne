@@ -7,6 +7,6 @@
 
 ---
 
-_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
+_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
 
 ---
