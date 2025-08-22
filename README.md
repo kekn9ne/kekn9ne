@@ -7,6 +7,6 @@
 
 ---
 
-_"If your mind is empty, it is always ready for anything, it is open to everything. — *Shunryu Suzuki*"_
+_"Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  — *Lao Tzu*"_
 
 ---
