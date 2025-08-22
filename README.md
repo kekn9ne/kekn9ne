@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
+_"Live simply, expect little, give much. — *Norman Vincent Peale*"_
 
 ---
