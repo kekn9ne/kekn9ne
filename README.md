@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
+_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
 
 ---
