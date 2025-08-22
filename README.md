@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends upon ourselves. — *Aristotle*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
