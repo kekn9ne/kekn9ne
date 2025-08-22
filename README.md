@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you give, the more comes back to you. — *Napoleon Hill*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
