@@ -7,6 +7,6 @@
 
 ---
 
-_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
+_"If you do not tell the truth about yourself you cannot tell it about other people. — *Virginia Woolf*"_
 
 ---
