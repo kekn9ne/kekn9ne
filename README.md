@@ -7,6 +7,6 @@
 
 ---
 
-_"For things to change, you have to change. — *Jim Rohn*"_
+_"Friendship takes time and energy if it's going to work. — *Betty White*"_
 
 ---
