@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to control myself I must first accept myself by going with and not against my nature. — *Bruce Lee*"_
+_"All human beings can alter their lives by altering their attitudes. — *Andrew Carnegie*"_
 
 ---
