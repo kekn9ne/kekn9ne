@@ -7,6 +7,6 @@
 
 ---
 
-_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
+_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
 
 ---
