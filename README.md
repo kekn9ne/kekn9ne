@@ -7,6 +7,6 @@
 
 ---
 
-_"Wisdom is the oneness of mind that guides and permeates all things. — *Heraclitus*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
