@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
+_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
 
 ---
