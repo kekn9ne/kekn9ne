@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"Wisdom is the oneness of mind that guides and permeates all things. — *Heraclitus*"_
 
 ---
