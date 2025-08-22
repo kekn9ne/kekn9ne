@@ -7,6 +7,6 @@
 
 ---
 
-_"Live simply, expect little, give much. — *Norman Vincent Peale*"_
+_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
 
 ---
