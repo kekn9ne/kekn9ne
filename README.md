@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"You have as much laughter as you have faith. — *Martin Luther*"_
 
 ---
