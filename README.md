@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
+_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
 
 ---
