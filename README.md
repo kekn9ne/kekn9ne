@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. — *Jon Kabat-Zinn*"_
+_"The more you lose yourself in something bigger than yourself, the more energy you will have. — *Norman Vincent Peale*"_
 
 ---
