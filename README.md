@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
 
 ---
