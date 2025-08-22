@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
+_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
 
 ---
