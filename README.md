@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 22 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Beni Hatırla** by *Nazan Öncel* 🎶
+🎧 Currently Listening: **Mecbursun** by *Sertab Erener* 🎶
 
 ---
 
-_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
+_"Great minds are always feared by lesser minds. — *Dan Brown*"_
 
 ---
