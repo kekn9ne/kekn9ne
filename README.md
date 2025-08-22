@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
