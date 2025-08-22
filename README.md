@@ -7,6 +7,6 @@
 
 ---
 
-_"All human beings can alter their lives by altering their attitudes. — *Andrew Carnegie*"_
+_"Happiness depends upon ourselves. — *Aristotle*"_
 
 ---
