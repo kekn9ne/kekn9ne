@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
+_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
 
 ---
