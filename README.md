@@ -7,6 +7,6 @@
 
 ---
 
-_"Far and away the best prize that life has to offer is the chance to work hard at work worth doing. — *Theodore Roosevelt*"_
+_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
 
 ---
