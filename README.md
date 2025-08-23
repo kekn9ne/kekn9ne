@@ -7,6 +7,6 @@
 
 ---
 
-_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
+_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
 
 ---
