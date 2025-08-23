@@ -7,6 +7,6 @@
 
 ---
 
-_"I defeat my enemies when I make them my friends. — *Dalai Lama*"_
+_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
 
 ---
