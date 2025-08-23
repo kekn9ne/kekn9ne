@@ -7,6 +7,6 @@
 
 ---
 
-_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
+_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
 
 ---
