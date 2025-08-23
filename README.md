@@ -7,6 +7,6 @@
 
 ---
 
-_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
+_"I am not proud, but I am happy; and happiness blinds, I think, more than pride. — *Alexandre Dumas*"_
 
 ---
