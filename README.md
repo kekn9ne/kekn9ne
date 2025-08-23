@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 23 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
 
 ---
