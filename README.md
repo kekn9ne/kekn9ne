@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
