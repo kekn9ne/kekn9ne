@@ -7,6 +7,6 @@
 
 ---
 
-_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
+_"The more you extend kindness to yourself, the more it will become your automatic response to others. — *Wayne Dyer*"_
 
 ---
