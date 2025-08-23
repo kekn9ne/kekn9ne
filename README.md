@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goal. — *Henry Ford*"_
 
 ---
