@@ -7,6 +7,6 @@
 
 ---
 
-_"When you're at the end of your rope, tie a knot and hold on. — *Theodore Roosevelt*"_
+_"Thoughts become things. If you see it in your mind, you will hold it in your hand. — *Bob Proctor*"_
 
 ---
