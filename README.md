@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to success is action. — *Brian Tracy*"_
+_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
 
 ---
