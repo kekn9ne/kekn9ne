@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 23 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Nardo RS** by *DJEZJA* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you love life, don't waste time, for time is what life is made up of.  — *Bruce Lee*"_
+_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
 
 ---
