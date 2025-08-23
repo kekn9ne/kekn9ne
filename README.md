@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you do, not what you say you'll do. — *Carl Jung*"_
+_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
 
 ---
