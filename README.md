@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 23 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **SUVs** by *Luciano* 🎶
+🎧 Currently Listening: **Praise The Lord (Da Shine) (feat. Skepta)** by *A$AP Rocky* 🎶
 
 ---
 
-_"You may forget with whom you laughed, but you will never forget with whom you wept.   — *Kahlil Gibran*"_
+_"You play the hand you're dealt. I think the game's worthwhile.   — *Christopher Reeve*"_
 
 ---
