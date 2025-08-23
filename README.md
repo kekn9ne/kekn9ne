@@ -7,6 +7,6 @@
 
 ---
 
-_"An investment in knowledge pays the best interest. — *Benjamin Franklin*"_
+_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
 
 ---
