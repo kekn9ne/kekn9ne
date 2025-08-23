@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"I defeat my enemies when I make them my friends. — *Dalai Lama*"_
 
 ---
