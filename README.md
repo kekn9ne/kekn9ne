@@ -7,6 +7,6 @@
 
 ---
 
-_"Be who you are and say what you feel because those who mind don't matter and those who matter don't mind. — *Dr. Seuss*"_
+_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
 
 ---
