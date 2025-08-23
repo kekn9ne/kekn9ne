@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is just the same as learning to swim. Do not be afraid of making mistakes, for there is no other way of learning how to live! — *Alfred Adler*"_
+_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
 
 ---
