@@ -7,6 +7,6 @@
 
 ---
 
-_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try. — *Beverly Sills*"_
 
 ---
