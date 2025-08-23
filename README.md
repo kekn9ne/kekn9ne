@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is rarely pure and never simple.  — *Oscar Wilde*"_
+_"Success is often achieved by those who don't know that failure is inevitable. — *Coco Chanel*"_
 
 ---
