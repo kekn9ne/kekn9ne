@@ -7,6 +7,6 @@
 
 ---
 
-_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
+_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
 
 ---
