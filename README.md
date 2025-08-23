@@ -7,6 +7,6 @@
 
 ---
 
-_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
+_"Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver. — *Ayn Rand*"_
 
 ---
