@@ -7,6 +7,6 @@
 
 ---
 
-_"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road. — *Henry Ward Beecher*"_
+_"Progress lies not in enhancing what is, but in advancing toward what will be. — *Kahlil Gibran*"_
 
 ---
