@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 23 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"A man's worth is no greater than his ambitions. — *Marcus Aurelius*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
