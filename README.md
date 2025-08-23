@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
