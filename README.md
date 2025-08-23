@@ -7,6 +7,6 @@
 
 ---
 
-_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
+_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
 
 ---
