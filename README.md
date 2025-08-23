@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
+_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
 
 ---
