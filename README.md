@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
+_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
 
 ---
