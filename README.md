@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter where you are, you are nowhere compared to where you can go. — *Bob Proctor*"_
+_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
 
 ---
