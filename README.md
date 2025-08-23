@@ -7,6 +7,6 @@
 
 ---
 
-_"Awaken. Take heed, do not squander your life. — *Dogen*"_
+_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
 
 ---
