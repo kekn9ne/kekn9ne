@@ -7,6 +7,6 @@
 
 ---
 
-_"Find the game where you can win, and then commit your life to playing it; and play to win. — *Robert Kiyosaki*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
