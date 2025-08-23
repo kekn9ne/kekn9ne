@@ -7,6 +7,6 @@
 
 ---
 
-_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
+_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
 
 ---
