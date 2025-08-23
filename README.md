@@ -7,6 +7,6 @@
 
 ---
 
-_"Thoughts become things. If you see it in your mind, you will hold it in your hand. — *Bob Proctor*"_
+_"Be careful the environment you choose for it will shape you; be careful the friends you choose for you will become like them. — *W. Clement Stone*"_
 
 ---
