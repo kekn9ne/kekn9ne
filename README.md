@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two things a person should never be angry at, what they can help, and what they cannot. — *Plato*"_
+_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
 
 ---
