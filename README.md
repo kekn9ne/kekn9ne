@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
+_"When you have to make a choice and don't make it, that is in itself a choice. — *William James*"_
 
 ---
