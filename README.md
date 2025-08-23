@@ -7,6 +7,6 @@
 
 ---
 
-_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
+_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
 
 ---
