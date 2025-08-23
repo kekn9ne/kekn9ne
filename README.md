@@ -7,6 +7,6 @@
 
 ---
 
-_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
+_"Intense love does not measure, it just gives. — *Mother Teresa*"_
 
 ---
