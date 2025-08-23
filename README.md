@@ -7,6 +7,6 @@
 
 ---
 
-_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
+_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
 
 ---
