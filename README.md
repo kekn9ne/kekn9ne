@@ -7,6 +7,6 @@
 
 ---
 
-_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
+_"An investment in knowledge pays the best interest. — *Benjamin Franklin*"_
 
 ---
