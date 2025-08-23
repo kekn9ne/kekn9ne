@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not proud, but I am happy; and happiness blinds, I think, more than pride. — *Alexandre Dumas*"_
+_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
 
 ---
