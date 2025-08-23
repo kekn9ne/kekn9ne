@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
 
 ---
