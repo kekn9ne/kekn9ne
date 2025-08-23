@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
+_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
 
 ---
