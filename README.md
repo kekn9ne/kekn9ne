@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be disappointed if you fail, but you are doomed if you don't try. — *Beverly Sills*"_
+_"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — *Brian Tracy*"_
 
 ---
