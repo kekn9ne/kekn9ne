@@ -7,6 +7,6 @@
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
 
 ---
