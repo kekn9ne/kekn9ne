@@ -7,6 +7,6 @@
 
 ---
 
-_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
