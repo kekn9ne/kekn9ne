@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
+_"You are what you do, not what you say you'll do. — *Carl Jung*"_
 
 ---
