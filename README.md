@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
 
 ---
