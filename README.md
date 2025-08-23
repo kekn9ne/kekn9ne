@@ -7,6 +7,6 @@
 
 ---
 
-_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
+_"The key to success is action. — *Brian Tracy*"_
 
 ---
