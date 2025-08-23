@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress lies not in enhancing what is, but in advancing toward what will be. — *Kahlil Gibran*"_
+_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
 
 ---
