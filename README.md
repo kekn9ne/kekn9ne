@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
+_"Rest in reason; move in passion. — *Kahlil Gibran*"_
 
 ---
