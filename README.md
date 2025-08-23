@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
