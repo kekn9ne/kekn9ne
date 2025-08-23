@@ -7,6 +7,6 @@
 
 ---
 
-_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
+_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
 
 ---
