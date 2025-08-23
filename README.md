@@ -7,6 +7,6 @@
 
 ---
 
-_"Great loves too must be endured. — *Coco Chanel*"_
+_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
 
 ---
