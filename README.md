@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — *Brian Tracy*"_
+_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
 
 ---
