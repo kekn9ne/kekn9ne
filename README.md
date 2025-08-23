@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest in reason; move in passion. — *Kahlil Gibran*"_
+_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
 
 ---
