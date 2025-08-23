@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goal. — *Henry Ford*"_
+_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
 
 ---
