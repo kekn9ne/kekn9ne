@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you try to impress, the more peaceful you can be. — *Maxime Lagace*"_
+_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
 
 ---
