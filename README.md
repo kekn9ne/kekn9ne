@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistakes are always forgivable, if one has the courage to admit them.  — *Bruce Lee*"_
+_"Decide what your truth is. Then live it. — *Kamal Ravikant*"_
 
 ---
