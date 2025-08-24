@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
+_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
 
 ---
