@@ -7,6 +7,6 @@
 
 ---
 
-_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
