@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
+_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
 
 ---
