@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
+_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
 
 ---
