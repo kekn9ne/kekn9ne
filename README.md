@@ -7,6 +7,6 @@
 
 ---
 
-_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
