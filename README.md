@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to travel a long way to find what is near. — *Paulo Coelho*"_
+_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
 
 ---
