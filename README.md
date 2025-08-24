@@ -7,6 +7,6 @@
 
 ---
 
-_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
+_"Everyone sees what you appear to be, few experience what you really are. — *Niccolo Machiavelli*"_
 
 ---
