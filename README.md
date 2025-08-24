@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone sees what you appear to be, few experience what you really are. — *Niccolo Machiavelli*"_
+_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
 
 ---
