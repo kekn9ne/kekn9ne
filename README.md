@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
+_"Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be.  — *Miguel de Cervantes*"_
 
 ---
