@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
