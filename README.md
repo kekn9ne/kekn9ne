@@ -7,6 +7,6 @@
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
