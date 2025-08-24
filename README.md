@@ -7,6 +7,6 @@
 
 ---
 
-_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
+_"Creative endeavors are by their nature uncertain. — *Robert Greene*"_
 
 ---
