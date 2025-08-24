@@ -7,6 +7,6 @@
 
 ---
 
-_"All men who have achieved great things have been great dreamers.  — *Orison Swett Marden*"_
+_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
 
 ---
