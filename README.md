@@ -7,6 +7,6 @@
 
 ---
 
-_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
+_"It doesn't matter where you are coming from. All that matters is where you are going.  — *Brian Tracy*"_
 
 ---
