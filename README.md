@@ -7,6 +7,6 @@
 
 ---
 
-_"Go confidently in the direction of your dreams. Live the life you've imagined. — *Arnold Schwarzenegger*"_
+_"Whenever you find yourself on the side of the majority, it is time to reform. — *Mark Twain*"_
 
 ---
