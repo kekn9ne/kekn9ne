@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
+_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
 
 ---
