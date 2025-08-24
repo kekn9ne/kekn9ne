@@ -7,6 +7,6 @@
 
 ---
 
-_"Always try to be a little kinder than necessary. — *James Matthew Barrie*"_
+_"First learn the meaning of what you say, and then speak. — *Epictetus*"_
 
 ---
