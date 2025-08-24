@@ -7,6 +7,6 @@
 
 ---
 
-_"The more perfect a person is on the outside, the more demons they have on the inside. — *Sigmund Freud*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
