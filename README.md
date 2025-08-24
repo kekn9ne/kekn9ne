@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative endeavors are by their nature uncertain. — *Robert Greene*"_
+_"Genius is the ability to act rightly without precedent - the power to do the right thing the first time. — *Elbert Hubbard*"_
 
 ---
