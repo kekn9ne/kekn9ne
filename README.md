@@ -7,6 +7,6 @@
 
 ---
 
-_"Few things are more deceptive than memories. — *Carlos Ruiz Zafon*"_
+_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
 
 ---
