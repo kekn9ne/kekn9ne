@@ -7,6 +7,6 @@
 
 ---
 
-_"The great use of life is to spend it for something that will outlast it. — *William James*"_
+_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
 
 ---
