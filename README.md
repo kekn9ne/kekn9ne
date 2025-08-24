@@ -7,6 +7,6 @@
 
 ---
 
-_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
+_"To perceive is to suffer. — *Aristotle*"_
 
 ---
