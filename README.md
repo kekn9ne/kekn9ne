@@ -7,6 +7,6 @@
 
 ---
 
-_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
+_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
 
 ---
