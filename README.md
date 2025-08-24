@@ -7,6 +7,6 @@
 
 ---
 
-_"Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be.  — *Miguel de Cervantes*"_
+_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
 
 ---
