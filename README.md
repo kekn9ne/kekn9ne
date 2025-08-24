@@ -7,6 +7,6 @@
 
 ---
 
-_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
