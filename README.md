@@ -7,6 +7,6 @@
 
 ---
 
-_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
+_"All men who have achieved great things have been great dreamers.  — *Orison Swett Marden*"_
 
 ---
