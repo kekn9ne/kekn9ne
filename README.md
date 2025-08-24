@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
+_"Love is the expression of one's values. — *Ayn Rand*"_
 
 ---
