@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
+_"Be true to yourself, help others, make each day your masterpiece — *John Wooden*"_
 
 ---
