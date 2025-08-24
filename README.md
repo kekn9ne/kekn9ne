@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
+_"In a world of change, the learners shall inherit the earth, while the learned shall find themselves perfectly suited for a world that no longer exists. — *Eric Hoffer*"_
 
 ---
