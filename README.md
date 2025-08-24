@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
+_"Every second you have on this planet is very precious and it's your responsibility that you're happy. — *Naval Ravikant*"_
 
 ---
