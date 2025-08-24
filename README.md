@@ -7,6 +7,6 @@
 
 ---
 
-_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
+_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
 
 ---
