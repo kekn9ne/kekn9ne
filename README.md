@@ -7,6 +7,6 @@
 
 ---
 
-_"Decide what your truth is. Then live it. — *Kamal Ravikant*"_
+_"Watch what you say, and whatever you say, practice it. — *Soyen Shaku*"_
 
 ---
