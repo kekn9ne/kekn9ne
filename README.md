@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
+_"Mistakes are always forgivable, if one has the courage to admit them.  — *Bruce Lee*"_
 
 ---
