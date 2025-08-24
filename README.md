@@ -7,6 +7,6 @@
 
 ---
 
-_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
+_"For things to change, you have to change. — *Jim Rohn*"_
 
 ---
