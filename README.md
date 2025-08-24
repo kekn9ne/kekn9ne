@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter where you are coming from. All that matters is where you are going.  — *Brian Tracy*"_
+_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
 
 ---
