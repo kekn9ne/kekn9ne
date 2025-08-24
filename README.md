@@ -7,6 +7,6 @@
 
 ---
 
-_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
+_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
 
 ---
