@@ -7,6 +7,6 @@
 
 ---
 
-_"Be true to yourself, help others, make each day your masterpiece — *John Wooden*"_
+_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
 
 ---
