@@ -7,6 +7,6 @@
 
 ---
 
-_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
+_"The more perfect a person is on the outside, the more demons they have on the inside. — *Sigmund Freud*"_
 
 ---
