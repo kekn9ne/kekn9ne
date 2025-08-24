@@ -7,6 +7,6 @@
 
 ---
 
-_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
+_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
 
 ---
