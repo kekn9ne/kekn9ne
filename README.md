@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stumble over something that's behind you. — *Steve Harvey*"_
+_"The true soldier fights not because he hates what is in front of him, but because he loves what is behind him. — *Gilbert Chesterton*"_
 
 ---
