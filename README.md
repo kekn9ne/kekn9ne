@@ -7,6 +7,6 @@
 
 ---
 
-_"The true soldier fights not because he hates what is in front of him, but because he loves what is behind him. — *Gilbert Chesterton*"_
+_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
 
 ---
