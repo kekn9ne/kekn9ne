@@ -7,6 +7,6 @@
 
 ---
 
-_"First learn the meaning of what you say, and then speak. — *Epictetus*"_
+_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
 
 ---
