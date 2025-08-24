@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Sunday, 24 August 2025**  
+🗓️ Today is: **Monday, 25 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
 
 ---
 
-_"If we know how to adapt, we end up being superior. — *Ming-Dao Deng*"_
+_"The first principle of success is desire. — *Robert Collier*"_
 
 ---
