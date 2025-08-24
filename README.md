@@ -7,6 +7,6 @@
 
 ---
 
-_"For things to change, you have to change. — *Jim Rohn*"_
+_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
 
 ---
