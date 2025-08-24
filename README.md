@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is the ability to act rightly without precedent - the power to do the right thing the first time. — *Elbert Hubbard*"_
+_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
 
 ---
