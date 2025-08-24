@@ -7,6 +7,6 @@
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — *James Allen*"_
 
 ---
