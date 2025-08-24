@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever you find yourself on the side of the majority, it is time to reform. — *Mark Twain*"_
+_"Always try to be a little kinder than necessary. — *James Matthew Barrie*"_
 
 ---
