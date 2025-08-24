@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities. — *Charles Dickens*"_
+_"If we know how to adapt, we end up being superior. — *Ming-Dao Deng*"_
 
 ---
