@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
