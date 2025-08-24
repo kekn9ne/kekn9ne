@@ -7,6 +7,6 @@
 
 ---
 
-_"To perceive is to suffer. — *Aristotle*"_
+_"Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours.  — *Orison Swett Marden*"_
 
 ---
