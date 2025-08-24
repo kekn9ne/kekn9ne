@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything flows, nothing stands still. — *Heraclitus*"_
+_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
 
 ---
