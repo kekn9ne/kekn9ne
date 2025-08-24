@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
+_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
 
 ---
