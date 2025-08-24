@@ -7,6 +7,6 @@
 
 ---
 
-_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
 
 ---
