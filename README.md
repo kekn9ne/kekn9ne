@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours.  — *Orison Swett Marden*"_
+_"Sometimes you have to travel a long way to find what is near. — *Paulo Coelho*"_
 
 ---
