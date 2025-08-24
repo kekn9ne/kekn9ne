@@ -7,6 +7,6 @@
 
 ---
 
-_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
+_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
 
 ---
