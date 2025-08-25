@@ -7,6 +7,6 @@
 
 ---
 
-_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
+_"All power is from within and therefore under our control. — *Robert Collier*"_
 
 ---
