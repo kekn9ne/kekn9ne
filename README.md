@@ -7,6 +7,6 @@
 
 ---
 
-_"Your very silence shows you agree. — *Euripides*"_
+_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
 
 ---
