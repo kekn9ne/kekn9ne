@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is never final; failure is never fatal. — *Conrad Hilton*"_
+_"As you think, so shall you become.  — *Bruce Lee*"_
 
 ---
