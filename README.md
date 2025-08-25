@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 25 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Kelebek** by *Güneş* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Time goes from present to past. — *Shunryu Suzuki*"_
+_"Learn from the rejection and turn it into an opportunity! — *Mary Engelbreit*"_
 
 ---
