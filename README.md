@@ -7,6 +7,6 @@
 
 ---
 
-_"The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you. — *Sonia Ricotti*"_
+_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
 
 ---
