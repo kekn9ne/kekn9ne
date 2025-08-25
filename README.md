@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. — *Epictetus*"_
+_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
 
 ---
