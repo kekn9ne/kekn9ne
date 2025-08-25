@@ -7,6 +7,6 @@
 
 ---
 
-_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
+_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
 
 ---
