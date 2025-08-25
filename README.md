@@ -7,6 +7,6 @@
 
 ---
 
-_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
+_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
 
 ---
