@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
+_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
 
 ---
