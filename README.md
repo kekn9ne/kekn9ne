@@ -7,6 +7,6 @@
 
 ---
 
-_"All that we see or seem is but a dream within a dream. — *Edgar Allan Poe*"_
+_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
 
 ---
