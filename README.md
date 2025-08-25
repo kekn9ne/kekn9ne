@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
+_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
 
 ---
