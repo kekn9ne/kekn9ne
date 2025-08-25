@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you extend kindness to yourself, the more it will become your automatic response to others. — *Wayne Dyer*"_
+_"Pain doesn't last. And when it's gone, we have something to show for it. Growth. — *Kamal Ravikant*"_
 
 ---
