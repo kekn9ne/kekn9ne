@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is the signature of civilizations.  — *Beverly Sills*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
