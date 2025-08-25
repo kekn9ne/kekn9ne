@@ -7,6 +7,6 @@
 
 ---
 
-_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
+_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
 
 ---
