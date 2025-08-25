@@ -7,6 +7,6 @@
 
 ---
 
-_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
+_"In order to be walked over, you have to be lying down. — *Celestine Chua*"_
 
 ---
