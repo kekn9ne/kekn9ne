@@ -7,6 +7,6 @@
 
 ---
 
-_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
+_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
 
 ---
