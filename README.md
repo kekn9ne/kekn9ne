@@ -7,6 +7,6 @@
 
 ---
 
-_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
+_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
 
 ---
