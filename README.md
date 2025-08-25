@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is hardest at the beginning, messiest in the middle and best at the end. — *Robin Sharma*"_
+_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
 
 ---
