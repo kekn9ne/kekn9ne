@@ -7,6 +7,6 @@
 
 ---
 
-_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
