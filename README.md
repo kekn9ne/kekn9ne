@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to be walked over, you have to be lying down. — *Celestine Chua*"_
+_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
 
 ---
