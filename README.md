@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are far from the enemy, make him believe you are near. — *Sun Tzu*"_
+_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
 
 ---
