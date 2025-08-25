@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
+_"A different result requires doing something different. — *Gary Keller*"_
 
 ---
