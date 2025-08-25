@@ -7,6 +7,6 @@
 
 ---
 
-_"An un-examined life is not worth living. — *Socrates*"_
+_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
 
 ---
