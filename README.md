@@ -7,6 +7,6 @@
 
 ---
 
-_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
+_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
 
 ---
