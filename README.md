@@ -7,6 +7,6 @@
 
 ---
 
-_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
+_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
 
 ---
