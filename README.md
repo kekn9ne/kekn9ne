@@ -7,6 +7,6 @@
 
 ---
 
-_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
+_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
 
 ---
