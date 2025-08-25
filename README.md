@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 25 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
 
 ---
 
-_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
