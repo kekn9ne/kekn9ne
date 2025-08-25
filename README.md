@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
+_"Change is hardest at the beginning, messiest in the middle and best at the end. — *Robin Sharma*"_
 
 ---
