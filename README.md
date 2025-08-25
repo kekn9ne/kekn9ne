@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, so shall you become.  — *Bruce Lee*"_
+_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
 
 ---
