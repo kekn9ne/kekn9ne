@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
+_"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. — *Epictetus*"_
 
 ---
