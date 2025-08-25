@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
+_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
 
 ---
