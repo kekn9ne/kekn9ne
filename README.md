@@ -7,6 +7,6 @@
 
 ---
 
-_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
+_"Be gentle with yourself. Think less and feel more. Be as happy as you can. You only have this moment. — *Dan Millman*"_
 
 ---
