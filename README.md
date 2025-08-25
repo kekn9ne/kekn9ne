@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
+_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
 
 ---
