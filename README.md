@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
