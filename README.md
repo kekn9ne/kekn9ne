@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become. — *Paramahansa Yogananda*"_
 
 ---
