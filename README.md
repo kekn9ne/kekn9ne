@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
