@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
