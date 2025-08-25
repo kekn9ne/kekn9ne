@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is sometimes the best answer. — *Dalai Lama*"_
+_"If you want to know what God thinks about money just look at the people He gives it to. — *Alexander Pope*"_
 
 ---
