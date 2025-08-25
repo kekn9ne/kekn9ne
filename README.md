@@ -7,6 +7,6 @@
 
 ---
 
-_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
+_"One small positive thought can change your whole day. — *Zig Ziglar*"_
 
 ---
