@@ -7,6 +7,6 @@
 
 ---
 
-_"A different result requires doing something different. — *Gary Keller*"_
+_"Art is the signature of civilizations.  — *Beverly Sills*"_
 
 ---
