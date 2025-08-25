@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 25 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"All that we see or seem is but a dream within a dream. — *Edgar Allan Poe*"_
 
 ---
