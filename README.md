@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no excuse for not trying. — *Barack Obama*"_
+_"The moment you stop to think about whether you love someone, you've already stopped loving that person forever. — *Carlos Ruiz Zafon*"_
 
 ---
