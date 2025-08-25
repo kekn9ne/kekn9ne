@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 25 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
+_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
 
 ---
