@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 25 August 2025**  
-🌤️ Weather in Istanbul: **☀️   +22°C**  
+🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **69**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
