@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
+_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
 
 ---
