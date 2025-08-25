@@ -7,6 +7,6 @@
 
 ---
 
-_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
+_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
 
 ---
