@@ -7,6 +7,6 @@
 
 ---
 
-_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
+_"The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you. — *Sonia Ricotti*"_
 
 ---
