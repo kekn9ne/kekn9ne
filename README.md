@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
 
 ---
