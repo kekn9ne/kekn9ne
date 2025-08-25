@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Friendship takes time and energy if it's going to work. — *Betty White*"_
 
 ---
