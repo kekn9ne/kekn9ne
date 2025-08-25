@@ -7,6 +7,6 @@
 
 ---
 
-_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
