@@ -7,6 +7,6 @@
 
 ---
 
-_"All power is from within and therefore under our control. — *Robert Collier*"_
+_"Your very silence shows you agree. — *Euripides*"_
 
 ---
