@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
+_"Success is built sequentially. It's one thing at a time. — *Gary Keller*"_
 
 ---
