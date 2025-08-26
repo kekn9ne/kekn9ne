@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easier to go down a hill than up it but the view is much better at the top. — *Henry Ward Beecher*"_
+_"Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver. — *Ayn Rand*"_
 
 ---
