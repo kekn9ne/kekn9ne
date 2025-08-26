@@ -7,6 +7,6 @@
 
 ---
 
-_"The educated differ from the uneducated as much as the living differ from the dead. — *Aristotle*"_
+_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
 
 ---
