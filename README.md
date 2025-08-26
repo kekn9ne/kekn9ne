@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a question and how we live it is our answer. — *Gary Keller*"_
+_"Never buy a thing you do not want, because it is cheap, it will be dear to you. — *Thomas Jefferson*"_
 
 ---
