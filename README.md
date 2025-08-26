@@ -7,6 +7,6 @@
 
 ---
 
-_"Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.  — *Nikola Tesla*"_
+_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
 
 ---
