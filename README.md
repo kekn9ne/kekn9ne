@@ -7,6 +7,6 @@
 
 ---
 
-_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
+_"Walk towards the sunshine, and the shadows will fall behind you. — *Mary Engelbreit*"_
 
 ---
