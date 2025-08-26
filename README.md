@@ -7,6 +7,6 @@
 
 ---
 
-_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
+_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
 
 ---
