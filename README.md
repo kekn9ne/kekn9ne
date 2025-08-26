@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
+_"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — *William James*"_
 
 ---
