@@ -7,6 +7,6 @@
 
 ---
 
-_"Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great. — *Billie Jean King*"_
+_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
 
 ---
