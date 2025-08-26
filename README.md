@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 26 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **Konuşma Engelli** by *fatihext* 🎶
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
