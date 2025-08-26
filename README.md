@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
+_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
 
 ---
