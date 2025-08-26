@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Korkma** by *Gazapizm* 🎶
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
+_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
 
 ---
