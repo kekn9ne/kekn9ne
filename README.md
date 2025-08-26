@@ -7,6 +7,6 @@
 
 ---
 
-_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
+_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
 
 ---
