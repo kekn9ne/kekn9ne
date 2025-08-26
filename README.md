@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind. — *Eckhart Tolle*"_
+_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
 
 ---
