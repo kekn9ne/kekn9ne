@@ -7,6 +7,6 @@
 
 ---
 
-_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
+_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
 
 ---
