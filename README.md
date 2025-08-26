@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can laugh, I can live. — *Christopher Reeve*"_
+_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
 
 ---
