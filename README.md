@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Gözlerimde Arama** by *Radansa* 🎶
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"The friendship that can cease has never been real.  — *St. Jerome*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
