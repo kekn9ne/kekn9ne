@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is built sequentially. It's one thing at a time. — *Gary Keller*"_
+_"The best teacher is experience and not through someone's distorted point of view. — *Jack Kerouac*"_
 
 ---
