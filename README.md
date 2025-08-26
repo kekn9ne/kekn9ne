@@ -7,6 +7,6 @@
 
 ---
 
-_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
+_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
 
 ---
