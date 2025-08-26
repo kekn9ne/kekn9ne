@@ -7,6 +7,6 @@
 
 ---
 
-_"Fallacies do not cease to be fallacies because they become fashions. — *Gilbert Chesterton*"_
+_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
 
 ---
