@@ -7,6 +7,6 @@
 
 ---
 
-_"Lost Time is never found again. — *Benjamin Franklin*"_
+_"The educated differ from the uneducated as much as the living differ from the dead. — *Aristotle*"_
 
 ---
