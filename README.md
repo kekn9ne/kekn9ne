@@ -7,6 +7,6 @@
 
 ---
 
-_"Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found. — *Pema Chodron*"_
+_"The more you take responsibility for your past and present, the more you are able to create the future you seek. — *Celestine Chua*"_
 
 ---
