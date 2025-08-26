@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 26 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
