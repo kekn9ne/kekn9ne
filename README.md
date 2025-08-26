@@ -7,6 +7,6 @@
 
 ---
 
-_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
+_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
 
 ---
