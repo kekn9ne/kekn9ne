@@ -7,6 +7,6 @@
 
 ---
 
-_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
