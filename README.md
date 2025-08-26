@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 26 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"The more you take responsibility for your past and present, the more you are able to create the future you seek. — *Celestine Chua*"_
+_"I have never let my schooling interfere with my education. — *Mark Twain*"_
 
 ---
