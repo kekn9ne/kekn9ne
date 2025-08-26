@@ -7,6 +7,6 @@
 
 ---
 
-_"Walk towards the sunshine, and the shadows will fall behind you. — *Mary Engelbreit*"_
+_"Success is good at any age, but the sooner you find it, the longer you will enjoy it. — *Napoleon Hill*"_
 
 ---
