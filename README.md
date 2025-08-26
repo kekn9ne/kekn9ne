@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
+_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
 
 ---
