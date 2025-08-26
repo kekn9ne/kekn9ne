@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 26 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **PSYCHO** by *Jeff Redd* 🎶
+🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
 
 ---
 
-_"There's more to life than being a passenger. — *Amelia Earhart*"_
+_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
 
 ---
