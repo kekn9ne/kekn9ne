@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **Demiştim Ben** by *İkra* 🎶
 
 ---
 
-_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
+_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
 
 ---
