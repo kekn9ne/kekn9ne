@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 26 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Konuşma Engelli** by *fatihext* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Give so much away people insist on paying you. — *Jack Butcher*"_
+_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
 
 ---
