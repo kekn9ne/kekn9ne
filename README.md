@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
+_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
 
 ---
