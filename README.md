@@ -7,6 +7,6 @@
 
 ---
 
-_"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — *William James*"_
+_"Trust thyself: every heart vibrates to that iron string. — *Ralph Waldo Emerson*"_
 
 ---
