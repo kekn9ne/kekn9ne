@@ -7,6 +7,6 @@
 
 ---
 
-_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
+_"Fallacies do not cease to be fallacies because they become fashions. — *Gilbert Chesterton*"_
 
 ---
