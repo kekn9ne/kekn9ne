@@ -7,6 +7,6 @@
 
 ---
 
-_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
+_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
 
 ---
