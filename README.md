@@ -7,6 +7,6 @@
 
 ---
 
-_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
+_"Lost Time is never found again. — *Benjamin Franklin*"_
 
 ---
