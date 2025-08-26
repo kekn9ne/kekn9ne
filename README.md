@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 26 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **KILLA INTRO** by *AKDO* 🎶
+🎧 Currently Listening: **Ich Liebe Dich** by *DJEZJA* 🎶
 
 ---
 
-_"Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours.  — *Orison Swett Marden*"_
+_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
 
 ---
