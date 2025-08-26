@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sokak Güvercini** by *Stabil* 🎶
 
 ---
 
-_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
+_"If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere. — *Zig Ziglar*"_
 
 ---
