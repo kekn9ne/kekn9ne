@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
+_"There are no ordinary moments. — *Dan Millman*"_
 
 ---
