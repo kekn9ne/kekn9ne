@@ -7,6 +7,6 @@
 
 ---
 
-_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
+_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
 
 ---
