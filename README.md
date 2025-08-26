@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Buldun Mu?** by *ESKRY* 🎶
+🎧 Currently Listening: **Korkma** by *Gazapizm* 🎶
 
 ---
 
-_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
+_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
 
 ---
