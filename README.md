@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.  — *Martin Luther*"_
+_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
 
 ---
