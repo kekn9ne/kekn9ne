@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
+_"We win by helping each other win. — *Jack Butcher*"_
 
 ---
