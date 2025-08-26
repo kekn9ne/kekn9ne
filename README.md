@@ -7,6 +7,6 @@
 
 ---
 
-_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
+_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
 
 ---
