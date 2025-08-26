@@ -7,6 +7,6 @@
 
 ---
 
-_"We win by helping each other win. — *Jack Butcher*"_
+_"Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.  — *Martin Luther*"_
 
 ---
