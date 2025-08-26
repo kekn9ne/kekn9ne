@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
+_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
 
 ---
