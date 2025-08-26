@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Demiştim Ben** by *İkra* 🎶
+🎧 Currently Listening: **Buldun Mu?** by *ESKRY* 🎶
 
 ---
 
-_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
