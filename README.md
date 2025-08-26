@@ -7,6 +7,6 @@
 
 ---
 
-_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
+_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
 
 ---
