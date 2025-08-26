@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
+_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
 
 ---
