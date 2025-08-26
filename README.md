@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: **Bu Sefer Sorun Bende** by *Sokrat St* 🎶
+🎧 Currently Listening: **Gözlerimde Arama** by *Radansa* 🎶
 
 ---
 
-_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
+_"The friendship that can cease has never been real.  — *St. Jerome*"_
 
 ---
