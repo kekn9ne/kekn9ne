@@ -7,6 +7,6 @@
 
 ---
 
-_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
+_"Don't let making a living prevent you from making a life. — *John Wooden*"_
 
 ---
