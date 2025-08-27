@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who will risk going too far can possibly find out how far one can go. — *T.S. Eliot*"_
+_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
 
 ---
