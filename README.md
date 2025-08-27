@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
+_"Love the life you live, live the life you love. — *Bob Marley*"_
 
 ---
