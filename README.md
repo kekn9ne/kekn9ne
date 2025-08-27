@@ -7,6 +7,6 @@
 
 ---
 
-_"We may not be able to stop evil in the world, but how we treat one another is entirely up to us. — *Barack Obama*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
