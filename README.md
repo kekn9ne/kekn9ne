@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
+_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
 
 ---
