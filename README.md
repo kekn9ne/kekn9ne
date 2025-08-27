@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
 
 ---
