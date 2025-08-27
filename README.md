@@ -7,6 +7,6 @@
 
 ---
 
-_"What people need and what they want may be very different. — *Elbert Hubbard*"_
+_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
 
 ---
