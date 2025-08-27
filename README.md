@@ -7,6 +7,6 @@
 
 ---
 
-_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
+_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
 
 ---
