@@ -7,6 +7,6 @@
 
 ---
 
-_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
+_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
 
 ---
