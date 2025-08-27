@@ -7,6 +7,6 @@
 
 ---
 
-_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
+_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
 
 ---
