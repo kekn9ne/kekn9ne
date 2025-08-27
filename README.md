@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
+_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
 
 ---
