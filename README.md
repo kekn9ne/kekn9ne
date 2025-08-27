@@ -7,6 +7,6 @@
 
 ---
 
-_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
+_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
 
 ---
