@@ -7,6 +7,6 @@
 
 ---
 
-_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
+_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
 
 ---
