@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
+_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
 
 ---
