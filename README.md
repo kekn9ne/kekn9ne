@@ -7,6 +7,6 @@
 
 ---
 
-_"Science can flourish only in an atmosphere of free speech.  — *Albert Einstein*"_
+_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
 
 ---
