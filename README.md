@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership starts at the top. — *Morgan Wootten*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
