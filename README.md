@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
+_"Leadership starts at the top. — *Morgan Wootten*"_
 
 ---
