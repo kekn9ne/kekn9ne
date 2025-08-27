@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
+_"When you want to be honored by others, you learn to honor them first. — *Sathya Sai Baba*"_
 
 ---
