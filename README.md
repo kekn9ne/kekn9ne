@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **69**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
+_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
 
 ---
