@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has. — *Epictetus*"_
 
 ---
