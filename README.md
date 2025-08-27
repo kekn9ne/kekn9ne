@@ -7,6 +7,6 @@
 
 ---
 
-_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
+_"Only by acceptance of the past, can you alter it. — *T.S. Eliot*"_
 
 ---
