@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
 
 ---
