@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"What people need and what they want may be very different. — *Elbert Hubbard*"_
 
 ---
