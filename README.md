@@ -7,6 +7,6 @@
 
 ---
 
-_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
+_"Nothing that results in human progress is achieved with unanimous consent. — *Christopher Columbus*"_
 
 ---
