@@ -7,6 +7,6 @@
 
 ---
 
-_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
+_"You'll get more from being a peacemaker than a warrior. — *Arnold Schwarzenegger*"_
 
 ---
