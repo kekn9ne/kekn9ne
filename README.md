@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
+_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
 
 ---
