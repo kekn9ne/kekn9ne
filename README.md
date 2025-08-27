@@ -7,6 +7,6 @@
 
 ---
 
-_"Awaken. Take heed, do not squander your life. — *Dogen*"_
+_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
 
 ---
