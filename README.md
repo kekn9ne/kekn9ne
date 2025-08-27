@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing that results in human progress is achieved with unanimous consent. — *Christopher Columbus*"_
+_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
 
 ---
