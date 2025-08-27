@@ -7,6 +7,6 @@
 
 ---
 
-_"We ordinary people must forge our own beauty. — *Kenji Miyazawa*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
