@@ -7,6 +7,6 @@
 
 ---
 
-_"Good judgment comes from experience, and experience comes from bad judgment. — *Rita Mae Brown*"_
+_"Watch what you say, and whatever you say, practice it. — *Soyen Shaku*"_
 
 ---
