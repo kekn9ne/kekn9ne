@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **GEÇMİŞİMDEN KAÇTIM** by *Poizi* 🎶
+🎧 Currently Listening: **PSYCHO** by *Jeff Redd* 🎶
 
 ---
 
-_"Associate with people who are likely to improve you.   — *Seneca*"_
+_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
 
 ---
