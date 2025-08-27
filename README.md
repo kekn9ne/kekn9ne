@@ -7,6 +7,6 @@
 
 ---
 
-_"The beautiful journey of today can only begin when we learn to let go of yesterday. — *Steve Maraboli*"_
+_"All problems are interpersonal relationship problems. — *Alfred Adler*"_
 
 ---
