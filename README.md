@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **PSYCHO** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
+_"Good judgment comes from experience, and experience comes from bad judgment. — *Rita Mae Brown*"_
 
 ---
