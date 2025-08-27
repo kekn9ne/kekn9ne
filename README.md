@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Wednesday, 27 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
-📊 GitHub Contributions: **69**  
+📊 GitHub Contributions: **74**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
+_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
 
 ---
