@@ -7,6 +7,6 @@
 
 ---
 
-_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
+_"We ordinary people must forge our own beauty. — *Kenji Miyazawa*"_
 
 ---
