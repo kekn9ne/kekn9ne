@@ -7,6 +7,6 @@
 
 ---
 
-_"In a world of change, the learners shall inherit the earth, while the learned shall find themselves perfectly suited for a world that no longer exists. — *Eric Hoffer*"_
+_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
 
 ---
