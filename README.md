@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
+_"The beautiful journey of today can only begin when we learn to let go of yesterday. — *Steve Maraboli*"_
 
 ---
