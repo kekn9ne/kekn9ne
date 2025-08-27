@@ -7,6 +7,6 @@
 
 ---
 
-_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
+_"Life has no limitations except the ones you make. — *Les Brown*"_
 
 ---
