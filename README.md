@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll get more from being a peacemaker than a warrior. — *Arnold Schwarzenegger*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
