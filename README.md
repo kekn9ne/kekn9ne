@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
 
 ---
