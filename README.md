@@ -7,6 +7,6 @@
 
 ---
 
-_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
+_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
 
 ---
