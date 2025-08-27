@@ -7,6 +7,6 @@
 
 ---
 
-_"Watch what you say, and whatever you say, practice it. — *Soyen Shaku*"_
+_"Productize your perspective. — *Jack Butcher*"_
 
 ---
