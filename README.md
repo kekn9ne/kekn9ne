@@ -7,6 +7,6 @@
 
 ---
 
-_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
+_"There is no path to Love. Love is the path. — *Dan Millman*"_
 
 ---
