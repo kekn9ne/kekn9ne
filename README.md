@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead the people, walk behind them. — *Lao Tzu*"_
+_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
 
 ---
