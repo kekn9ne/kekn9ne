@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is more important than knowledge. — *Albert Einstein*"_
+_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
 
 ---
