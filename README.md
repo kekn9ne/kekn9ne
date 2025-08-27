@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
+_"The prettiest eyes have cried the most. — *Unknown*"_
 
 ---
