@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline is the mark of intelligent living. — *Sathya Sai Baba*"_
+_"Imagination is more important than knowledge. — *Albert Einstein*"_
 
 ---
