@@ -7,6 +7,6 @@
 
 ---
 
-_"What would you do if you weren't afraid? — *Spencer Johnson*"_
+_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
 
 ---
