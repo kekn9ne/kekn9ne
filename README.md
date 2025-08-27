@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
