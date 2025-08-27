@@ -7,6 +7,6 @@
 
 ---
 
-_"When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.  — *Charles Swindoll*"_
+_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
 
 ---
