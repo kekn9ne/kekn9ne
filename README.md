@@ -7,6 +7,6 @@
 
 ---
 
-_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
+_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
 
 ---
