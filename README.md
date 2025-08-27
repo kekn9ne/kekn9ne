@@ -7,6 +7,6 @@
 
 ---
 
-_"He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has. — *Epictetus*"_
+_"In a world of change, the learners shall inherit the earth, while the learned shall find themselves perfectly suited for a world that no longer exists. — *Eric Hoffer*"_
 
 ---
