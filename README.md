@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let making a living prevent you from making a life. — *John Wooden*"_
+_"To lead the people, walk behind them. — *Lao Tzu*"_
 
 ---
