@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Science can flourish only in an atmosphere of free speech.  — *Albert Einstein*"_
 
 ---
