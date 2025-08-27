@@ -7,6 +7,6 @@
 
 ---
 
-_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
+_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
 
 ---
