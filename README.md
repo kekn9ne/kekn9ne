@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"What would you do if you weren't afraid? — *Spencer Johnson*"_
 
 ---
