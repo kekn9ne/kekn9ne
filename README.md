@@ -7,6 +7,6 @@
 
 ---
 
-_"It always seems impossible until it's done. — *Nelson Mandela*"_
+_"We love the things we love for what they are. — *Robert Frost*"_
 
 ---
