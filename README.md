@@ -7,6 +7,6 @@
 
 ---
 
-_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
