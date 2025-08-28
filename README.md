@@ -7,6 +7,6 @@
 
 ---
 
-_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
+_"There is always risk, so learn to manage risk instead of avoiding it. — *Robert Kiyosaki*"_
 
 ---
