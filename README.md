@@ -7,6 +7,6 @@
 
 ---
 
-_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
