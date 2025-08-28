@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
+_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
 
 ---
