@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
+_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
 
 ---
