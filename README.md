@@ -7,6 +7,6 @@
 
 ---
 
-_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
+_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
 
 ---
