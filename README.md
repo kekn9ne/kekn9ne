@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
+_"Take away love and our earth is a tomb. — *Robert Browning*"_
 
 ---
