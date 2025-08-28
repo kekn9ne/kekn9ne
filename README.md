@@ -7,6 +7,6 @@
 
 ---
 
-_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
