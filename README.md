@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 28 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **ketojenik** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You talk when you cease to be at peace with your thoughts. — *Kahlil Gibran*"_
+_"The best way out is always through. — *Robert Frost*"_
 
 ---
