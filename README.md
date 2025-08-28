@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two things a person should never be angry at, what they can help, and what they cannot. — *Plato*"_
+_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
 
 ---
