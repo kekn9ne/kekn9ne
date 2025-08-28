@@ -7,6 +7,6 @@
 
 ---
 
-_"It's much better to do good in a way that no one knows anything about it. — *Leo Tolstoy*"_
+_"Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — *Norman Vincent Peale*"_
 
 ---
