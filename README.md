@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 28 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
+_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
 
 ---
