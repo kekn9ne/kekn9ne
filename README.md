@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
+_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
 
 ---
