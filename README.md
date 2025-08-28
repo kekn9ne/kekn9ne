@@ -7,6 +7,6 @@
 
 ---
 
-_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
+_"It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power! — *Robert Kiyosaki*"_
 
 ---
