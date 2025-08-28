@@ -7,6 +7,6 @@
 
 ---
 
-_"All things come into being by conflict of opposites. — *Heraclitus*"_
+_"The quality, not the longevity, of one's life is what is important. — *Martin Luther King, Jr.*"_
 
 ---
