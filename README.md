@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
+_"We must learn to live together as brothers or perish together as fools. — *Martin Luther King, Jr.*"_
 
 ---
