@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no limitations to the mind except those we acknowledge... — *Napoleon Hill*"_
+_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
 
 ---
