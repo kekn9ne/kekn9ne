@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
+_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
 
 ---
