@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way out is always through. — *Robert Frost*"_
+_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
 
 ---
