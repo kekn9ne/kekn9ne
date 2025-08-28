@@ -7,6 +7,6 @@
 
 ---
 
-_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
