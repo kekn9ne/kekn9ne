@@ -7,6 +7,6 @@
 
 ---
 
-_"We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop. — *Mother Teresa*"_
+_"Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — *James Allen*"_
 
 ---
