@@ -7,6 +7,6 @@
 
 ---
 
-_"Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new. — *Og Mandino*"_
+_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
 
 ---
