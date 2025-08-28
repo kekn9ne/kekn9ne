@@ -7,6 +7,6 @@
 
 ---
 
-_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
+_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
 
 ---
