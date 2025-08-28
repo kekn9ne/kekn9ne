@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power! — *Robert Kiyosaki*"_
+_"Doubt is an uncomfortable condition, but certainty is a ridiculous one. — *Voltaire*"_
 
 ---
