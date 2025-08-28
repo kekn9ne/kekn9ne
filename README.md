@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistakes are always forgivable, if one has the courage to admit them.  — *Bruce Lee*"_
+_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
 
 ---
