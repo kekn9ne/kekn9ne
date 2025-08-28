@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
+_"Life is about not knowing and then doing something anyway. — *Mark Manson*"_
 
 ---
