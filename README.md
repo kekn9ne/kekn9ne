@@ -7,6 +7,6 @@
 
 ---
 
-_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
