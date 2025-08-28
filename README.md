@@ -7,6 +7,6 @@
 
 ---
 
-_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
+_"All happiness depends on courage and work. — *Honore de Balzac*"_
 
 ---
