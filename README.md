@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
