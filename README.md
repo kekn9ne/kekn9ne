@@ -7,6 +7,6 @@
 
 ---
 
-_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
+_"The divine is not something high above us. It is in heaven, it is in earth, it is inside us. — *Morihei Ueshiba*"_
 
 ---
