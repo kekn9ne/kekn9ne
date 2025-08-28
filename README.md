@@ -7,6 +7,6 @@
 
 ---
 
-_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
+_"It always seems impossible until it's done. — *Nelson Mandela*"_
 
 ---
