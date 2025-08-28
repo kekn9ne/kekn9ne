@@ -7,6 +7,6 @@
 
 ---
 
-_"All happiness depends on courage and work. — *Honore de Balzac*"_
+_"Mistakes are always forgivable, if one has the courage to admit them.  — *Bruce Lee*"_
 
 ---
