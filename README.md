@@ -7,6 +7,6 @@
 
 ---
 
-_"The only defense against the world is a thorough knowledge of it. — *John Locke*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
