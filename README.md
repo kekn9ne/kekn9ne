@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is free who is not master of himself. — *Epictetus*"_
+_"Confidence is like a dragon where, for every head cut off, two more heads grow back. — *Criss Jami*"_
 
 ---
