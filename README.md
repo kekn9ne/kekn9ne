@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 28 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ketojenik** by *EGE!* 🎶
 
 ---
 
-_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
+_"You talk when you cease to be at peace with your thoughts. — *Kahlil Gibran*"_
 
 ---
