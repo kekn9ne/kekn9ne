@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. — *Celestine Chua*"_
+_"All things come into being by conflict of opposites. — *Heraclitus*"_
 
 ---
