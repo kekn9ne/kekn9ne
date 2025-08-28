@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about not knowing and then doing something anyway. — *Mark Manson*"_
+_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
 
 ---
