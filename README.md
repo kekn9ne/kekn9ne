@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
 
 ---
