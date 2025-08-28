@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 28 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
+_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
 
 ---
