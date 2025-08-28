@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 28 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
+_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
 
 ---
