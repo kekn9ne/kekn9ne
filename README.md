@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you're sure you can win, be careful that you can live with what you lose. — *Gary Keller*"_
+_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
 
 ---
