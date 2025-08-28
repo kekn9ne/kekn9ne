@@ -7,6 +7,6 @@
 
 ---
 
-_"We must learn to live together as brothers or perish together as fools. — *Martin Luther King, Jr.*"_
+_"Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new. — *Og Mandino*"_
 
 ---
