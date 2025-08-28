@@ -7,6 +7,6 @@
 
 ---
 
-_"We will outstretch the hand if you unclench your fist. — *Barack Obama*"_
+_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
 
 ---
