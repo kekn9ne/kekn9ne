@@ -7,6 +7,6 @@
 
 ---
 
-_"There is always risk, so learn to manage risk instead of avoiding it. — *Robert Kiyosaki*"_
+_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
 
 ---
