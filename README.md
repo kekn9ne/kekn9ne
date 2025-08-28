@@ -7,6 +7,6 @@
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"It doesn't matter where you are coming from. All that matters is where you are going.  — *Brian Tracy*"_
 
 ---
