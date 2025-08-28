@@ -7,6 +7,6 @@
 
 ---
 
-_"Failing is another stepping stone to greatness. — *Oprah Winfrey*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
