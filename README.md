@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
+_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
 
 ---
