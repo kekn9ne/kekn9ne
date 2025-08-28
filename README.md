@@ -7,6 +7,6 @@
 
 ---
 
-_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
+_"Creativity is the greatest rebellion in existence. — *Osho*"_
 
 ---
