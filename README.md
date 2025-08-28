@@ -7,6 +7,6 @@
 
 ---
 
-_"Take away love and our earth is a tomb. — *Robert Browning*"_
+_"Working hard for something we don't care about is called stress: Working hard for something we love is called passion. — *Simon Sinek*"_
 
 ---
