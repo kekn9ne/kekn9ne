@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead the people, walk behind them. — *Lao Tzu*"_
+_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
 
 ---
