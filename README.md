@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"We will outstretch the hand if you unclench your fist. — *Barack Obama*"_
 
 ---
