@@ -7,6 +7,6 @@
 
 ---
 
-_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
