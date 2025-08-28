@@ -7,6 +7,6 @@
 
 ---
 
-_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
+_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
 
 ---
