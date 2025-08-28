@@ -7,6 +7,6 @@
 
 ---
 
-_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
+_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
 
 ---
