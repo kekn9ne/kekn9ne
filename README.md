@@ -7,6 +7,6 @@
 
 ---
 
-_"The divine is not something high above us. It is in heaven, it is in earth, it is inside us. — *Morihei Ueshiba*"_
+_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
 
 ---
