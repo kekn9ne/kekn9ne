@@ -7,6 +7,6 @@
 
 ---
 
-_"Working hard for something we don't care about is called stress: Working hard for something we love is called passion. — *Simon Sinek*"_
+_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
 
 ---
