@@ -7,6 +7,6 @@
 
 ---
 
-_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
+_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
 
 ---
