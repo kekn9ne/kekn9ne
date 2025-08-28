@@ -7,6 +7,6 @@
 
 ---
 
-_"Doubt is an uncomfortable condition, but certainty is a ridiculous one. — *Voltaire*"_
+_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
 
 ---
