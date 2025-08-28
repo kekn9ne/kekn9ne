@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — *James Allen*"_
+_"No man is free who is not master of himself. — *Epictetus*"_
 
 ---
