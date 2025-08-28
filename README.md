@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
+_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
 
 ---
