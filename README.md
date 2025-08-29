@@ -7,6 +7,6 @@
 
 ---
 
-_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
+_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
 
 ---
