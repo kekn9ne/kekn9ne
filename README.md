@@ -7,6 +7,6 @@
 
 ---
 
-_"Big people don't make people feel small. — *Robin Sharma*"_
+_"Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference. — *Robert Frost*"_
 
 ---
