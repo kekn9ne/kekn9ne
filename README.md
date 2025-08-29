@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"You cannot find peace by avoiding life. — *Virginia Woolf*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
