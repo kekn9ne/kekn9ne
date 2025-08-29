@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
