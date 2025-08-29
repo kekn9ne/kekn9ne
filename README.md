@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
+_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
 
 ---
