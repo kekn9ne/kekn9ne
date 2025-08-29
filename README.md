@@ -7,6 +7,6 @@
 
 ---
 
-_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
+_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
 
 ---
