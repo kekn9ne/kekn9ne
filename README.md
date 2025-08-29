@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"It's not what you've got; it's what you do that makes the difference. — *Celestine Chua*"_
 
 ---
