@@ -7,6 +7,6 @@
 
 ---
 
-_"The final mystery is oneself. — *Oscar Wilde*"_
+_"If you have to be in a soap opera try not to be cast in the worst role. — *Judy Garland*"_
 
 ---
