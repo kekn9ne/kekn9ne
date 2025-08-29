@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
+_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
 
 ---
