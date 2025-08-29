@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people do what unsuccessful people are not willing to do. — *Jim Rohn*"_
+_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
 
 ---
