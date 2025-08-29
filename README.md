@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Pışşt Baksana** by *Tefo* 🎶
+🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
 
 ---
 
-_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
+_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
 
 ---
