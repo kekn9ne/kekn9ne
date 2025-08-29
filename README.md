@@ -7,6 +7,6 @@
 
 ---
 
-_"If I love myself I love you. If I love you I love myself. — *Rumi*"_
+_"Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand. — *Colin Powell*"_
 
 ---
