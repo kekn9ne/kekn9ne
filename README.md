@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
