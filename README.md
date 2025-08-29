@@ -7,6 +7,6 @@
 
 ---
 
-_"Do anything, but let it produce joy. — *Walt Whitman*"_
+_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
 
 ---
