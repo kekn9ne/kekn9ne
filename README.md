@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't get to a place that you don't believe exists. — *Unknown*"_
+_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
 
 ---
