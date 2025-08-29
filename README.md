@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☁️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **DOĞUŞTAN BERİ HAKLIYIM (tmm)** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it. — *Gurbaksh Chahal*"_
 
 ---
