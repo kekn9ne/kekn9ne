@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
+_"You can't get to a place that you don't believe exists. — *Unknown*"_
 
 ---
