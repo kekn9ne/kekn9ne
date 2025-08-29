@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
+🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
 
 ---
 
-_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
+_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
 
 ---
