@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect other people's feelings. It might mean nothing to you, but it could mean everything to them. — *Roy T. Bennett*"_
+_"Big people don't make people feel small. — *Robin Sharma*"_
 
 ---
