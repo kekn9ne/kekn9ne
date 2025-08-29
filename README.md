@@ -7,6 +7,6 @@
 
 ---
 
-_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
+_"This is such a short and precious life that it's really important that you don't spend it being unhappy. — *Naval Ravikant*"_
 
 ---
