@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
