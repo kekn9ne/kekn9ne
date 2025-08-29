@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all different. Don't judge, understand instead. — *Roy T. Bennett*"_
+_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
 
 ---
