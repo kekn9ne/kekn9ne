@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you've got; it's what you do that makes the difference. — *Celestine Chua*"_
+_"Decide upon your major definite purpose in life and then organize all your activities around it. — *Brian Tracy*"_
 
 ---
