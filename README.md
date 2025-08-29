@@ -7,6 +7,6 @@
 
 ---
 
-_"What loneliness is more lonely than distrust? — *George Eliot*"_
+_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
 
 ---
