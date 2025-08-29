@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
+_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
 
 ---
