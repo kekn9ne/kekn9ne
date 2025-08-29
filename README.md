@@ -7,6 +7,6 @@
 
 ---
 
-_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
+_"You can't make someone feel good about themselves until you feel good about yourself. — *Robin Sharma*"_
 
 ---
