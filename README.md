@@ -7,6 +7,6 @@
 
 ---
 
-_"The only normal people are the ones you don't know very well. — *Alfred Adler*"_
+_"Believe and you're halfway there. — *Harry S. Truman*"_
 
 ---
