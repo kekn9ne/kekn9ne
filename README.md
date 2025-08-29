@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
 
 ---
