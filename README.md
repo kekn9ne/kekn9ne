@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have. — *Gary Keller*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
