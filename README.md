@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
 
 ---
