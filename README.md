@@ -7,6 +7,6 @@
 
 ---
 
-_"Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference. — *Robert Frost*"_
+_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
 
 ---
