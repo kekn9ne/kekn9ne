@@ -7,6 +7,6 @@
 
 ---
 
-_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
+_"The only normal people are the ones you don't know very well. — *Alfred Adler*"_
 
 ---
