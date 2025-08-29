@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to keep breaking your heart until it opens. — *Rumi*"_
+_"I would rather die on my feet than live on my knees. — *Euripides*"_
 
 ---
