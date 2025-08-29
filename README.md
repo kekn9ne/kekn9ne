@@ -7,6 +7,6 @@
 
 ---
 
-_"When the fish is caught we pay no more attention to the trap. — *Huang Po*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
