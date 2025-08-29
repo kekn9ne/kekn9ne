@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather die on my feet than live on my knees. — *Euripides*"_
+_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
 
 ---
