@@ -7,6 +7,6 @@
 
 ---
 
-_"If you have to be in a soap opera try not to be cast in the worst role. — *Judy Garland*"_
+_"We are all different. Don't judge, understand instead. — *Roy T. Bennett*"_
 
 ---
