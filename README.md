@@ -7,6 +7,6 @@
 
 ---
 
-_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
+_"In life you need either inspiration or desperation. — *Tony Robbins*"_
 
 ---
