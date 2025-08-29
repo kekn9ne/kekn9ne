@@ -7,6 +7,6 @@
 
 ---
 
-_"To love means loving the unlovable. — *Gilbert Chesterton*"_
+_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
 
 ---
