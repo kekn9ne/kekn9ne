@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
+_"Every second you have on this planet is very precious and it's your responsibility that you're happy. — *Naval Ravikant*"_
 
 ---
