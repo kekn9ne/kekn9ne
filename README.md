@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
 
 ---
