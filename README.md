@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
 
 ---
