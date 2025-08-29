@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
 
 ---
