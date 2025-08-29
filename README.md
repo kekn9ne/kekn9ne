@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☁️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **YAZ GELDİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
+_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
 
 ---
