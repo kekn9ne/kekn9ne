@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
+_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
 
 ---
