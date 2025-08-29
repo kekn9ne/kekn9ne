@@ -7,6 +7,6 @@
 
 ---
 
-_"Living life in style also means living a life of balance. — *Jim Rohn*"_
+_"You have to keep breaking your heart until it opens. — *Rumi*"_
 
 ---
