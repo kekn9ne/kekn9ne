@@ -7,6 +7,6 @@
 
 ---
 
-_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
+_"Living life in style also means living a life of balance. — *Jim Rohn*"_
 
 ---
