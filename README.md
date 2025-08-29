@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
 
 ---
