@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"Successful people do what unsuccessful people are not willing to do. — *Jim Rohn*"_
 
 ---
