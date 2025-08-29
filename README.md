@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
+_"If I love myself I love you. If I love you I love myself. — *Rumi*"_
 
 ---
