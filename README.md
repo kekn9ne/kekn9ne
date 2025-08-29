@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: **Pışşt Baksana** by *Tefo* 🎶
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
 
 ---
