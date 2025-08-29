@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
+_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
 
 ---
