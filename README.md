@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 29 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +29°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"The way we feel is the direct result of what we think. — *Peter A. Cohen*"_
 
 ---
