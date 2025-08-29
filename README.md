@@ -7,6 +7,6 @@
 
 ---
 
-_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
+_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
 
 ---
