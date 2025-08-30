@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 31 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
 
 ---
 
-_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
+_"A leader leads by example, not by force. — *Sun Tzu*"_
 
 ---
