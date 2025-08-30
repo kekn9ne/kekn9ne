@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"You are the average of the five people you spend most time with. — *Jim Rohn*"_
 
 ---
