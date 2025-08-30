@@ -7,6 +7,6 @@
 
 ---
 
-_"The most difficult times for many of us are the ones we give ourselves. — *Pema Chodron*"_
+_"A leader is one who knows the way, goes the way, and shows the way. — *Unknown*"_
 
 ---
