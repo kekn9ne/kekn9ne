@@ -7,6 +7,6 @@
 
 ---
 
-_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
+_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
 
 ---
