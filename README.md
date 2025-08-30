@@ -7,6 +7,6 @@
 
 ---
 
-_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
+_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
 
 ---
