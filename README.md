@@ -7,6 +7,6 @@
 
 ---
 
-_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
+_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
 
 ---
