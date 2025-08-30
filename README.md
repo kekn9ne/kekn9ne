@@ -7,6 +7,6 @@
 
 ---
 
-_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
