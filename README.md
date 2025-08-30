@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
+_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
 
 ---
