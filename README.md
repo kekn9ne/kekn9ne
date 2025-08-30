@@ -7,6 +7,6 @@
 
 ---
 
-_"If we all did the things we are capable of doing, we would literally astound ourselves. — *Thomas Edison*"_
+_"Just living is not enough... one must have sunshine, freedom, and a little flower.  — *Hans Christian Andersen*"_
 
 ---
