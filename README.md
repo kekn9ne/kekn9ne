@@ -7,6 +7,6 @@
 
 ---
 
-_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
+_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
 
 ---
