@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
+_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
 
 ---
