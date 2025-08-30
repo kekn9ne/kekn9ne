@@ -7,6 +7,6 @@
 
 ---
 
-_"We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right. — *Sonia Ricotti*"_
+_"Whatever your mind can conceive and believe, it can achieve. — *Napoleon Hill*"_
 
 ---
