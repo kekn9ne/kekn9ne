@@ -7,6 +7,6 @@
 
 ---
 
-_"Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive. — *Maxime Lagace*"_
+_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
 
 ---
