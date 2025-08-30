@@ -7,6 +7,6 @@
 
 ---
 
-_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
+_"There's no coming to consciousness without pain — *Carl Jung*"_
 
 ---
