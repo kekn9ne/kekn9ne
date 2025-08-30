@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 30 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +24°C**  
+🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **We Don't Trust You** by *Future* 🎶
+🎧 Currently Listening: **No Heart** by *21 Savage* 🎶
 
 ---
 
-_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
+_"Conscience is a dog that does not stop us from passing but that we cannot prevent from barking. — *Nicolas Chamfort*"_
 
 ---
