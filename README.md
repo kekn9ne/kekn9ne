@@ -7,6 +7,6 @@
 
 ---
 
-_"Never confuse a single defeat with a final defeat. — *F. Scott Fitzgerald*"_
+_"Make peace with your inner turmoil. — *Unknown*"_
 
 ---
