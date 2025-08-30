@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 30 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: **PEKİ PEKİ** by *Lvbel C5* 🎶
 
 ---
 
-_"You are never too old to become younger. — *Mae West*"_
+_"To raise your consciousness, surround yourself with people of higher consciousness. — *Celestine Chua*"_
 
 ---
