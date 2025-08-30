@@ -7,6 +7,6 @@
 
 ---
 
-_"He who violates another's honor loses his own. — *Publilius Syrus*"_
+_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
 
 ---
