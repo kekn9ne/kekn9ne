@@ -7,6 +7,6 @@
 
 ---
 
-_"I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves. — *Steve Maraboli*"_
+_"You'll get more from being a peacemaker than a warrior. — *Arnold Schwarzenegger*"_
 
 ---
