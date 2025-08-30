@@ -7,6 +7,6 @@
 
 ---
 
-_"My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand. — *Thich Nhat Hanh*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
