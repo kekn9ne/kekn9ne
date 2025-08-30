@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
