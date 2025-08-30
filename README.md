@@ -7,6 +7,6 @@
 
 ---
 
-_"No grand idea was ever born in a conference, but a lot of foolish ideas have died there. — *F. Scott Fitzgerald*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
