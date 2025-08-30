@@ -7,6 +7,6 @@
 
 ---
 
-_"When you want to be honored by others, you learn to honor them first. — *Sathya Sai Baba*"_
+_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
 
 ---
