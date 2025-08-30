@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
+_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
 
 ---
