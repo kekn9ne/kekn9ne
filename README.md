@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
+_"I learned the value of hard work by working hard.  — *Margaret Mead*"_
 
 ---
