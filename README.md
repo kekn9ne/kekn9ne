@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can survive without food. Everything we consume acts either to heal us or to poison us. — *Thich Nhat Hanh*"_
+_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
 
 ---
