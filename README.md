@@ -7,6 +7,6 @@
 
 ---
 
-_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
+_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
 
 ---
