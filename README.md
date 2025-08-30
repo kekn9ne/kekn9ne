@@ -7,6 +7,6 @@
 
 ---
 
-_"I learned the value of hard work by working hard.  — *Margaret Mead*"_
+_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
 
 ---
