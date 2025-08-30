@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
+_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
 
 ---
