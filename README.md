@@ -7,6 +7,6 @@
 
 ---
 
-_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
