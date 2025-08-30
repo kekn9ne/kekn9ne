@@ -7,6 +7,6 @@
 
 ---
 
-_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
+_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
 
 ---
