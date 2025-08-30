@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
