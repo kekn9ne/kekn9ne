@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"Nothing can survive without food. Everything we consume acts either to heal us or to poison us. — *Thich Nhat Hanh*"_
 
 ---
