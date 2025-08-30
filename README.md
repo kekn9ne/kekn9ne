@@ -7,6 +7,6 @@
 
 ---
 
-_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
+_"A needle is not sharp at both ends.  — *Chinese Proverb*"_
 
 ---
