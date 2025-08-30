@@ -7,6 +7,6 @@
 
 ---
 
-_"Your home is where your thoughts find peace. — *Zen Proverb*"_
+_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
 
 ---
