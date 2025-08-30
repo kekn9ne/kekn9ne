@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
 
 ---
