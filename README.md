@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 30 August 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
+_"You are never too old to become younger. — *Mae West*"_
 
 ---
