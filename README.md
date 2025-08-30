@@ -7,6 +7,6 @@
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"The real measure of your wealth is how much you'd be worth if you lost all your money. — *Unknown*"_
 
 ---
