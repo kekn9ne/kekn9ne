@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
+_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
 
 ---
