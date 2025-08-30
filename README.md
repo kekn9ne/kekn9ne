@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are the touchstones of our characters. — *Henry David Thoreau*"_
+_"If we all did the things we are capable of doing, we would literally astound ourselves. — *Thomas Edison*"_
 
 ---
