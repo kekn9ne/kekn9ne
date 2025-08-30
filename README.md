@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
 
 ---
