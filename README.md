@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart that gives, gathers. — *Lao Tzu*"_
+_"When you want to be honored by others, you learn to honor them first. — *Sathya Sai Baba*"_
 
 ---
