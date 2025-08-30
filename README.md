@@ -7,6 +7,6 @@
 
 ---
 
-_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
+_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
 
 ---
