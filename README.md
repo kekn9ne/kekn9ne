@@ -7,6 +7,6 @@
 
 ---
 
-_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
+_"A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. — *Amelia Earhart*"_
 
 ---
