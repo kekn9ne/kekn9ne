@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 31 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **MERMER 2.0 - 2.0** by *remuss1337* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A leader leads by example, not by force. — *Sun Tzu*"_
+_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
 
 ---
