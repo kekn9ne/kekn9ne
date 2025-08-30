@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
+_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
 
 ---
