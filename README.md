@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
+_"I was angered, for I had no shoes. Then I met a man who had no feet.  — *Chinese Proverb*"_
 
 ---
