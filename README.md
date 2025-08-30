@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 30 August 2025**  
-🌤️ Weather in Istanbul: **⛅️  +25°C**  
+🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **We Don't Trust You** by *Future* 🎶
 
 ---
 
-_"Failure is a great teacher. If you're open to it every mistake has a lesson to offer. — *Oprah Winfrey*"_
+_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
 
 ---
