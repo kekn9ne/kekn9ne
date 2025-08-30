@@ -7,6 +7,6 @@
 
 ---
 
-_"Comedy = tragedy + time. — *Carol Burnett*"_
+_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
 
 ---
