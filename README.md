@@ -7,6 +7,6 @@
 
 ---
 
-_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
+_"The most difficult times for many of us are the ones we give ourselves. — *Pema Chodron*"_
 
 ---
