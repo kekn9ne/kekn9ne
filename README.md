@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 31 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RS6** by *Era7capone* 🎶
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
