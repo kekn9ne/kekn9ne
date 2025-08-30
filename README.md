@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
+_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
 
 ---
