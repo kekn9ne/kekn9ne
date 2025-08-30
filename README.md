@@ -7,6 +7,6 @@
 
 ---
 
-_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
+_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
 
 ---
