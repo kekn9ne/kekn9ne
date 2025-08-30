@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll get more from being a peacemaker than a warrior. — *Arnold Schwarzenegger*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
