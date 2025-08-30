@@ -7,6 +7,6 @@
 
 ---
 
-_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
+_"Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive. — *Maxime Lagace*"_
 
 ---
