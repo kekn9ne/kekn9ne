@@ -7,6 +7,6 @@
 
 ---
 
-_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
+_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
 
 ---
