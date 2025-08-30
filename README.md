@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
+_"Older men declare war. But it is youth that must fight and die. — *Herbert Hoover*"_
 
 ---
