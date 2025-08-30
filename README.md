@@ -7,6 +7,6 @@
 
 ---
 
-_"A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. — *Amelia Earhart*"_
+_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
 
 ---
