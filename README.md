@@ -7,6 +7,6 @@
 
 ---
 
-_"I was angered, for I had no shoes. Then I met a man who had no feet.  — *Chinese Proverb*"_
+_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
 
 ---
