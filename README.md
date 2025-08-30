@@ -7,6 +7,6 @@
 
 ---
 
-_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
+_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
 
 ---
