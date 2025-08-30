@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the average of the five people you spend most time with. — *Jim Rohn*"_
+_"Dreams are the touchstones of our characters. — *Henry David Thoreau*"_
 
 ---
