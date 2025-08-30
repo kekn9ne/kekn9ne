@@ -7,6 +7,6 @@
 
 ---
 
-_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
+_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
 
 ---
