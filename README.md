@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 30 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **PİŞT** by *Era7capone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Common sense is not so common.  — *Voltaire*"_
+_"Never confuse a single defeat with a final defeat. — *F. Scott Fitzgerald*"_
 
 ---
