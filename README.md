@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
+_"No grand idea was ever born in a conference, but a lot of foolish ideas have died there. — *F. Scott Fitzgerald*"_
 
 ---
