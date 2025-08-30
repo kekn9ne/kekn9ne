@@ -7,6 +7,6 @@
 
 ---
 
-_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
+_"Your home is where your thoughts find peace. — *Zen Proverb*"_
 
 ---
