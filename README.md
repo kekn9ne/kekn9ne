@@ -7,6 +7,6 @@
 
 ---
 
-_"One always begins to forgive a place as soon as it's left behind. — *Charles Dickens*"_
+_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
 
 ---
