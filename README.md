@@ -7,6 +7,6 @@
 
 ---
 
-_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
+_"Never confuse a single defeat with a final defeat. — *F. Scott Fitzgerald*"_
 
 ---
