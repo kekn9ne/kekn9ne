@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of change is to focus all your energy not on fighting the old, but on building the new. — *Dan Millman*"_
+_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
 
 ---
