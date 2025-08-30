@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no coming to consciousness without pain — *Carl Jung*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
