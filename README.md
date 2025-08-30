@@ -7,6 +7,6 @@
 
 ---
 
-_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
+_"The more you extend kindness to yourself, the more it will become your automatic response to others. — *Wayne Dyer*"_
 
 ---
