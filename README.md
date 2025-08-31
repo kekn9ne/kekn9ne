@@ -7,6 +7,6 @@
 
 ---
 
-_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
+_"May you live all the days of your life. — *Jonathan Swift*"_
 
 ---
