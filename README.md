@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is one who knows the way, goes the way, and shows the way. — *Unknown*"_
+_"Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted. — *Robert Collier*"_
 
 ---
