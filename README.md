@@ -7,6 +7,6 @@
 
 ---
 
-_"Create each day anew. — *Morihei Ueshiba*"_
+_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
 
 ---
