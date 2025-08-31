@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 31 August 2025**  
 🌤️ Weather in Istanbul: **🌫  +21°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
+_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
 
 ---
