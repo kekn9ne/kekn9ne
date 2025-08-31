@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
+_"Create each day anew. — *Morihei Ueshiba*"_
 
 ---
