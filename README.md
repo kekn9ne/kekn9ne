@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is only real, when shared. — *Christopher McCandless*"_
+_"Courage is knowing what not to fear. — *Plato*"_
 
 ---
