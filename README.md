@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember the entrance to the sanctuary is inside you. — *Rumi*"_
+_"You don't need to be better than anyone else, you just need to be better than you used to be. — *Wayne Dyer*"_
 
 ---
