@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 31 August 2025**  
 🌤️ Weather in Istanbul: **☀️   +33°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is. — *Eckhart Tolle*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
