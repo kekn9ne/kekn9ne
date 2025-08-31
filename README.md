@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
+_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
 
 ---
