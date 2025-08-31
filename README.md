@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
