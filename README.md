@@ -7,6 +7,6 @@
 
 ---
 
-_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
+_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
 
 ---
