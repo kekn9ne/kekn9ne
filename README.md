@@ -7,6 +7,6 @@
 
 ---
 
-_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
