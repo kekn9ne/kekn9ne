@@ -7,6 +7,6 @@
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"There are people who have money and people who are rich. — *Coco Chanel*"_
 
 ---
