@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
+_"Follow the man who seeks the truth; run from the man who has found it. — *Vaclav Havel*"_
 
 ---
