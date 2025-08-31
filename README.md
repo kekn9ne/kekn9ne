@@ -7,6 +7,6 @@
 
 ---
 
-_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
+_"Success is built sequentially. It's one thing at a time. — *Gary Keller*"_
 
 ---
