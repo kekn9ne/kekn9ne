@@ -7,6 +7,6 @@
 
 ---
 
-_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
+_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
 
 ---
