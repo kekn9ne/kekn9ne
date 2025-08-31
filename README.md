@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
+_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
 
 ---
