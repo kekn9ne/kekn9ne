@@ -7,6 +7,6 @@
 
 ---
 
-_"Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving. — *Yanni*"_
+_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
 
 ---
