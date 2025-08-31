@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is the worst thing about the present. — *Gustave Flaubert*"_
+_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
 
 ---
