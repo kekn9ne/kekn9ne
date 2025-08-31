@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — *James Allen*"_
+_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
 
 ---
