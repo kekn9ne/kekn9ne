@@ -7,6 +7,6 @@
 
 ---
 
-_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
+_"A Penny Saved is a Penny Earned — *Benjamin Franklin*"_
 
 ---
