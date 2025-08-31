@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 31 August 2025**  
 🌤️ Weather in Istanbul: **🌫  +21°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
 
 ---
 
-_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
