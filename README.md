@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
+_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
 
 ---
