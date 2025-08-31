@@ -7,6 +7,6 @@
 
 ---
 
-_"We are always complaining that our days are few, and acting as though there would be no end of them.   — *Seneca*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
