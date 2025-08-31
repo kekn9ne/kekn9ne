@@ -7,6 +7,6 @@
 
 ---
 
-_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
+_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
 
 ---
