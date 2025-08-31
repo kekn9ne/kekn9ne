@@ -7,6 +7,6 @@
 
 ---
 
-_"Weeds are flowers too, once you get to know them. — *A.A. Milne*"_
+_"Go for it now. The future is promised to no one. — *Wayne Dyer*"_
 
 ---
