@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
+_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
 
 ---
