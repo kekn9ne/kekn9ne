@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
