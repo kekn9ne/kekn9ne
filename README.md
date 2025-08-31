@@ -7,6 +7,6 @@
 
 ---
 
-_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
+_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
 
 ---
