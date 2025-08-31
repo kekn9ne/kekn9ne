@@ -7,6 +7,6 @@
 
 ---
 
-_"Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence? — *Sathya Sai Baba*"_
+_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
 
 ---
