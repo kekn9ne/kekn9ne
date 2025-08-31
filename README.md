@@ -7,6 +7,6 @@
 
 ---
 
-_"Peaceful is the one who expects nothing. — *Maxime Lagace*"_
+_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
 
 ---
