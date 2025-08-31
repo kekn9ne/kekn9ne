@@ -7,6 +7,6 @@
 
 ---
 
-_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
+_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
 
 ---
