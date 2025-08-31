@@ -7,6 +7,6 @@
 
 ---
 
-_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
+_"Go and do the things you can't. That is how you get to do them. — *Pablo Picasso*"_
 
 ---
