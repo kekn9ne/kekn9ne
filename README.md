@@ -7,6 +7,6 @@
 
 ---
 
-_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
+_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
 
 ---
