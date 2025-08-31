@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowledge isn't power until it is applied. — *Dale Carnegie*"_
+_"It is not what we get. But who we become, what we contribute... that gives meaning to our lives. — *Tony Robbins*"_
 
 ---
