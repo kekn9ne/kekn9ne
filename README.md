@@ -7,6 +7,6 @@
 
 ---
 
-_"Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in. — *Robert Greene*"_
+_"Think and wonder, wonder and think. — *Dr. Seuss*"_
 
 ---
