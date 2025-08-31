@@ -7,6 +7,6 @@
 
 ---
 
-_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
+_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
 
 ---
