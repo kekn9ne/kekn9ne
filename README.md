@@ -7,6 +7,6 @@
 
 ---
 
-_"There are people who have money and people who are rich. — *Coco Chanel*"_
+_"Better to live until you die. — *Dan Millman*"_
 
 ---
