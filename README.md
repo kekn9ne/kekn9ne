@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is knowing what not to fear. — *Plato*"_
+_"Remember the entrance to the sanctuary is inside you. — *Rumi*"_
 
 ---
