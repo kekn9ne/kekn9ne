@@ -7,6 +7,6 @@
 
 ---
 
-_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
+_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
 
 ---
