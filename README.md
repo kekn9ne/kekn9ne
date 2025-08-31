@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to live until you die. — *Dan Millman*"_
+_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
 
 ---
