@@ -7,6 +7,6 @@
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"The only lost cause is one we give up on before we enter the struggle. — *Vaclav Havel*"_
 
 ---
