@@ -7,6 +7,6 @@
 
 ---
 
-_"Whoever is happy will make others happy too. — *Anne Frank*"_
+_"You can't make someone feel good about themselves until you feel good about yourself. — *Robin Sharma*"_
 
 ---
