@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
 
 ---
