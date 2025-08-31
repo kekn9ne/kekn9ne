@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
+_"Weeds are flowers too, once you get to know them. — *A.A. Milne*"_
 
 ---
