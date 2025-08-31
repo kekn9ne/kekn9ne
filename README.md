@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
+_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
 
 ---
