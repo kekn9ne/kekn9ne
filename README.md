@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
+_"Desire for the fruits of work must never be your motive in working. — *Bhagavad Gita*"_
 
 ---
