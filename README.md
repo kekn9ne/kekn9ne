@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow the man who seeks the truth; run from the man who has found it. — *Vaclav Havel*"_
+_"Happiness is only real, when shared. — *Christopher McCandless*"_
 
 ---
