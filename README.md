@@ -7,6 +7,6 @@
 
 ---
 
-_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
+_"The future is the worst thing about the present. — *Gustave Flaubert*"_
 
 ---
