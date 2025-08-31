@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
+_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
 
 ---
