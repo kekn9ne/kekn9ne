@@ -7,6 +7,6 @@
 
 ---
 
-_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
