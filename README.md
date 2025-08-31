@@ -7,6 +7,6 @@
 
 ---
 
-_"May you live all the days of your life. — *Jonathan Swift*"_
+_"He who has overcome his fears will truly be free. — *Aristotle*"_
 
 ---
