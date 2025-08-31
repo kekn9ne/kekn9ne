@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire for the fruits of work must never be your motive in working. — *Bhagavad Gita*"_
+_"The question isn't who is going to let me; it's who is going to stop me. — *Ayn Rand*"_
 
 ---
