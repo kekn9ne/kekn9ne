@@ -7,6 +7,6 @@
 
 ---
 
-_"I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better. — *Elon Musk*"_
+_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
 
 ---
