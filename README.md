@@ -7,6 +7,6 @@
 
 ---
 
-_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
+_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
 
 ---
