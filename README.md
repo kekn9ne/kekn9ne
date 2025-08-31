@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
 
 ---
