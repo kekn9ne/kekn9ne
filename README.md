@@ -7,6 +7,6 @@
 
 ---
 
-_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
