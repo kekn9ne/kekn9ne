@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
