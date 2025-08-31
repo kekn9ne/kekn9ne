@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not what we get. But who we become, what we contribute... that gives meaning to our lives. — *Tony Robbins*"_
+_"Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence? — *Sathya Sai Baba*"_
 
 ---
