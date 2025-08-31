@@ -7,6 +7,6 @@
 
 ---
 
-_"Nature does not hurry, yet everything is accomplished. — *Lao Tzu*"_
+_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
 
 ---
