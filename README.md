@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is built sequentially. It's one thing at a time. — *Gary Keller*"_
+_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
 
 ---
