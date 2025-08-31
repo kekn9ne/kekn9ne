@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
+_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
 
 ---
