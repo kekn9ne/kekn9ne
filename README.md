@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
+_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
 
 ---
