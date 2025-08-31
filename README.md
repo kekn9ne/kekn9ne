@@ -7,6 +7,6 @@
 
 ---
 
-_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
+_"High thoughts must have high language. — *Aristophanes*"_
 
 ---
