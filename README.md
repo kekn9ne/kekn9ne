@@ -7,6 +7,6 @@
 
 ---
 
-_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
+_"Nature does not hurry, yet everything is accomplished. — *Lao Tzu*"_
 
 ---
