@@ -7,6 +7,6 @@
 
 ---
 
-_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
+_"Life goes by very fast. And the worst thing in life that you can have is a job that you hate, and have no energy and creativity in. — *Robert Greene*"_
 
 ---
