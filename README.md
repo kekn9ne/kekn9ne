@@ -7,6 +7,6 @@
 
 ---
 
-_"Go for it now. The future is promised to no one. — *Wayne Dyer*"_
+_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
 
 ---
