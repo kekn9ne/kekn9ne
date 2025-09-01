@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
+_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
 
 ---
