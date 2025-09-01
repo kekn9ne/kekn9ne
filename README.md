@@ -7,6 +7,6 @@
 
 ---
 
-_"When something comes from within, when it is a part of you, you have no choice but to live it, to express it. — *Kamal Ravikant*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
