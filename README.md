@@ -7,6 +7,6 @@
 
 ---
 
-_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
+_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
 
 ---
