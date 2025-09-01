@@ -7,6 +7,6 @@
 
 ---
 
-_"It is amazing what you can accomplish if you do not care who gets the credit. — *Harry S. Truman*"_
+_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
 
 ---
