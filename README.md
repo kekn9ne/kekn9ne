@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
+_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
 
 ---
