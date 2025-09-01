@@ -7,6 +7,6 @@
 
 ---
 
-_"Engage in those actions and thoughts that nurture the good qualities you want to have. — *Paramahansa Yogananda*"_
+_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
 
 ---
