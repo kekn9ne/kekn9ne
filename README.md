@@ -7,6 +7,6 @@
 
 ---
 
-_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
+_"Engage in those actions and thoughts that nurture the good qualities you want to have. — *Paramahansa Yogananda*"_
 
 ---
