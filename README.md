@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
+_"Anyone telling you it's pointless to share your perspective is sharing their perspective. — *Jack Butcher*"_
 
 ---
