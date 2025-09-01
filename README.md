@@ -7,6 +7,6 @@
 
 ---
 
-_"The mind is the limit. — *Arnold Schwarzenegger*"_
+_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
 
 ---
