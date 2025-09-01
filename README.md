@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of difficulty lies opportunity. — *Albert Einstein*"_
+_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
 
 ---
