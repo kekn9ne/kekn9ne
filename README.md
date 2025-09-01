@@ -7,6 +7,6 @@
 
 ---
 
-_"The more one judges, the less one loves. — *Honore de Balzac*"_
+_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
 
 ---
