@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no greater agony than bearing an untold story inside you. — *Maya Angelou*"_
+_"Act as if what you do makes a difference. It does. — *William James*"_
 
 ---
