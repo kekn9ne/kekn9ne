@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
+_"Life is not just the passing of time. Life is the collection of experiences and their intensity. — *Jim Rohn*"_
 
 ---
