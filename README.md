@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **euphoria** by *Kendrick Lamar* 🎶
 
 ---
 
-_"Don't criticize what you can't understand.  — *Bob Dylan*"_
+_"You are what you do, not what you say you'll do. — *Carl Jung*"_
 
 ---
