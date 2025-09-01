@@ -7,6 +7,6 @@
 
 ---
 
-_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
+_"If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man. — *Mark Twain*"_
 
 ---
