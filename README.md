@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
+_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
 
 ---
