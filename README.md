@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
+_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
 
 ---
