@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest test of courage on earth is to bear defeat without losing heart. — *Robert Greene*"_
+_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
 
 ---
