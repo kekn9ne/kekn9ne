@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
+_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
 
 ---
