@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people get ahead during the time that others waste. — *Henry Ford*"_
+_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
 
 ---
