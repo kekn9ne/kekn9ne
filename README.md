@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
+_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
 
 ---
