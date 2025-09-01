@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone telling you it's pointless to share your perspective is sharing their perspective. — *Jack Butcher*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
