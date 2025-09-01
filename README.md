@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important battle is one to conquer yourself. — *Yanni*"_
+_"Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. — *Celestine Chua*"_
 
 ---
