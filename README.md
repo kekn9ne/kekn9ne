@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
+_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
 
 ---
