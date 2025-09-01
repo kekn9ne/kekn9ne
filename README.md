@@ -7,6 +7,6 @@
 
 ---
 
-_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
+_"If you don't program yourself, life will program you. — *Les Brown*"_
 
 ---
