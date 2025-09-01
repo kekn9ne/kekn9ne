@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
 
 ---
