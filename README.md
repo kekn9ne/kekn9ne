@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"You are today where your thoughts have brought you. — *James Allen*"_
 
 ---
