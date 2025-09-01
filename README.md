@@ -7,6 +7,6 @@
 
 ---
 
-_"We are willing to believe anything other than the truth. — *Carlos Ruiz Zafon*"_
+_"Everybody has talent, but ability takes hard work. — *Michael Jordan*"_
 
 ---
