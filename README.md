@@ -7,6 +7,6 @@
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
 
 ---
