@@ -7,6 +7,6 @@
 
 ---
 
-_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
+_"Your friends will know you better in the first minute you meet than your acquaintances will know you in a thousand years. — *Richard Bach*"_
 
 ---
