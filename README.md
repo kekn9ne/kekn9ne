@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
+_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
 
 ---
