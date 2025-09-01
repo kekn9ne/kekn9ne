@@ -7,6 +7,6 @@
 
 ---
 
-_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
+_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
 
 ---
