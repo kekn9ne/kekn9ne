@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
+_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
 
 ---
