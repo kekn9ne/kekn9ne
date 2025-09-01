@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
+_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
 
 ---
