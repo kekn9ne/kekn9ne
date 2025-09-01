@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"In the middle of difficulty lies opportunity. — *Albert Einstein*"_
 
 ---
