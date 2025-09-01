@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"Adventure is not outside man; it is within. — *George Eliot*"_
 
 ---
