@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **118 80** by *KAVAK* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Have a vision. Be demanding. — *Colin Powell*"_
+_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
 
 ---
