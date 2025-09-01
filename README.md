@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't program yourself, life will program you. — *Les Brown*"_
+_"Darkness is the absence of light. — *Kamal Ravikant*"_
 
 ---
