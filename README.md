@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the progressive realization of a worthy goal or ideal. — *Earl Nightingale*"_
+_"There is no greater agony than bearing an untold story inside you. — *Maya Angelou*"_
 
 ---
