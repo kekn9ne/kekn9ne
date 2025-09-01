@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to travel a long way to find what is near. — *Paulo Coelho*"_
+_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
 
 ---
