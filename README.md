@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness is the absence of light. — *Kamal Ravikant*"_
+_"Success is the progressive realization of a worthy goal or ideal. — *Earl Nightingale*"_
 
 ---
