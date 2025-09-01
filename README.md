@@ -7,6 +7,6 @@
 
 ---
 
-_"Act as if what you do makes a difference. It does. — *William James*"_
+_"Better to die fighting for freedom than be a prisoner all the days of your life. — *Bob Marley*"_
 
 ---
