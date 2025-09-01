@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
