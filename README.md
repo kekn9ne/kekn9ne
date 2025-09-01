@@ -7,6 +7,6 @@
 
 ---
 
-_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
+_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
 
 ---
