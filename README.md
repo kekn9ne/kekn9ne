@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no excuse for not trying. — *Barack Obama*"_
+_"All happiness depends on courage and work. — *Honore de Balzac*"_
 
 ---
