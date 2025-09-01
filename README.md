@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **77**  
-🎧 Currently Listening: **euphoria** by *Kendrick Lamar* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are what you do, not what you say you'll do. — *Carl Jung*"_
+_"Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality. — *Earl Nightingale*"_
 
 ---
