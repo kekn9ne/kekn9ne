@@ -7,6 +7,6 @@
 
 ---
 
-_"All happiness depends on courage and work. — *Honore de Balzac*"_
+_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
 
 ---
