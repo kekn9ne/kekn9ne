@@ -7,6 +7,6 @@
 
 ---
 
-_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
+_"The only lost cause is one we give up on before we enter the struggle. — *Vaclav Havel*"_
 
 ---
