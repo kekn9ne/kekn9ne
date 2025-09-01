@@ -7,6 +7,6 @@
 
 ---
 
-_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
+_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
 
 ---
