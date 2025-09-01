@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
 
 ---
