@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **YAPAR MISIN?** by *Poizi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
+_"Listen to what you know instead of what you fear. — *Richard Bach*"_
 
 ---
