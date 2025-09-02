@@ -7,6 +7,6 @@
 
 ---
 
-_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
+_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
 
 ---
