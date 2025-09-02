@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
 
 ---
 
-_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
+_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
 
 ---
