@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is never too late to be what you might have been. — *George Eliot*"_
+_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
 
 ---
