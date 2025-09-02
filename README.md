@@ -7,6 +7,6 @@
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"There is no way to happiness - happiness is the way. — *Thich Nhat Hanh*"_
 
 ---
