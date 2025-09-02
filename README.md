@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
+_"Trust is built and maintained by many small actions over time. — *Lolly Daskal*"_
 
 ---
