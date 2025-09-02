@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
+_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
 
 ---
