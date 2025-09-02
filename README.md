@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no significance in life without struggle. — *Lolly Daskal*"_
+_"No valid plans for the future can be made by those who have no capacity for living now. — *Alan Watts*"_
 
 ---
