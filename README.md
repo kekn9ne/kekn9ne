@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — *Brian Tracy*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
