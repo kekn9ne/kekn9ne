@@ -7,6 +7,6 @@
 
 ---
 
-_"No kind action ever stops with itself. One kind action leads to another. Good example is followed. — *Amelia Earhart*"_
+_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
 
 ---
