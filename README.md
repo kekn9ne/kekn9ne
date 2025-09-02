@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
+_"No kind action ever stops with itself. One kind action leads to another. Good example is followed. — *Amelia Earhart*"_
 
 ---
