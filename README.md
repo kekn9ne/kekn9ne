@@ -7,6 +7,6 @@
 
 ---
 
-_"When things go wrong, don't go with them. — *Elvis Presley*"_
+_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
 
 ---
