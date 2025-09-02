@@ -7,6 +7,6 @@
 
 ---
 
-_"Live as if you were to die tomorrow. Learn as if you were to live forever. — *Mahatma Gandhi*"_
+_"Your next step is simple. You are the first domino. — *Gary Keller*"_
 
 ---
