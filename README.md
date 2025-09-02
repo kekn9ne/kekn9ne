@@ -7,6 +7,6 @@
 
 ---
 
-_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
