@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: **Mani** by *Ceg* 🎶
+🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
 
 ---
 
-_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
+_"It is never too late to be what you might have been. — *George Eliot*"_
 
 ---
