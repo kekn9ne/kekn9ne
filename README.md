@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"You are free, and that is why you are lost.  — *Franz Kafka*"_
 
 ---
