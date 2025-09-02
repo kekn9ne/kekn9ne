@@ -7,6 +7,6 @@
 
 ---
 
-_"The traveler sees what he sees. The tourist sees what he has come to see. — *Gilbert Chesterton*"_
+_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
 
 ---
