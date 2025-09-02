@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost.  — *Franz Kafka*"_
+_"Short cuts make long delays. — *J.R.R. Tolkien*"_
 
 ---
