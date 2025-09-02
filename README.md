@@ -7,6 +7,6 @@
 
 ---
 
-_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
+_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
 
 ---
