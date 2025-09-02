@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
+_"To be prepared is half the victory.  — *Miguel de Cervantes*"_
 
 ---
