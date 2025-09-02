@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: **WAG1** by *UZI* 🎶
+🎧 Currently Listening: **Mani** by *Ceg* 🎶
 
 ---
 
-_"Great ones are willing to get burned time and again as they sharpen their swords in the fire. — *Josh Waitzkin*"_
+_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
 
 ---
