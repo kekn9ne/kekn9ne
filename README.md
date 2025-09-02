@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
+_"The traveler sees what he sees. The tourist sees what he has come to see. — *Gilbert Chesterton*"_
 
 ---
