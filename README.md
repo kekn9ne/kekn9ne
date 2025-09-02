@@ -7,6 +7,6 @@
 
 ---
 
-_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
+_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
 
 ---
