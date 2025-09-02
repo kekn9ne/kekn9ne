@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
+_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
 
 ---
