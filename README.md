@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
+_"Do not pray for an easy life, pray for the strength to endure a difficult one.   — *Bruce Lee*"_
 
 ---
