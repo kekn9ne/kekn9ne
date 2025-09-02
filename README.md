@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
