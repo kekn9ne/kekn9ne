@@ -7,6 +7,6 @@
 
 ---
 
-_"No one has ever become poor by giving. — *Anne Frank*"_
+_"When things go wrong, don't go with them. — *Elvis Presley*"_
 
 ---
