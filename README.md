@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — *Joan Rivers*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
