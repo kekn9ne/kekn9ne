@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Vurdum** by *Mass* 🎶
 
 ---
 
-_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
+_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
 
 ---
