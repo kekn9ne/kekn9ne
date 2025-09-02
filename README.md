@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
 
 ---
