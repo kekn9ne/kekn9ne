@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YAPAR MISIN?** by *Poizi* 🎶
 
 ---
 
-_"Wishing to be friends is quick work, but friendship is a slow ripening fruit. — *Aristotle*"_
+_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
 
 ---
