@@ -7,6 +7,6 @@
 
 ---
 
-_"If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man. — *Mark Twain*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
