@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
+_"Whether you think you can or think you can't – you are right. — *Henry Ford*"_
 
 ---
