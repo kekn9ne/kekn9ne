@@ -7,6 +7,6 @@
 
 ---
 
-_"Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along.  — *Paramahansa Yogananda*"_
+_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
 
 ---
