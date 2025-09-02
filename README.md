@@ -7,6 +7,6 @@
 
 ---
 
-_"Your next step is simple. You are the first domino. — *Gary Keller*"_
+_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
 
 ---
