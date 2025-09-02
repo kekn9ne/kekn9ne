@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no way to happiness - happiness is the way. — *Thich Nhat Hanh*"_
+_"When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place. — *Bhagavad Gita*"_
 
 ---
