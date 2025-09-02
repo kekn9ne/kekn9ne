@@ -7,6 +7,6 @@
 
 ---
 
-_"Conscience is a dog that does not stop us from passing but that we cannot prevent from barking. — *Nicolas Chamfort*"_
+_"A poet should be so crafty with words that he is envied even for his pains. — *Criss Jami*"_
 
 ---
