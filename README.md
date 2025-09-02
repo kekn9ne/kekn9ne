@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
