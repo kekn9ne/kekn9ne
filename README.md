@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give. — *Eleanor Roosevelt*"_
+_"All has not been said and never will be. — *Samuel Beckett*"_
 
 ---
