@@ -7,6 +7,6 @@
 
 ---
 
-_"My guiding principle is this: Guilt is never to be doubted.  — *Franz Kafka*"_
+_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
 
 ---
