@@ -7,6 +7,6 @@
 
 ---
 
-_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
+_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
 
 ---
