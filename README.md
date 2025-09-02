@@ -7,6 +7,6 @@
 
 ---
 
-_"To be of use to the world is the only way to be happy. — *Hans Christian Andersen*"_
+_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
 
 ---
