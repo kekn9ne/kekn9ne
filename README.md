@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you admire was once a beginner. — *Jack Butcher*"_
+_"For fast-acting relief try slowing down. — *Lily Tomlin*"_
 
 ---
