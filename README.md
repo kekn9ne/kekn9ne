@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
+_"FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours. — *Zig Ziglar*"_
 
 ---
