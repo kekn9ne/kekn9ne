@@ -7,6 +7,6 @@
 
 ---
 
-_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
+_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
 
 ---
