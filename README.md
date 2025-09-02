@@ -7,6 +7,6 @@
 
 ---
 
-_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
+_"Success is stumbling from failure to failure with no loss of enthusiasm. — *Winston Churchill*"_
 
 ---
