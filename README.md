@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is built and maintained by many small actions over time. — *Lolly Daskal*"_
+_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
 
 ---
