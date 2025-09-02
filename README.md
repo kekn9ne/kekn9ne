@@ -7,6 +7,6 @@
 
 ---
 
-_"All has not been said and never will be. — *Samuel Beckett*"_
+_"If you see someone without a smile give them one of yours. — *Unknown*"_
 
 ---
