@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **83**  
-🎧 Currently Listening: **Vurdum** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
+_"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — *Joan Rivers*"_
 
 ---
