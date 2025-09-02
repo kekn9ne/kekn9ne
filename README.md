@@ -7,6 +7,6 @@
 
 ---
 
-_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
+_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
 
 ---
