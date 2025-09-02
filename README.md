@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people spend more time and energy going around problems than in trying to solve them.  — *Henry Ford*"_
+_"Conscience is a dog that does not stop us from passing but that we cannot prevent from barking. — *Nicolas Chamfort*"_
 
 ---
