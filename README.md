@@ -7,6 +7,6 @@
 
 ---
 
-_"If you see someone without a smile give them one of yours. — *Unknown*"_
+_"Every day is an opportunity to a make a new happy ending. — *Jonathan Swift*"_
 
 ---
