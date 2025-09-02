@@ -7,6 +7,6 @@
 
 ---
 
-_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
+_"Man's character is his fate. — *Heraclitus*"_
 
 ---
