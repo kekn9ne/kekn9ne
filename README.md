@@ -7,6 +7,6 @@
 
 ---
 
-_"When meditation is mastered, the mind is unwavering like the flame of a lamp in a windless place. — *Bhagavad Gita*"_
+_"Wishing to be friends is quick work, but friendship is a slow ripening fruit. — *Aristotle*"_
 
 ---
