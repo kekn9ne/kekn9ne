@@ -7,6 +7,6 @@
 
 ---
 
-_"Short cuts make long delays. — *J.R.R. Tolkien*"_
+_"You cannot swim for new horizons until you have courage to lose sight of the shore. — *William Faulkner*"_
 
 ---
