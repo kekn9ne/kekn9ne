@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
+_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
 
 ---
