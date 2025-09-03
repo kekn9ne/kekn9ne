@@ -7,6 +7,6 @@
 
 ---
 
-_"Meditate. It won't be fun but it will surface what you need to deal with. — *Naval Ravikant*"_
+_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
 
 ---
