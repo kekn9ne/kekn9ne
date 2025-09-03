@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
+_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
 
 ---
