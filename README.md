@@ -7,6 +7,6 @@
 
 ---
 
-_"All leaders are readers. — *Jim Rohn*"_
+_"There are no shortcuts to any place worth going. — *Beverly Sills*"_
 
 ---
