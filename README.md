@@ -7,6 +7,6 @@
 
 ---
 
-_"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach. — *Benjamin Mays*"_
+_"Being a good example is the best form of service. — *Sathya Sai Baba*"_
 
 ---
