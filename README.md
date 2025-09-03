@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is simple. If it was complicated, everyone would understand it. — *Walt Whitman*"_
+_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
 
 ---
