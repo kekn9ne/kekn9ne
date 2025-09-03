@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
+_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
 
 ---
