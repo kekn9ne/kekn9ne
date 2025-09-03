@@ -7,6 +7,6 @@
 
 ---
 
-_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
+_"Change is never easy, but always possible. — *Barack Obama*"_
 
 ---
