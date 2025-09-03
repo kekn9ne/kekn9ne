@@ -7,6 +7,6 @@
 
 ---
 
-_"Men trust their ears less than their eyes. — *Herodotus*"_
+_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
 
 ---
