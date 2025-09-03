@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
+_"Most people get ahead during the time that others waste. — *Henry Ford*"_
 
 ---
