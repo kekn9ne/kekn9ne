@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over. — *Joan Rivers*"_
+_"Change is hardest at the beginning, messiest in the middle and best at the end. — *Robin Sharma*"_
 
 ---
