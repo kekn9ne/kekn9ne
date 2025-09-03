@@ -7,6 +7,6 @@
 
 ---
 
-_"The ego wants comfort and certainty. The soul wants to live fully. — *Maxime Lagace*"_
+_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
 
 ---
