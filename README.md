@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder the conflict, the greater the triumph.  — *George Washington*"_
+_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
 
 ---
