@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
