@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
+_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
 
 ---
