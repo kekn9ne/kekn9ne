@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
 
 ---
