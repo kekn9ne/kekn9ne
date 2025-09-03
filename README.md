@@ -7,6 +7,6 @@
 
 ---
 
-_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
