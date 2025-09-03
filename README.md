@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Pışşt Baksana** by *Tefo* 🎶
 
 ---
 
-_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
+_"Life is not just the passing of time. Life is the collection of experiences and their intensity. — *Jim Rohn*"_
 
 ---
