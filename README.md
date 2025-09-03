@@ -7,6 +7,6 @@
 
 ---
 
-_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
+_"There is no limit to the amount of good you can do if you don't care who gets the credit. — *Ronald Reagan*"_
 
 ---
