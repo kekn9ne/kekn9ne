@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing endures but change. — *Heraclitus*"_
+_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
 
 ---
