@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zehirli Gul 2.0** by *Orcun Millions* 🎶
 
 ---
 
-_"Being entirely honest with oneself is a good exercise. — *Sigmund Freud*"_
+_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
 
 ---
