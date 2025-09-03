@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you trust yourself, the less you compare yourself to others. — *Roy T. Bennett*"_
+_"Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found. — *Alexander Pope*"_
 
 ---
