@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
+_"Failure means you've now learned another valuable lesson that pushes you one step closer to success. — *Steve Harvey*"_
 
 ---
