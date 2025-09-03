@@ -7,6 +7,6 @@
 
 ---
 
-_"It always seems impossible until it's done. — *Nelson Mandela*"_
+_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
 
 ---
