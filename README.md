@@ -7,6 +7,6 @@
 
 ---
 
-_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
+_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
 
 ---
