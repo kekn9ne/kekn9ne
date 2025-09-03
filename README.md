@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
+_"The more you trust yourself, the less you compare yourself to others. — *Roy T. Bennett*"_
 
 ---
