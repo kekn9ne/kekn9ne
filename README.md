@@ -7,6 +7,6 @@
 
 ---
 
-_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
+_"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over. — *Joan Rivers*"_
 
 ---
