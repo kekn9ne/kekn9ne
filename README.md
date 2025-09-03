@@ -7,6 +7,6 @@
 
 ---
 
-_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
+_"There's no coming to consciousness without pain — *Carl Jung*"_
 
 ---
