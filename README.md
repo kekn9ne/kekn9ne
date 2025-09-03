@@ -7,6 +7,6 @@
 
 ---
 
-_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
+_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
 
 ---
