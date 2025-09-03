@@ -7,6 +7,6 @@
 
 ---
 
-_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
+_"All leaders are readers. — *Jim Rohn*"_
 
 ---
