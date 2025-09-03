@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure means you've now learned another valuable lesson that pushes you one step closer to success. — *Steve Harvey*"_
+_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
 
 ---
