@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Altımda Volkswagen GT - Remix** by *kayax19* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
