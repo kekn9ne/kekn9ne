@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 03 September 2025**  
+🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Zehirli Gul 2.0** by *Orcun Millions* 🎶
+🎧 Currently Listening: **Altımda Volkswagen GT - Remix** by *kayax19* 🎶
 
 ---
 
-_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
+_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
 
 ---
