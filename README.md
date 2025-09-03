@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
 
 ---
