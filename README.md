@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
+_"Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. — *Helen Keller*"_
 
 ---
