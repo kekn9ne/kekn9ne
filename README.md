@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
+_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
 
 ---
