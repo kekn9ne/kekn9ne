@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
+_"Only when you can be extremely pliable and soft can you be extremely hard and strong. — *Zen Proverb*"_
 
 ---
