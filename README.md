@@ -7,6 +7,6 @@
 
 ---
 
-_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
+_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
 
 ---
