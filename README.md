@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
+_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
 
 ---
