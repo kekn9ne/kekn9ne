@@ -7,6 +7,6 @@
 
 ---
 
-_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
