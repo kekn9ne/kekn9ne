@@ -7,6 +7,6 @@
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"Live simply, expect little, give much. — *Norman Vincent Peale*"_
 
 ---
