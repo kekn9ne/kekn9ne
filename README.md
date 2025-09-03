@@ -7,6 +7,6 @@
 
 ---
 
-_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
+_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
 
 ---
