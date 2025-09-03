@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no limit to the amount of good you can do if you don't care who gets the credit. — *Ronald Reagan*"_
+_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
 
 ---
