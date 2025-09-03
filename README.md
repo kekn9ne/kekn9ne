@@ -7,6 +7,6 @@
 
 ---
 
-_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
+_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
 
 ---
