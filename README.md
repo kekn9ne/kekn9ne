@@ -7,6 +7,6 @@
 
 ---
 
-_"Less is more. — *Robert Browning*"_
+_"Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness. — *Eckhart Tolle*"_
 
 ---
