@@ -7,6 +7,6 @@
 
 ---
 
-_"Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness. — *Eckhart Tolle*"_
+_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
 
 ---
