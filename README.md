@@ -7,6 +7,6 @@
 
 ---
 
-_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
+_"The truth is simple. If it was complicated, everyone would understand it. — *Walt Whitman*"_
 
 ---
