@@ -7,6 +7,6 @@
 
 ---
 
-_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
+_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
 
 ---
