@@ -7,6 +7,6 @@
 
 ---
 
-_"Only when you can be extremely pliable and soft can you be extremely hard and strong. — *Zen Proverb*"_
+_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
 
 ---
