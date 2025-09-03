@@ -7,6 +7,6 @@
 
 ---
 
-_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
+_"The harder the conflict, the greater the triumph.  — *George Washington*"_
 
 ---
