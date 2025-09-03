@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
