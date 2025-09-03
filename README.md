@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
+_"Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it. — *Celestine Chua*"_
 
 ---
