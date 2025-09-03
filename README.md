@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people get ahead during the time that others waste. — *Henry Ford*"_
+_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
 
 ---
