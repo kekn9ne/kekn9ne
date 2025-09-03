@@ -7,6 +7,6 @@
 
 ---
 
-_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
+_"If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin. — *Charles Darwin*"_
 
 ---
