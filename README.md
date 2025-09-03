@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Wednesday, 03 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +31°C**  
-📊 GitHub Contributions: **89**  
+📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
+_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
 
 ---
