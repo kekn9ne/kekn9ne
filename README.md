@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it. — *Celestine Chua*"_
+_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
 
 ---
