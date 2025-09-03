@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
+_"Men trust their ears less than their eyes. — *Herodotus*"_
 
 ---
