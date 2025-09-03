@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
+_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
 
 ---
