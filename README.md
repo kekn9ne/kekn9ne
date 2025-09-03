@@ -7,6 +7,6 @@
 
 ---
 
-_"The right thing to do and the hard thing to do are usually the same. — *Steve Maraboli*"_
+_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
 
 ---
