@@ -7,6 +7,6 @@
 
 ---
 
-_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
+_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
 
 ---
