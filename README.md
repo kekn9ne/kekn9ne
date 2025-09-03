@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
+_"Meditate. It won't be fun but it will surface what you need to deal with. — *Naval Ravikant*"_
 
 ---
