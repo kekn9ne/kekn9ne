@@ -7,6 +7,6 @@
 
 ---
 
-_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
+_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
 
 ---
