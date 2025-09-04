@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"We are shaped and fashioned by what we love. — *Johann Wolfgang von Goethe*"_
 
 ---
