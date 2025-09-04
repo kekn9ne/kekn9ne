@@ -7,6 +7,6 @@
 
 ---
 
-_"High thoughts must have high language. — *Aristophanes*"_
+_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
 
 ---
