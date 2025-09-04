@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
+_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
 
 ---
