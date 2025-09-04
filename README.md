@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Mermer 3.0** by *Orcun Millions* 🎶
+🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
 
 ---
 
-_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
+_"Every second you have on this planet is very precious and it's your responsibility that you're happy. — *Naval Ravikant*"_
 
 ---
