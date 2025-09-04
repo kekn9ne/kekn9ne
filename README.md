@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
