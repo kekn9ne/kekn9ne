@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience. — *Denis Waitley*"_
+_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
 
 ---
