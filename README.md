@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
+_"Just living is not enough... one must have sunshine, freedom, and a little flower.  — *Hans Christian Andersen*"_
 
 ---
