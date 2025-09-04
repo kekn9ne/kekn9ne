@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
 
 ---
