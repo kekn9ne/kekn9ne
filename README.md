@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
+_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
 
 ---
