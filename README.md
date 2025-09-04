@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
+_"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — *Theodore Roosevelt*"_
 
 ---
