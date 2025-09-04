@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
+_"One small positive thought can change your whole day. — *Zig Ziglar*"_
 
 ---
