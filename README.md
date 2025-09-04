@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise man reads both books and life itself. — *Lin Yutang*"_
+_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
 
 ---
