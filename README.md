@@ -7,6 +7,6 @@
 
 ---
 
-_"The season of failure is the best time for sowing the seeds of success.  — *Paramahansa Yogananda*"_
+_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
 
 ---
