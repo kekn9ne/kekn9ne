@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't allow your mind to tell your heart what to do. The mind gives up easily. — *Paulo Coelho*"_
+_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
 
 ---
