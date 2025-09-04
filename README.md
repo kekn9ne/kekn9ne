@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
