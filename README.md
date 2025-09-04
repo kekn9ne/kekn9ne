@@ -7,6 +7,6 @@
 
 ---
 
-_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
+_"If you can't, you must. If you must, you can. — *Tony Robbins*"_
 
 ---
