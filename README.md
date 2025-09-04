@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
 
 ---
