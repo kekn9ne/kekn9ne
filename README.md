@@ -7,6 +7,6 @@
 
 ---
 
-_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
+_"Make each day your masterpiece. — *John Wooden*"_
 
 ---
