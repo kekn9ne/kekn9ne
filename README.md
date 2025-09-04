@@ -7,6 +7,6 @@
 
 ---
 
-_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
+_"Life happens in the river, not the shore. — *Maxime Lagace*"_
 
 ---
