@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
+_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
 
 ---
