@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
+_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
 
 ---
