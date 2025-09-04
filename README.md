@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
+_"Meditate. It won't be fun but it will surface what you need to deal with. — *Naval Ravikant*"_
 
 ---
