@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
+_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
 
 ---
