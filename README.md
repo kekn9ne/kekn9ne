@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the men in your life that matters, it's the life in your men. — *Mae West*"_
+_"Chop your own wood and it will warm you twice.  — *Henry Ford*"_
 
 ---
