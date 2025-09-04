@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Konuşma Engelli** by *fatihext* 🎶
+🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
 
 ---
 
-_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
+_"Happiness is the spiritual experience of living every minute with love, grace and gratitude. — *Denis Waitley*"_
 
 ---
