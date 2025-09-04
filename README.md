@@ -7,6 +7,6 @@
 
 ---
 
-_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
+_"Comedy = tragedy + time. — *Carol Burnett*"_
 
 ---
