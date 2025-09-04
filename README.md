@@ -7,6 +7,6 @@
 
 ---
 
-_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
+_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
 
 ---
