@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **PARANOYA** by *ERAY067* 🎶
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
 
 ---
