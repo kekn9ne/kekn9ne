@@ -7,6 +7,6 @@
 
 ---
 
-_"Meditate. It won't be fun but it will surface what you need to deal with. — *Naval Ravikant*"_
+_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
 
 ---
