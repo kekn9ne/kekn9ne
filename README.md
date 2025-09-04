@@ -7,6 +7,6 @@
 
 ---
 
-_"Just living is not enough... one must have sunshine, freedom, and a little flower.  — *Hans Christian Andersen*"_
+_"It's not whether you get knocked down, its whether you get back up. — *Vince Lombardi*"_
 
 ---
