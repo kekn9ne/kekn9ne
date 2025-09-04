@@ -7,6 +7,6 @@
 
 ---
 
-_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
+_"One of the oldest human needs is having someone to wonder where you are when you don't come home at night.  — *Margaret Mead*"_
 
 ---
