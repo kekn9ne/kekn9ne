@@ -7,6 +7,6 @@
 
 ---
 
-_"Comedy = tragedy + time. — *Carol Burnett*"_
+_"We build too many walls and not enough bridges. — *Isaac Newton*"_
 
 ---
