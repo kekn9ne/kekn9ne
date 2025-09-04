@@ -7,6 +7,6 @@
 
 ---
 
-_"Chop your own wood and it will warm you twice.  — *Henry Ford*"_
+_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
 
 ---
