@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
+_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
 
 ---
