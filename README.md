@@ -7,6 +7,6 @@
 
 ---
 
-_"We are shaped and fashioned by what we love. — *Johann Wolfgang von Goethe*"_
+_"Dream big and dare to fail. — *Norman Vaughan*"_
 
 ---
