@@ -7,6 +7,6 @@
 
 ---
 
-_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
+_"Go for it now. The future is promised to no one. — *Wayne Dyer*"_
 
 ---
