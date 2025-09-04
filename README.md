@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever. — *Alexandre Dumas*"_
+_"Mistakes are painful when they happen, but years later a collection of mistakes is what is called experience. — *Denis Waitley*"_
 
 ---
