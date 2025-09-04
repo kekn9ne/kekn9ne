@@ -7,6 +7,6 @@
 
 ---
 
-_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
+_"There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever. — *Alexandre Dumas*"_
 
 ---
