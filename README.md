@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
