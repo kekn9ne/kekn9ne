@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every second you have on this planet is very precious and it's your responsibility that you're happy. — *Naval Ravikant*"_
+_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
 
 ---
