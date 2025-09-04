@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not whether you get knocked down, its whether you get back up. — *Vince Lombardi*"_
+_"Life moves on and so should we. — *Spencer Johnson*"_
 
 ---
