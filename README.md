@@ -7,6 +7,6 @@
 
 ---
 
-_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
+_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
 
 ---
