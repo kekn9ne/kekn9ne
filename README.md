@@ -7,6 +7,6 @@
 
 ---
 
-_"We are always complaining that our days are few, and acting as though there would be no end of them.   — *Seneca*"_
+_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
 
 ---
