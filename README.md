@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
+_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
 
 ---
