@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PARANOYA** by *ERAY067* 🎶
+🎧 Currently Listening: **Mermer 3.0** by *Orcun Millions* 🎶
 
 ---
 
-_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
