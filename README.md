@@ -7,6 +7,6 @@
 
 ---
 
-_"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — *Theodore Roosevelt*"_
+_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
 
 ---
