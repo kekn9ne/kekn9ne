@@ -7,6 +7,6 @@
 
 ---
 
-_"Dream big and dare to fail. — *Norman Vaughan*"_
+_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
 
 ---
