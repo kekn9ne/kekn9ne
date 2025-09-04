@@ -7,6 +7,6 @@
 
 ---
 
-_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
+_"It's not the men in your life that matters, it's the life in your men. — *Mae West*"_
 
 ---
