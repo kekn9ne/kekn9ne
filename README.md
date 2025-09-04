@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Zigana 2.0** by *Dethron* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"In the end, it's not the years in your life that count. It's the life in your years. — *Abraham Lincoln*"_
 
 ---
