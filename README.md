@@ -7,6 +7,6 @@
 
 ---
 
-_"One small positive thought can change your whole day. — *Zig Ziglar*"_
+_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
 
 ---
