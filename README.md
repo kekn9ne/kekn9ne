@@ -7,6 +7,6 @@
 
 ---
 
-_"Life moves on and so should we. — *Spencer Johnson*"_
+_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
 
 ---
