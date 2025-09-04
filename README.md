@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't, you must. If you must, you can. — *Tony Robbins*"_
+_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
 
 ---
