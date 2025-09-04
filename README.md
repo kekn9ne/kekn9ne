@@ -7,6 +7,6 @@
 
 ---
 
-_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
