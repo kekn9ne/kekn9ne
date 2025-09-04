@@ -7,6 +7,6 @@
 
 ---
 
-_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
+_"The measure of wisdom is how calm you are when facing any given situation. — *Naval Ravikant*"_
 
 ---
