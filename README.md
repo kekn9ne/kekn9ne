@@ -7,6 +7,6 @@
 
 ---
 
-_"Life happens in the river, not the shore. — *Maxime Lagace*"_
+_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
 
 ---
