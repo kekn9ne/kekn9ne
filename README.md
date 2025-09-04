@@ -7,6 +7,6 @@
 
 ---
 
-_"Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.  — *Oprah Winfrey*"_
+_"The wise man reads both books and life itself. — *Lin Yutang*"_
 
 ---
