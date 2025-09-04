@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
+_"The season of failure is the best time for sowing the seeds of success.  — *Paramahansa Yogananda*"_
 
 ---
