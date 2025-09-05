@@ -7,6 +7,6 @@
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"Peace if possible, truth at all costs. — *Martin Luther*"_
 
 ---
