@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who learn more skills and combine them in creative ways. — *Robert Greene*"_
+_"Better to live until you die. — *Dan Millman*"_
 
 ---
