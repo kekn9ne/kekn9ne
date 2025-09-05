@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
+_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
 
 ---
