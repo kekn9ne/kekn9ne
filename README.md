@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 05 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Behzat ç 2.0** by *Dethron* 🎶
 
 ---
 
-_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
+_"Being wrong opens us up to the possibility of change. — *Mark Manson*"_
 
 ---
