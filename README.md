@@ -7,6 +7,6 @@
 
 ---
 
-_"Be curious, not judgmental. — *Walt Whitman*"_
+_"It is amazing what you can accomplish if you do not care who gets the credit. — *Harry S. Truman*"_
 
 ---
