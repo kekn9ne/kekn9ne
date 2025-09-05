@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day a new horizon. — *Christopher McCandless*"_
+_"Being entirely honest with oneself is a good exercise. — *Sigmund Freud*"_
 
 ---
