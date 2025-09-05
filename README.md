@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the little things done consistently over time, straight from your heart, that have the greatest impact. — *Unknown*"_
+_"The outer conditions of a person's life will always be found to reflect their inner beliefs. — *James Allen*"_
 
 ---
