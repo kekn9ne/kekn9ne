@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
 
 ---
