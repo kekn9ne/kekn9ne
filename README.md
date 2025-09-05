@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. — *Deepak Chopra*"_
+_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
 
 ---
