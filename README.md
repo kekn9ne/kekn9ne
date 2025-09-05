@@ -7,6 +7,6 @@
 
 ---
 
-_"Lost Time is never found again. — *Benjamin Franklin*"_
+_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
 
 ---
