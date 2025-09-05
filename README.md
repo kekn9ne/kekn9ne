@@ -7,6 +7,6 @@
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
 
 ---
