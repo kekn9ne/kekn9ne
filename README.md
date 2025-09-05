@@ -7,6 +7,6 @@
 
 ---
 
-_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
+_"Life is a balance of holding on and letting go. — *Rumi*"_
 
 ---
