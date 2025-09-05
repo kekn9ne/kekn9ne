@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of getting ahead is getting started. — *Mark Twain*"_
+_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
 
 ---
