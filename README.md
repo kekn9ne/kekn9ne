@@ -7,6 +7,6 @@
 
 ---
 
-_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
