@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. — *Albus Dumbledore*"_
+_"When things go wrong, don't go with them. — *Elvis Presley*"_
 
 ---
