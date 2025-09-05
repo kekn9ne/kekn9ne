@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
+_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
 
 ---
