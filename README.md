@@ -7,6 +7,6 @@
 
 ---
 
-_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
+_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
 
 ---
