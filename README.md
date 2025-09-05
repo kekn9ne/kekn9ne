@@ -7,6 +7,6 @@
 
 ---
 
-_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
+_"Be a good animal, true to your instincts. — *D. H. Lawrence*"_
 
 ---
