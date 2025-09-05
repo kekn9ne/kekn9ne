@@ -7,6 +7,6 @@
 
 ---
 
-_"What loneliness is more lonely than distrust? — *George Eliot*"_
+_"Determine never to be idle. No person will have occasion to complain of the want of time who never loses any. — *Thomas Jefferson*"_
 
 ---
