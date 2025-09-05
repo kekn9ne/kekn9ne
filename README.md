@@ -7,6 +7,6 @@
 
 ---
 
-_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
+_"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. — *Albus Dumbledore*"_
 
 ---
