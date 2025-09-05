@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace if possible, truth at all costs. — *Martin Luther*"_
+_"We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet. — *Thich Nhat Hanh*"_
 
 ---
