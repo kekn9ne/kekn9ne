@@ -7,6 +7,6 @@
 
 ---
 
-_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
+_"Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition. — *John Eliot*"_
 
 ---
