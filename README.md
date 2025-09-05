@@ -7,6 +7,6 @@
 
 ---
 
-_"Love doesn't need reason. It speaks from the irrational wisdom of the heart. — *Deepak Chopra*"_
+_"Mistakes are always forgivable, if one has the courage to admit them.  — *Bruce Lee*"_
 
 ---
