@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it! — *Sathya Sai Baba*"_
+_"I am not absentminded. It is the presence of mind that makes me unaware of everything else. — *Gilbert Chesterton*"_
 
 ---
