@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to live until you die. — *Dan Millman*"_
+_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
 
 ---
