@@ -7,6 +7,6 @@
 
 ---
 
-_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
+_"It's the little things done consistently over time, straight from your heart, that have the greatest impact. — *Unknown*"_
 
 ---
