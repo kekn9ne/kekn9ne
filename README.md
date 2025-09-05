@@ -7,6 +7,6 @@
 
 ---
 
-_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
+_"What loneliness is more lonely than distrust? — *George Eliot*"_
 
 ---
