@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 05 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Mani** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
+_"Love doesn't need reason. It speaks from the irrational wisdom of the heart. — *Deepak Chopra*"_
 
 ---
