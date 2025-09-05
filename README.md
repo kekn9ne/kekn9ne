@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace if possible, truth at all costs. — *Martin Luther*"_
+_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
 
 ---
