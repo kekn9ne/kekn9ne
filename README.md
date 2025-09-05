@@ -7,6 +7,6 @@
 
 ---
 
-_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
+_"Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you. — *Lao Tzu*"_
 
 ---
