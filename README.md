@@ -7,6 +7,6 @@
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question. — *John Tukey*"_
 
 ---
