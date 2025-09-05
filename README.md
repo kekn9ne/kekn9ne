@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
 
 ---
