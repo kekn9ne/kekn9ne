@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two kinds of perfect people: those who are dead, and those who have not been born yet. — *Chinese Proverb*"_
+_"The future is the worst thing about the present. — *Gustave Flaubert*"_
 
 ---
