@@ -7,6 +7,6 @@
 
 ---
 
-_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
+_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
 
 ---
