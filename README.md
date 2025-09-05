@@ -7,6 +7,6 @@
 
 ---
 
-_"Start each day with a positive thought and a grateful heart. — *Roy T. Bennett*"_
+_"When your intuition is strong, follow it. — *Lolly Daskal*"_
 
 ---
