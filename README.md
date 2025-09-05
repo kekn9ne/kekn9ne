@@ -7,6 +7,6 @@
 
 ---
 
-_"Work for something because it is good, not just because it stands a chance to succeed. — *Vaclav Havel*"_
+_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
 
 ---
