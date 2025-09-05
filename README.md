@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
+_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
 
 ---
