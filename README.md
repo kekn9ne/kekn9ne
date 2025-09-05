@@ -7,6 +7,6 @@
 
 ---
 
-_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
+_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
 
 ---
