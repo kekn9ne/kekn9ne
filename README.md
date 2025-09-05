@@ -7,6 +7,6 @@
 
 ---
 
-_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
