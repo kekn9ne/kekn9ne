@@ -7,6 +7,6 @@
 
 ---
 
-_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
+_"The only limits in your life are those that you set yourself. — *Celestine Chua*"_
 
 ---
