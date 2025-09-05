@@ -7,6 +7,6 @@
 
 ---
 
-_"If it is not right, do not do it, if it is not true, do not say it. — *Marcus Aurelius*"_
+_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
 
 ---
