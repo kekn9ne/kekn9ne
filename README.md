@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
