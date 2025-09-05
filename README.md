@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
+_"The future belongs to those who learn more skills and combine them in creative ways. — *Robert Greene*"_
 
 ---
