@@ -7,6 +7,6 @@
 
 ---
 
-_"The Art of Peace begins with you. — *Morihei Ueshiba*"_
+_"Much learning does not teach understanding. — *Heraclitus*"_
 
 ---
