@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is created twice, first in the mind and then in reality. — *Robin Sharma*"_
+_"To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength. — *Criss Jami*"_
 
 ---
