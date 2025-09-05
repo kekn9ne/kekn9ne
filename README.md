@@ -7,6 +7,6 @@
 
 ---
 
-_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
+_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
 
 ---
