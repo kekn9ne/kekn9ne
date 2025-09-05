@@ -7,6 +7,6 @@
 
 ---
 
-_"An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question. — *John Tukey*"_
+_"Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has. — *Margaret Mead*"_
 
 ---
