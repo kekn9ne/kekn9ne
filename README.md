@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest fears lie in anticipation. — *Honore de Balzac*"_
+_"Make each day a new horizon. — *Christopher McCandless*"_
 
 ---
