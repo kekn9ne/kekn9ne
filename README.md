@@ -7,6 +7,6 @@
 
 ---
 
-_"Throughout this life, you can never be certain of living long enough to take another breath. — *Zen Proverb*"_
+_"If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man. — *Mark Twain*"_
 
 ---
