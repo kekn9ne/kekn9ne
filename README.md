@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
+_"To live outside the law, you must be honest.  — *Bob Dylan*"_
 
 ---
