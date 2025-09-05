@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
+_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
 
 ---
