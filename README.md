@@ -7,6 +7,6 @@
 
 ---
 
-_"When things go wrong, don't go with them. — *Elvis Presley*"_
+_"Lost Time is never found again. — *Benjamin Franklin*"_
 
 ---
