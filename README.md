@@ -7,6 +7,6 @@
 
 ---
 
-_"Being entirely honest with oneself is a good exercise. — *Sigmund Freud*"_
+_"There are two kinds of perfect people: those who are dead, and those who have not been born yet. — *Chinese Proverb*"_
 
 ---
