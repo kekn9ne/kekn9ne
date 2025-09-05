@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is easier than fault finding. — *Og Mandino*"_
+_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
 
 ---
