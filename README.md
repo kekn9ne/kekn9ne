@@ -7,6 +7,6 @@
 
 ---
 
-_"Determine never to be idle. No person will have occasion to complain of the want of time who never loses any. — *Thomas Jefferson*"_
+_"Throughout this life, you can never be certain of living long enough to take another breath. — *Zen Proverb*"_
 
 ---
