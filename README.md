@@ -7,6 +7,6 @@
 
 ---
 
-_"Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has. — *Margaret Mead*"_
+_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
 
 ---
