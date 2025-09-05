@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a balance of holding on and letting go. — *Rumi*"_
+_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
 
 ---
