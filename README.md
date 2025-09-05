@@ -7,6 +7,6 @@
 
 ---
 
-_"A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself. — *Alexander Graham Bell*"_
+_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
 
 ---
