@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition. — *John Eliot*"_
+_"Our greatest fears lie in anticipation. — *Honore de Balzac*"_
 
 ---
