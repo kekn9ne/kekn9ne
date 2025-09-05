@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
