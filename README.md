@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistakes are always forgivable, if one has the courage to admit them.  — *Bruce Lee*"_
+_"Life is a challenge, meet it! Life is a dream, realize it! Life is a game, play it! Life is love, enjoy it! — *Sathya Sai Baba*"_
 
 ---
