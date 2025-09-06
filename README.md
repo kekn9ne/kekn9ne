@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
 
 ---
