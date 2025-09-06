@@ -7,6 +7,6 @@
 
 ---
 
-_"Manifest plainness, embrace simplicity, reduce selfishness, have few desires. — *Lao Tzu*"_
+_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
 
 ---
