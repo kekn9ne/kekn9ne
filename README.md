@@ -7,6 +7,6 @@
 
 ---
 
-_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
+_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
 
 ---
