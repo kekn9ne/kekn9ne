@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
+_"If you practiced for the day, then you have won. If you were lazy for the day, then you have lost. — *Ming-Dao Deng*"_
 
 ---
