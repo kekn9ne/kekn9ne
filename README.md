@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't get to a place that you don't believe exists. — *Unknown*"_
+_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
 
 ---
