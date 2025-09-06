@@ -7,6 +7,6 @@
 
 ---
 
-_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
+_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
 
 ---
