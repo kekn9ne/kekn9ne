@@ -7,6 +7,6 @@
 
 ---
 
-_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
