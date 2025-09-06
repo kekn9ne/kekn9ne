@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"The quieter you become, the more you are able to hear. — *Rumi*"_
+_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
 
 ---
