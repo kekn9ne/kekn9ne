@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
+_"Without the confidence, nothing can be accomplished. — *Sathya Sai Baba*"_
 
 ---
