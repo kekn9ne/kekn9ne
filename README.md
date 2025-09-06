@@ -7,6 +7,6 @@
 
 ---
 
-_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
+_"Fishing is much more than fish. — *Herbert Hoover*"_
 
 ---
