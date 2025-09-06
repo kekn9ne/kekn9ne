@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
+_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
 
 ---
