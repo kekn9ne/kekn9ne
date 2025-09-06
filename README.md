@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: **Sahilevleri** by *KAVAK* 🎶
 
 ---
 
-_"There is no limit to the amount of good you can do if you don't care who gets the credit. — *Ronald Reagan*"_
+_"In order to be walked over, you have to be lying down. — *Celestine Chua*"_
 
 ---
