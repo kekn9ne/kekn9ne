@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
+_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
 
 ---
