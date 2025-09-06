@@ -7,6 +7,6 @@
 
 ---
 
-_"Your neighbor is the man who needs you. — *Elbert Hubbard*"_
+_"We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change. — *Mark Manson*"_
 
 ---
