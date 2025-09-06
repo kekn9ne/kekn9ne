@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bak Bana** by *Sena Şener* 🎶
 
 ---
 
-_"Truth is exact correspondence with reality.  — *Paramahansa Yogananda*"_
+_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
 
 ---
