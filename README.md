@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
+_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
 
 ---
