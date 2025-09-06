@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **RS6** by *Era7capone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
+_"Note that this journey is uniquely yours, no one elses. So the path has to be your own. — *Jon Kabat-Zinn*"_
 
 ---
