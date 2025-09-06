@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 06 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +24°C**  
+🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Fishing is much more than fish. — *Herbert Hoover*"_
+_"It always seems impossible until it's done. — *Nelson Mandela*"_
 
 ---
