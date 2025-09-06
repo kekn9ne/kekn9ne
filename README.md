@@ -7,6 +7,6 @@
 
 ---
 
-_"The sun is new each day. — *Heraclitus*"_
+_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
 
 ---
