@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **fıs?** by *KAVAK* 🎶
+🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
 
 ---
