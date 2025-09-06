@@ -7,6 +7,6 @@
 
 ---
 
-_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
+_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
 
 ---
