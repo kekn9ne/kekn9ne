@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
+_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
 
 ---
