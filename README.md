@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
+_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
 
 ---
