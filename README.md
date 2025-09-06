@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you know, the more you know you don't know. — *Aristotle*"_
+_"The wisest men follow their own direction. — *Euripides*"_
 
 ---
