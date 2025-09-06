@@ -7,6 +7,6 @@
 
 ---
 
-_"You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. — *Norman Vincent Peale*"_
+_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
 
 ---
