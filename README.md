@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **trendyol** by *tibet* 🎶
 
 ---
 
-_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
+_"There's no coming to consciousness without pain — *Carl Jung*"_
 
 ---
