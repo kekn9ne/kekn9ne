@@ -7,6 +7,6 @@
 
 ---
 
-_"In spite of everything, I shall rise again. — *Vincent van Gogh*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
