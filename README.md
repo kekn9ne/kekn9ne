@@ -7,6 +7,6 @@
 
 ---
 
-_"The wisest men follow their own direction. — *Euripides*"_
+_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
 
 ---
