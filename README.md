@@ -7,6 +7,6 @@
 
 ---
 
-_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
+_"When we have our body and mind in order, everything else will exist in the right place, in the right way. — *Shunryu Suzuki*"_
 
 ---
