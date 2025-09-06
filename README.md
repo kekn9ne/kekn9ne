@@ -7,6 +7,6 @@
 
 ---
 
-_"Conscience is a man's compass.  — *Vincent van Gogh*"_
+_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
 
 ---
