@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
 
 ---
