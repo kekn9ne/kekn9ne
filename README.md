@@ -7,6 +7,6 @@
 
 ---
 
-_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
+_"Each day provides it's own gifts. — *Marcus Aurelius*"_
 
 ---
