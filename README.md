@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter where you are, you are nowhere compared to where you can go. — *Bob Proctor*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
