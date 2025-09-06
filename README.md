@@ -7,6 +7,6 @@
 
 ---
 
-_"Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt. — *Honore de Balzac*"_
+_"Life is trying things to see if they work. — *Ray Bradbury*"_
 
 ---
