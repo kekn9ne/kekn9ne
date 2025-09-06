@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"It doesn't matter where you are, you are nowhere compared to where you can go. — *Bob Proctor*"_
 
 ---
