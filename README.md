@@ -7,6 +7,6 @@
 
 ---
 
-_"Let the beauty of what you love be what you do. — *Rumi*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
