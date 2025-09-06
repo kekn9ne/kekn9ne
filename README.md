@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkı Sözleri** by *Ceg* 🎶
 
 ---
 
-_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
+_"It is our experiences that mold us into who we are...during times of adversity our true character will show. — *Unknown*"_
 
 ---
