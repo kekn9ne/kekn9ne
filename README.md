@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Üçe Beşe Bakamam** by *Ben Fero* 🎶
 
 ---
 
-_"Life and the simple beauty of it is too good to pass up. — *Christopher McCandless*"_
+_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
 
 ---
