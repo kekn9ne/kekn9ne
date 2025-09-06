@@ -7,6 +7,6 @@
 
 ---
 
-_"It is up to each of us to sing as we feel moved by the overall song of life. — *Ming-Dao Deng*"_
+_"Let the beauty of what you love be what you do. — *Rumi*"_
 
 ---
