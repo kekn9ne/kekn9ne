@@ -7,6 +7,6 @@
 
 ---
 
-_"Better late than never. — *Spencer Johnson*"_
+_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
 
 ---
