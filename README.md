@@ -7,6 +7,6 @@
 
 ---
 
-_"Note that this journey is uniquely yours, no one elses. So the path has to be your own. — *Jon Kabat-Zinn*"_
+_"There is no right or wrong, only a series of possibilities that shift with each thought, feeling, and action that you experience. — *Deepak Chopra*"_
 
 ---
