@@ -7,6 +7,6 @@
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
 
 ---
