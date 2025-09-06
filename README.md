@@ -7,6 +7,6 @@
 
 ---
 
-_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
+_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
 
 ---
