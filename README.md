@@ -7,6 +7,6 @@
 
 ---
 
-_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
+_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
 
 ---
