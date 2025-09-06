@@ -7,6 +7,6 @@
 
 ---
 
-_"The only time you run out of chances is when you stop taking them. — *Unknown*"_
+_"Whatever you do in life, surround yourself with smart people who'll argue with you. — *John Wooden*"_
 
 ---
