@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
 
 ---
