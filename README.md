@@ -7,6 +7,6 @@
 
 ---
 
-_"Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving. — *Yanni*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
