@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **fıs?** by *KAVAK* 🎶
 
 ---
 
-_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
