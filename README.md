@@ -7,6 +7,6 @@
 
 ---
 
-_"We forge the chains we wear in life. — *Charles Dickens*"_
+_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
 
 ---
