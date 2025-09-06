@@ -7,6 +7,6 @@
 
 ---
 
-_"If you practiced for the day, then you have won. If you were lazy for the day, then you have lost. — *Ming-Dao Deng*"_
+_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
 
 ---
