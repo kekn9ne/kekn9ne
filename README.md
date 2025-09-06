@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
+_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
 
 ---
