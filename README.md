@@ -7,6 +7,6 @@
 
 ---
 
-_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
+_"You can't get to a place that you don't believe exists. — *Unknown*"_
 
 ---
