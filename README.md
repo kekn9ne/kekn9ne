@@ -7,6 +7,6 @@
 
 ---
 
-_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
+_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
 
 ---
