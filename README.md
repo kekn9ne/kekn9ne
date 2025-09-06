@@ -7,6 +7,6 @@
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
 
 ---
