@@ -7,6 +7,6 @@
 
 ---
 
-_"A very little key will open a very heavy door. — *Charles Dickens*"_
+_"The sun is new each day. — *Heraclitus*"_
 
 ---
