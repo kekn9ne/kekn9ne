@@ -7,6 +7,6 @@
 
 ---
 
-_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
+_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
 
 ---
