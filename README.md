@@ -7,6 +7,6 @@
 
 ---
 
-_"Work as though you would live forever, and live as though you would die today. Go another mile. — *Og Mandino*"_
+_"We forge the chains we wear in life. — *Charles Dickens*"_
 
 ---
