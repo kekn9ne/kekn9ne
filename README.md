@@ -7,6 +7,6 @@
 
 ---
 
-_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
+_"It is up to each of us to sing as we feel moved by the overall song of life. — *Ming-Dao Deng*"_
 
 ---
