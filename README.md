@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless someone truly has the power to say no, they never truly have the power to say yes. — *Dan Millman*"_
+_"In spite of everything, I shall rise again. — *Vincent van Gogh*"_
 
 ---
