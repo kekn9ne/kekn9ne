@@ -7,6 +7,6 @@
 
 ---
 
-_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
+_"Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored. — *Earl Nightingale*"_
 
 ---
