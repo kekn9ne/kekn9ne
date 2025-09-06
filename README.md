@@ -7,6 +7,6 @@
 
 ---
 
-_"Without the confidence, nothing can be accomplished. — *Sathya Sai Baba*"_
+_"Truth is exact correspondence with reality.  — *Paramahansa Yogananda*"_
 
 ---
