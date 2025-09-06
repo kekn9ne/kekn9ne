@@ -7,6 +7,6 @@
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
