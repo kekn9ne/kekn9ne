@@ -7,6 +7,6 @@
 
 ---
 
-_"One day, in retrospect, the years of struggle will strike you as the most beautiful. — *Sigmund Freud*"_
+_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
 
 ---
