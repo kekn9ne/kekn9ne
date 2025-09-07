@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
+_"If you want more luck, take more chances. — *Brian Tracy*"_
 
 ---
