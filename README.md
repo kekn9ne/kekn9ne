@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is open for play, everything and everybody is mockable in a wonderful way. — *Robin Williams*"_
+_"Often in the real world, it's not the smart that get ahead, but the bold. — *Robert Kiyosaki*"_
 
 ---
