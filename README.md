@@ -7,6 +7,6 @@
 
 ---
 
-_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
+_"The greatest step towards a life of simplicity is to learn to let go. — *Steve Maraboli*"_
 
 ---
