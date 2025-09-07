@@ -7,6 +7,6 @@
 
 ---
 
-_"The smallest of actions is always better than the noblest of intentions. — *Robin Sharma*"_
+_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
 
 ---
