@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
+_"Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. — *Zen Proverb*"_
 
 ---
