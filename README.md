@@ -7,6 +7,6 @@
 
 ---
 
-_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
+_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
 
 ---
