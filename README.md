@@ -7,6 +7,6 @@
 
 ---
 
-_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
+_"The attempt to escape from pain, is what creates more pain. — *Gabor Mate*"_
 
 ---
