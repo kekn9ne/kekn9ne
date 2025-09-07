@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. — *Steve Jobs*"_
+_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
 
 ---
