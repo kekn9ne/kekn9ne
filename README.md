@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot expect to be happy always... by experiencing evil as well as good we become wise. — *Hans Christian Andersen*"_
+_"You are not one person, but three: The one you think you are; The one others think you are; The one you really are. — *Sathya Sai Baba*"_
 
 ---
