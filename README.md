@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
+_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
 
 ---
