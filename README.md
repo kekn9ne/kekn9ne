@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
+_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
 
 ---
