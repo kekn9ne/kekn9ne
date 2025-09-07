@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
+_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
 
 ---
