@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
