@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
+_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
 
 ---
