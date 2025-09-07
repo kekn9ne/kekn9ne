@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. — *Theodore Roosevelt*"_
+_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
 
 ---
