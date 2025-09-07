@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a process. We are a process. The universe is a process. — *Anne Wilson Schaef*"_
+_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
 
 ---
