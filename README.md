@@ -7,6 +7,6 @@
 
 ---
 
-_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
+_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
 
 ---
