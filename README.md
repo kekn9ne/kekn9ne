@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"The smallest of actions is always better than the noblest of intentions. — *Robin Sharma*"_
 
 ---
