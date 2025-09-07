@@ -7,6 +7,6 @@
 
 ---
 
-_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
