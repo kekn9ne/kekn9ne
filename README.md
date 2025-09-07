@@ -7,6 +7,6 @@
 
 ---
 
-_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
+_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
 
 ---
