@@ -7,6 +7,6 @@
 
 ---
 
-_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
+_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
 
 ---
