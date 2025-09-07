@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't program yourself, life will program you. — *Les Brown*"_
+_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
 
 ---
