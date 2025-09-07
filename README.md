@@ -7,6 +7,6 @@
 
 ---
 
-_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
+_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
 
 ---
