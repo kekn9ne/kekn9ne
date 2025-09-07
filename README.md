@@ -7,6 +7,6 @@
 
 ---
 
-_"You will not do incredible things without an incredible dream. — *John Eliot*"_
+_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
 
 ---
