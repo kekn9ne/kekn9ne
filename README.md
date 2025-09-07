@@ -7,6 +7,6 @@
 
 ---
 
-_"He who leaves the game wins it. — *Nicolas Chamfort*"_
+_"Nothing good ever comes of violence. — *Martin Luther*"_
 
 ---
