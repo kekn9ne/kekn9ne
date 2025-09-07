@@ -7,6 +7,6 @@
 
 ---
 
-_"It is difficult to free fools from the chains they revere.  — *Voltaire*"_
+_"A mountain never yields to the wind no matter how strong it is. — *Zen Proverb*"_
 
 ---
