@@ -7,6 +7,6 @@
 
 ---
 
-_"The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — *Robert Kiyosaki*"_
+_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
 
 ---
