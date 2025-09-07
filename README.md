@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
