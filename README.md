@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your outlook on life that counts. — *Betty White*"_
+_"Think and wonder, wonder and think. — *Dr. Seuss*"_
 
 ---
