@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **trendyol** by *tibet* 🎶
+🎧 Currently Listening: **Yokuş** by *Heijan* 🎶
 
 ---
 
-_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
+_"Learn only how to avoid seeking for and attaching yourselves to anything. — *Huang Po*"_
 
 ---
