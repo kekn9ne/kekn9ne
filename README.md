@@ -7,6 +7,6 @@
 
 ---
 
-_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
+_"Life is a process. We are a process. The universe is a process. — *Anne Wilson Schaef*"_
 
 ---
