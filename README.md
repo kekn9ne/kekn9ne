@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
