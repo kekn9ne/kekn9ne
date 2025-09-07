@@ -7,6 +7,6 @@
 
 ---
 
-_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
+_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
 
 ---
