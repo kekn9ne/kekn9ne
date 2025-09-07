@@ -7,6 +7,6 @@
 
 ---
 
-_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
+_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
 
 ---
