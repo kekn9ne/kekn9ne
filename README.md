@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
+_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
 
 ---
