@@ -7,6 +7,6 @@
 
 ---
 
-_"A mountain never yields to the wind no matter how strong it is. — *Zen Proverb*"_
+_"If you don't program yourself, life will program you. — *Les Brown*"_
 
 ---
