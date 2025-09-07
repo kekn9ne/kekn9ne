@@ -7,6 +7,6 @@
 
 ---
 
-_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
+_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
 
 ---
