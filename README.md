@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want more luck, take more chances. — *Brian Tracy*"_
+_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
 
 ---
