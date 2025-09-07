@@ -7,6 +7,6 @@
 
 ---
 
-_"You talk when you cease to be at peace with your thoughts. — *Kahlil Gibran*"_
+_"Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. — *Theodore Roosevelt*"_
 
 ---
