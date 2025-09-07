@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zigana 2.0** by *Dethron* 🎶
 
 ---
 
-_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
+_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
 
 ---
