@@ -7,6 +7,6 @@
 
 ---
 
-_"Bloom where you are planted! — *Mary Engelbreit*"_
+_"You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — *A.A. Milne*"_
 
 ---
