@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are equal; it is not birth but virtue that makes the difference. — *Voltaire*"_
+_"The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — *Robert Kiyosaki*"_
 
 ---
