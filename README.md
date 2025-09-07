@@ -7,6 +7,6 @@
 
 ---
 
-_"Often in the real world, it's not the smart that get ahead, but the bold. — *Robert Kiyosaki*"_
+_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
 
 ---
