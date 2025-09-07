@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: **PERDE** by *Poizi* 🎶
 
 ---
 
-_"My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand. — *Thich Nhat Hanh*"_
+_"Success is not to be pursued, it is to be attracted by the person you become. — *Jim Rohn*"_
 
 ---
