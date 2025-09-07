@@ -7,6 +7,6 @@
 
 ---
 
-_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
+_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
 
 ---
