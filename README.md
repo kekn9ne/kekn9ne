@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
+_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
 
 ---
