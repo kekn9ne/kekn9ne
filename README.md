@@ -7,6 +7,6 @@
 
 ---
 
-_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
+_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
 
 ---
