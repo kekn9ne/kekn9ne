@@ -7,6 +7,6 @@
 
 ---
 
-_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
+_"No snowflake ever falls in the wrong place. — *Zen Proverb*"_
 
 ---
