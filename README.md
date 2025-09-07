@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
+_"I have no methods; all I do is accept people as they are. — *Joan Rivers*"_
 
 ---
