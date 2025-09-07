@@ -7,6 +7,6 @@
 
 ---
 
-_"Becoming a great leader doesn't mean being perfect. it means living with your imperfections. — *Lolly Daskal*"_
+_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
 
 ---
