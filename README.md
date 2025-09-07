@@ -7,6 +7,6 @@
 
 ---
 
-_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"You can avoid reality, but you cannot avoid the consequences of avoiding reality. — *Ayn Rand*"_
 
 ---
