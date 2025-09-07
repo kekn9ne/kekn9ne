@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no sadder sight than a young pessimist. — *Mark Twain*"_
+_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
 
 ---
