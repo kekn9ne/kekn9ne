@@ -7,6 +7,6 @@
 
 ---
 
-_"Think and wonder, wonder and think. — *Dr. Seuss*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
