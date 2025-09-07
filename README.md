@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
+_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
 
 ---
