@@ -7,6 +7,6 @@
 
 ---
 
-_"No snowflake ever falls in the wrong place. — *Zen Proverb*"_
+_"You talk when you cease to be at peace with your thoughts. — *Kahlil Gibran*"_
 
 ---
