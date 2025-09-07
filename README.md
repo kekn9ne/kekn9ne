@@ -7,6 +7,6 @@
 
 ---
 
-_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
+_"We cannot expect to be happy always... by experiencing evil as well as good we become wise. — *Hans Christian Andersen*"_
 
 ---
