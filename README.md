@@ -7,6 +7,6 @@
 
 ---
 
-_"I have no methods; all I do is accept people as they are. — *Joan Rivers*"_
+_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
 
 ---
