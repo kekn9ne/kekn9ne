@@ -7,6 +7,6 @@
 
 ---
 
-_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
+_"The right thing to do and the hard thing to do are usually the same. — *Steve Maraboli*"_
 
 ---
