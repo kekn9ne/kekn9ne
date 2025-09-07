@@ -7,6 +7,6 @@
 
 ---
 
-_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
+_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
 
 ---
