@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
+_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
 
 ---
