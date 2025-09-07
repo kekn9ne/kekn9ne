@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest step towards a life of simplicity is to learn to let go. — *Steve Maraboli*"_
+_"Men are equal; it is not birth but virtue that makes the difference. — *Voltaire*"_
 
 ---
