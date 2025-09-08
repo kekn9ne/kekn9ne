@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the foundation of great leadership. — *Lolly Daskal*"_
+_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
 
 ---
