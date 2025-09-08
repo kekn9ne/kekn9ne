@@ -7,6 +7,6 @@
 
 ---
 
-_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
+_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
 
 ---
