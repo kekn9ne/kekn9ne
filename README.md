@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest treasures are those invisible to the eye but found by the heart. — *Judy Garland*"_
+_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
 
 ---
