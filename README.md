@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
+_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
 
 ---
