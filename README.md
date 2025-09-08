@@ -7,6 +7,6 @@
 
 ---
 
-_"Your work is to discover your work and then, with all your heart, to give yourself to it. — *Buddha*"_
+_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
 
 ---
