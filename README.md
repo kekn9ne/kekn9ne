@@ -7,6 +7,6 @@
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"The most effective way to do it, is to do it. — *Amelia Earhart*"_
 
 ---
