@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
