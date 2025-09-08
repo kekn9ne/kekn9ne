@@ -7,6 +7,6 @@
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
