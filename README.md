@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
