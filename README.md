@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
+_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
 
 ---
