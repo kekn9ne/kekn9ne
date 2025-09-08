@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sevmemeliyiz** by *Sena Şener* 🎶
 
 ---
 
-_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
+_"Lying can never save us from another lie. — *Vaclav Havel*"_
 
 ---
