@@ -7,6 +7,6 @@
 
 ---
 
-_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
+_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
 
 ---
