@@ -7,6 +7,6 @@
 
 ---
 
-_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
+_"The reward of suffering is experience. — *Harry S. Truman*"_
 
 ---
