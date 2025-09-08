@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't argue both sides, you can't argue. — *Jack Butcher*"_
+_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
 
 ---
