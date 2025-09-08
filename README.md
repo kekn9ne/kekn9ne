@@ -7,6 +7,6 @@
 
 ---
 
-_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
+_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
 
 ---
