@@ -7,6 +7,6 @@
 
 ---
 
-_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
+_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
 
 ---
