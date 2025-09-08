@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SONBAHAR** by *Era7capone* 🎶
+🎧 Currently Listening: **Değişmene Rağmen** by *Ati242* 🎶
 
 ---
 
-_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
+_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
 
 ---
