@@ -7,6 +7,6 @@
 
 ---
 
-_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
+_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
 
 ---
