@@ -7,6 +7,6 @@
 
 ---
 
-_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
+_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
 
 ---
