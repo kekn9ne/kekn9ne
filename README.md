@@ -7,6 +7,6 @@
 
 ---
 
-_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
+_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
 
 ---
