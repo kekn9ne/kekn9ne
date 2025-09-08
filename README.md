@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen King*"_
+_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
 
 ---
