@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
+_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
 
 ---
