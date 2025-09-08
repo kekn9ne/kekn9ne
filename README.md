@@ -7,6 +7,6 @@
 
 ---
 
-_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
+_"To forget the whole world is easy; to make the whole world forget you is hard. — *Zhuangzi*"_
 
 ---
