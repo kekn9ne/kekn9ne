@@ -7,6 +7,6 @@
 
 ---
 
-_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
+_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
 
 ---
