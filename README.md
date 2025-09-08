@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
 
 ---
