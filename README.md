@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
+_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
 
 ---
