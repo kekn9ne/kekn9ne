@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
+_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
 
 ---
