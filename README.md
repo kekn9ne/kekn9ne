@@ -7,6 +7,6 @@
 
 ---
 
-_"To forget the whole world is easy; to make the whole world forget you is hard. — *Zhuangzi*"_
+_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
 
 ---
