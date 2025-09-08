@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
+_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
 
 ---
