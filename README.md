@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **POLATLI** by *Era7capone* 🎶
 
 ---
 
-_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
+_"Truth is exact correspondence with reality.  — *Paramahansa Yogananda*"_
 
 ---
