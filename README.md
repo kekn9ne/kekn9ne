@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 09 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +27°C**  
+🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Değişmene Rağmen** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
+_"It always seems impossible until it's done. — *Nelson Mandela*"_
 
 ---
