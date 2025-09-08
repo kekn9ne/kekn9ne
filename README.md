@@ -7,6 +7,6 @@
 
 ---
 
-_"The less people know, the more stubbornly they know it. — *Osho*"_
+_"We cannot expect to be happy always... by experiencing evil as well as good we become wise. — *Hans Christian Andersen*"_
 
 ---
