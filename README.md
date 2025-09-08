@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Çözemezler 2.0** by *Dethron* 🎶
+🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
 
 ---
 
-_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
+_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
 
 ---
