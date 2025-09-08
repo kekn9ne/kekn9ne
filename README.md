@@ -7,6 +7,6 @@
 
 ---
 
-_"It always seems impossible until it's done. — *Nelson Mandela*"_
+_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
 
 ---
