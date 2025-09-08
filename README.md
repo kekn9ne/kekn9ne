@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **fıs?** by *KAVAK* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The heart that gives, gathers. — *Lao Tzu*"_
+_"Trust is the foundation of great leadership. — *Lolly Daskal*"_
 
 ---
