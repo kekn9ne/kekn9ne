@@ -7,6 +7,6 @@
 
 ---
 
-_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
+_"Quiet people have the loudest minds. — *Stephen King*"_
 
 ---
