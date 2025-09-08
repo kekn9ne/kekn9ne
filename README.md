@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no excuse for not trying. — *Barack Obama*"_
+_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
 
 ---
