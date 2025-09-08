@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
+_"If you can't argue both sides, you can't argue. — *Jack Butcher*"_
 
 ---
