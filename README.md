@@ -7,6 +7,6 @@
 
 ---
 
-_"The most effective way to do it, is to do it. — *Amelia Earhart*"_
+_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
 
 ---
