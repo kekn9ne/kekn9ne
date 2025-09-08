@@ -7,6 +7,6 @@
 
 ---
 
-_"The reward of suffering is experience. — *Harry S. Truman*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
