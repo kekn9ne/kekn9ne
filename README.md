@@ -7,6 +7,6 @@
 
 ---
 
-_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
+_"The least deviation from truth will be multiplied later. — *Aristotle*"_
 
 ---
