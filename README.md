@@ -7,6 +7,6 @@
 
 ---
 
-_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
+_"Your work is to discover your work and then, with all your heart, to give yourself to it. — *Buddha*"_
 
 ---
