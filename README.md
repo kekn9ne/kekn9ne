@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
 
 ---
 
-_"Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today. — *Steve Maraboli*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
