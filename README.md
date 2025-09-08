@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
+_"Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.  — *Lao Tzu*"_
 
 ---
