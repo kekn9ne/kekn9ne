@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
 
 ---
