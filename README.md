@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Sevmemeliyiz** by *Sena Şener* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
 
 ---
