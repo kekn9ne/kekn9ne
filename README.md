@@ -7,6 +7,6 @@
 
 ---
 
-_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
+_"It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power! — *Robert Kiyosaki*"_
 
 ---
