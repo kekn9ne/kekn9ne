@@ -7,6 +7,6 @@
 
 ---
 
-_"The least deviation from truth will be multiplied later. — *Aristotle*"_
+_"The greatest treasures are those invisible to the eye but found by the heart. — *Judy Garland*"_
 
 ---
