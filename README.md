@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SONBAHAR** by *Era7capone* 🎶
 
 ---
 
-_"Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.  — *Lao Tzu*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
