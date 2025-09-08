@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
+_"The less people know, the more stubbornly they know it. — *Osho*"_
 
 ---
