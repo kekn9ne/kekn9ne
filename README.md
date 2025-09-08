@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
+_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
 
 ---
