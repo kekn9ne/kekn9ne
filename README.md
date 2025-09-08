@@ -7,6 +7,6 @@
 
 ---
 
-_"Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results. — *James Allen*"_
+_"Self-control is strength. — *James Allen*"_
 
 ---
