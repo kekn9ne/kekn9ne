@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
 
 ---
