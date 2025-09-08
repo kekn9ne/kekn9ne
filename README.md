@@ -7,6 +7,6 @@
 
 ---
 
-_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
+_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
 
 ---
