@@ -7,6 +7,6 @@
 
 ---
 
-_"My sun sets to rise again. — *Robert Browning*"_
+_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
 
 ---
