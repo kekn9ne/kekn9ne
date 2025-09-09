@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you're sure you can win, be careful that you can live with what you lose. — *Gary Keller*"_
+_"Constantly think about how you could be doing things better. — *Elon Musk*"_
 
 ---
