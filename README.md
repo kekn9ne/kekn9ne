@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
+_"Adults are just children who earn money. — *Kenneth Branagh*"_
 
 ---
