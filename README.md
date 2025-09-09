@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more real than nothing. — *Samuel Beckett*"_
+_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
 
 ---
