@@ -7,6 +7,6 @@
 
 ---
 
-_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
+_"My sun sets to rise again. — *Robert Browning*"_
 
 ---
