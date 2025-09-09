@@ -7,6 +7,6 @@
 
 ---
 
-_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
+_"When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head. — *Stephen King*"_
 
 ---
