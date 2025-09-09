@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"Within every desire is the mechanics of its fulfillment. — *Deepak Chopra*"_
 
 ---
