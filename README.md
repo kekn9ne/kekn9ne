@@ -7,6 +7,6 @@
 
 ---
 
-_"Do you want to know who you are? Don't ask. Act! Action will delineate and define you. — *Thomas Jefferson*"_
+_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
 
 ---
