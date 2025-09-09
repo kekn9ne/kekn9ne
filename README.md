@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Caney** by *UZI* 🎶
 
 ---
 
-_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
+_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
 
 ---
