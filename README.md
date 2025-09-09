@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of the important things in the world have been accompanied by people who have kept on trying when there seemed to be no hope at all. — *Dale Carnegie*"_
+_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
 
 ---
