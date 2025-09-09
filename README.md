@@ -7,6 +7,6 @@
 
 ---
 
-_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
+_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
 
 ---
