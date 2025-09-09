@@ -7,6 +7,6 @@
 
 ---
 
-_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
+_"Each day provides it's own gifts. — *Marcus Aurelius*"_
 
 ---
