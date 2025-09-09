@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
+_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
 
 ---
