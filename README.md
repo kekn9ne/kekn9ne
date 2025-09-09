@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours.  — *Orison Swett Marden*"_
+_"Tis not too late to seek a newer world. — *Heraclitus*"_
 
 ---
