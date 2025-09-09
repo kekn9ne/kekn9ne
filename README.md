@@ -7,6 +7,6 @@
 
 ---
 
-_"Constantly think about how you could be doing things better. — *Elon Musk*"_
+_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
 
 ---
