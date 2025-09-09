@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
+_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
 
 ---
