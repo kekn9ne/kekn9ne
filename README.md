@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
+_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
 
 ---
