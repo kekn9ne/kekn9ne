@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no next time. It's now or never. — *Celestine Chua*"_
+_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
 
 ---
