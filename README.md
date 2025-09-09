@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is rarely pure and never simple.  — *Oscar Wilde*"_
+_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
 
 ---
