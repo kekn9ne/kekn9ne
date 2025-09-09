@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Tatlı Tecrübe** by *Narkoz Ex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Work out your own salvation. Do not depend on others. — *Buddha*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
