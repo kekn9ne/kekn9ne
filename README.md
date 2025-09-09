@@ -7,6 +7,6 @@
 
 ---
 
-_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
+_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
 
 ---
