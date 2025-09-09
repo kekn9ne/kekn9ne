@@ -7,6 +7,6 @@
 
 ---
 
-_"Forever is composed of now's. — *Emily Dickinson*"_
+_"One day, in retrospect, the years of struggle will strike you as the most beautiful. — *Sigmund Freud*"_
 
 ---
