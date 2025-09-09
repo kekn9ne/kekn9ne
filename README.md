@@ -7,6 +7,6 @@
 
 ---
 
-_"One day, in retrospect, the years of struggle will strike you as the most beautiful. — *Sigmund Freud*"_
+_"Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours.  — *Orison Swett Marden*"_
 
 ---
