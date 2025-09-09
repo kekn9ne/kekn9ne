@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
+_"No matter what happens, always be yourself. — *Dale Carnegie*"_
 
 ---
