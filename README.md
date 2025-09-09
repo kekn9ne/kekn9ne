@@ -7,6 +7,6 @@
 
 ---
 
-_"The energy of the mind is the essence of life. — *Aristotle*"_
+_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
 
 ---
