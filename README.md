@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is acceptable. Not trying is a whole different ball park. — *Michael Jordan*"_
+_"The universe doesn't allow perfection. — *Stephen Hawking*"_
 
 ---
