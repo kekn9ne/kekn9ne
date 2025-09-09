@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
 
 ---
