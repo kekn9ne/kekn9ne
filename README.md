@@ -7,6 +7,6 @@
 
 ---
 
-_"An ounce of performance is worth pounds of promises. — *Mae West*"_
+_"There will always be suffering. But we must not suffer over the suffering. — *Alan Watts*"_
 
 ---
