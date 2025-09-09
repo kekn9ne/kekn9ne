@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Caney** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
 
 ---
