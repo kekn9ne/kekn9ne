@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
+_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
 
 ---
