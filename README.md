@@ -7,6 +7,6 @@
 
 ---
 
-_"Within every desire is the mechanics of its fulfillment. — *Deepak Chopra*"_
+_"A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself. — *Alexander Graham Bell*"_
 
 ---
