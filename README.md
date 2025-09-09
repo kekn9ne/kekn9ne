@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens, always be yourself. — *Dale Carnegie*"_
+_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
 
 ---
