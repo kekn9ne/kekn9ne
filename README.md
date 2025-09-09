@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
+_"Nothing is more real than nothing. — *Samuel Beckett*"_
 
 ---
