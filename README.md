@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
