@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
+_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
 
 ---
