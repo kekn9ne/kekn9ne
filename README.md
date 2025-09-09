@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **MoneyFast** by *Öge471* 🎶
 
 ---
 
-_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
+_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
 
 ---
