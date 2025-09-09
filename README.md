@@ -7,6 +7,6 @@
 
 ---
 
-_"Each day provides it's own gifts. — *Marcus Aurelius*"_
+_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
 
 ---
