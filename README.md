@@ -7,6 +7,6 @@
 
 ---
 
-_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
+_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
 
 ---
