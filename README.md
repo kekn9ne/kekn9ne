@@ -7,6 +7,6 @@
 
 ---
 
-_"Judgments prevent us from seeing the good that lies beyond appearances.   — *Wayne Dyer*"_
+_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
 
 ---
