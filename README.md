@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
