@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Rs6 2.0** by *buko c5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
+_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
 
 ---
