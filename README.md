@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"Judgments prevent us from seeing the good that lies beyond appearances.   — *Wayne Dyer*"_
 
 ---
