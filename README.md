@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rs6 2.0** by *buko c5* 🎶
 
 ---
 
-_"Human beings can alter their lives by altering their attitudes of mind. — *William James*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
