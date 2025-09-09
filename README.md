@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
+_"Even if you're sure you can win, be careful that you can live with what you lose. — *Gary Keller*"_
 
 ---
