@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
+_"An ounce of performance is worth pounds of promises. — *Mae West*"_
 
 ---
