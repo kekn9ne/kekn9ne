@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
+_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
 
 ---
