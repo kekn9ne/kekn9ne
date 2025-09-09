@@ -7,6 +7,6 @@
 
 ---
 
-_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
+_"Failure is acceptable. Not trying is a whole different ball park. — *Michael Jordan*"_
 
 ---
