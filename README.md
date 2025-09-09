@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
+_"Some changes look negative on the surface but you will soon realize that space is being created in your life for something new to emerge. — *Eckhart Tolle*"_
 
 ---
