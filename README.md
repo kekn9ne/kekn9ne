@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
