@@ -7,6 +7,6 @@
 
 ---
 
-_"The only people without problems are those in cemeteries. — *Tony Robbins*"_
+_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
 
 ---
