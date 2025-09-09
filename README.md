@@ -7,6 +7,6 @@
 
 ---
 
-_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
