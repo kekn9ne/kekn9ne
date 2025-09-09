@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
 
 ---
 
-_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
+_"Evil is whatever distracts.  — *Franz Kafka*"_
 
 ---
