@@ -7,6 +7,6 @@
 
 ---
 
-_"There will always be suffering. But we must not suffer over the suffering. — *Alan Watts*"_
+_"The energy of the mind is the essence of life. — *Aristotle*"_
 
 ---
