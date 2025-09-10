@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is, which is probably the reason why so few engage in it. — *Henry Ford*"_
+_"Leadership is solving problems — *Colin Powell*"_
 
 ---
