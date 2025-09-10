@@ -7,6 +7,6 @@
 
 ---
 
-_"A mountain never yields to the wind no matter how strong it is. — *Zen Proverb*"_
+_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
 
 ---
