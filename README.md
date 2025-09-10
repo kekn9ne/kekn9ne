@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline is the bridge between goals and accomplishment. — *Jim Rohn*"_
+_"Do not regret the past. Look to the future. — *Soyen Shaku*"_
 
 ---
