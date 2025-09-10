@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is like reaching an important birthday and finding you're exactly the same. — *Audrey Hepburn*"_
+_"Why change? Everyone has his own style. When you have found it, you should stick to it. — *Audrey Hepburn*"_
 
 ---
