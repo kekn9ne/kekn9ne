@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **RS6** by *Era7capone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
