@@ -7,6 +7,6 @@
 
 ---
 
-_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
+_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
 
 ---
