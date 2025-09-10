@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
+_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
 
 ---
