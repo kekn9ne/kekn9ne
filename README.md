@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
