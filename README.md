@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can, does. — *George Bernard Shaw*"_
+_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
 
 ---
