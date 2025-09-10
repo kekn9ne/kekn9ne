@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
+_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
 
 ---
