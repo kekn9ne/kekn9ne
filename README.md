@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
