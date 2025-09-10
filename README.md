@@ -7,6 +7,6 @@
 
 ---
 
-_"Every act of creation is first an act of destruction. — *Pablo Picasso*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
