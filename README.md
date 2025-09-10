@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is such a rare thing, it is delighted to tell it. — *Emily Dickinson*"_
+_"Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard. — *Colin Powell*"_
 
 ---
