@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in one thing too much and you have no room for new ideas.   — *Ray Bradbury*"_
+_"Most people spend more time and energy going around problems than in trying to solve them.  — *Henry Ford*"_
 
 ---
