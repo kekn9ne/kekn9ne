@@ -7,6 +7,6 @@
 
 ---
 
-_"To find yourself, think for yourself. — *Socrates*"_
+_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
 
 ---
