@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
+_"It's better to dance than to march through life. — *Yoko Ono*"_
 
 ---
