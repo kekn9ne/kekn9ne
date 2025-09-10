@@ -7,6 +7,6 @@
 
 ---
 
-_"If it is not right, do not do it, if it is not true, do not say it. — *Marcus Aurelius*"_
+_"Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — *Ralph Marston*"_
 
 ---
