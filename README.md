@@ -7,6 +7,6 @@
 
 ---
 
-_"Fears are nothing more than a state of mind. — *Napoleon Hill*"_
+_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
 
 ---
