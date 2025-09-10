@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Words, once they are printed, have a life of their own. — *Carol Burnett*"_
+_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
 
 ---
