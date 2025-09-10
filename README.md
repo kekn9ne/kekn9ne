@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
+_"Success is like reaching an important birthday and finding you're exactly the same. — *Audrey Hepburn*"_
 
 ---
