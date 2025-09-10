@@ -7,6 +7,6 @@
 
 ---
 
-_"Success comes from knowing that you did your best to become the best that you are capable of becoming. — *John Wooden*"_
+_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
 
 ---
