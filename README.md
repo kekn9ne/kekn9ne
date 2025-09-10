@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
+_"Success comes from knowing that you did your best to become the best that you are capable of becoming. — *John Wooden*"_
 
 ---
