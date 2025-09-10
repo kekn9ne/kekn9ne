@@ -7,6 +7,6 @@
 
 ---
 
-_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
+_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
 
 ---
