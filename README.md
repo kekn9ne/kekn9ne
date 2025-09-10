@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
+_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
 
 ---
