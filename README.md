@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
 
 ---
