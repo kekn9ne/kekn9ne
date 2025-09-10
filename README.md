@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
+_"If you hang out with chickens, you're going to cluck and if you hang out with eagles, you're going to fly. — *Steve Maraboli*"_
 
 ---
