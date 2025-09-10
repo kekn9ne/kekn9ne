@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
+_"High thoughts must have high language. — *Aristophanes*"_
 
 ---
