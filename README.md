@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings can alter their lives by altering their attitudes of mind. — *William James*"_
+_"Change is hardest at the beginning, messiest in the middle and best at the end. — *Robin Sharma*"_
 
 ---
