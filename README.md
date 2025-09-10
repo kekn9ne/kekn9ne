@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"Discipline is the bridge between goals and accomplishment. — *Jim Rohn*"_
 
 ---
