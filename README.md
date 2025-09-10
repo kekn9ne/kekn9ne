@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 10 September 2025**  
+🗓️ Today is: **Thursday, 11 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +30°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
 
 ---
 
-_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
+_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
 
 ---
