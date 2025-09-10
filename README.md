@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
