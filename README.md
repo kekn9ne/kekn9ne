@@ -7,6 +7,6 @@
 
 ---
 
-_"If you hang out with chickens, you're going to cluck and if you hang out with eagles, you're going to fly. — *Steve Maraboli*"_
+_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
 
 ---
