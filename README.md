@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
+_"Human beings can alter their lives by altering their attitudes of mind. — *William James*"_
 
 ---
