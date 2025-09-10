@@ -7,6 +7,6 @@
 
 ---
 
-_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
+_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
 
 ---
