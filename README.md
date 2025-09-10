@@ -7,6 +7,6 @@
 
 ---
 
-_"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that. — *Eckhart Tolle*"_
+_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
 
 ---
