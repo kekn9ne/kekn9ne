@@ -7,6 +7,6 @@
 
 ---
 
-_"Paths are made by walking. — *Franz Kafka*"_
+_"All religions, arts and sciences are branches of the same tree.  — *Albert Einstein*"_
 
 ---
