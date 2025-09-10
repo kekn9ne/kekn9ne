@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is hardest at the beginning, messiest in the middle and best at the end. — *Robin Sharma*"_
+_"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that. — *Eckhart Tolle*"_
 
 ---
