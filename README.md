@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"I must also have a dark side if I am to be whole. — *Carl Jung*"_
 
 ---
