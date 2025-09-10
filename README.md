@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
