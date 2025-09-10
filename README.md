@@ -7,6 +7,6 @@
 
 ---
 
-_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
+_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
 
 ---
