@@ -7,6 +7,6 @@
 
 ---
 
-_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
+_"If it is not right, do not do it, if it is not true, do not say it. — *Marcus Aurelius*"_
 
 ---
