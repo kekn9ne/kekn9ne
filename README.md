@@ -7,6 +7,6 @@
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"Believe in one thing too much and you have no room for new ideas.   — *Ray Bradbury*"_
 
 ---
