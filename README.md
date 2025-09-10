@@ -7,6 +7,6 @@
 
 ---
 
-_"High thoughts must have high language. — *Aristophanes*"_
+_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
 
 ---
