@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not regret the past. Look to the future. — *Soyen Shaku*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
