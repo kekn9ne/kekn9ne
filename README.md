@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stumble over something that's behind you. — *Steve Harvey*"_
+_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
 
 ---
