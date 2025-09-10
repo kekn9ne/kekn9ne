@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not something ready made. It comes from your own actions. — *Dalai Lama*"_
+_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
 
 ---
