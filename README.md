@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
+_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
 
 ---
