@@ -7,6 +7,6 @@
 
 ---
 
-_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
+_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
 
 ---
