@@ -7,6 +7,6 @@
 
 ---
 
-_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
+_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
 
 ---
