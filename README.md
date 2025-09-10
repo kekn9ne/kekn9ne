@@ -7,6 +7,6 @@
 
 ---
 
-_"Why change? Everyone has his own style. When you have found it, you should stick to it. — *Audrey Hepburn*"_
+_"He who can, does. — *George Bernard Shaw*"_
 
 ---
