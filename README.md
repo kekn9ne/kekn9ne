@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **GEÇMİŞİMDEN KAÇTIM** by *Poizi* 🎶
 
 ---
 
-_"All religions, arts and sciences are branches of the same tree.  — *Albert Einstein*"_
+_"All things come into being by conflict of opposites. — *Heraclitus*"_
 
 ---
