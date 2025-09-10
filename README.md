@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership is solving problems — *Colin Powell*"_
+_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
 
 ---
