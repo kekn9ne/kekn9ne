@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
+_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
 
 ---
