@@ -7,6 +7,6 @@
 
 ---
 
-_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
+_"A mountain never yields to the wind no matter how strong it is. — *Zen Proverb*"_
 
 ---
