@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
 
 ---
