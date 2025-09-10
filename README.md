@@ -7,6 +7,6 @@
 
 ---
 
-_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
+_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
 
 ---
