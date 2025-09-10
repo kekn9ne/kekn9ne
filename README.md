@@ -7,6 +7,6 @@
 
 ---
 
-_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
+_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
 
 ---
