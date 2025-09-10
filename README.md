@@ -7,6 +7,6 @@
 
 ---
 
-_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
