@@ -7,6 +7,6 @@
 
 ---
 
-_"I do not exist to impress the world. I exist to live my life in a way that will make me happy. — *Richard Bach*"_
+_"Thinking is the hardest work there is, which is probably the reason why so few engage in it. — *Henry Ford*"_
 
 ---
