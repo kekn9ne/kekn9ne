@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
+_"For things to change, you have to change. — *Jim Rohn*"_
 
 ---
