@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
+_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
 
 ---
