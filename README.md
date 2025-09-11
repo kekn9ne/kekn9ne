@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. — *Helen Keller*"_
+_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
 
 ---
