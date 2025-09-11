@@ -7,6 +7,6 @@
 
 ---
 
-_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
+_"Wisdom is doing now what you are going to be happy with later on. — *Joyce Meyer*"_
 
 ---
