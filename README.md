@@ -7,6 +7,6 @@
 
 ---
 
-_"Just because something isn't a lie does not mean that it isn't deceptive. — *Criss Jami*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
