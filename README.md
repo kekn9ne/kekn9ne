@@ -7,6 +7,6 @@
 
 ---
 
-_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
+_"Wise men speak because they have something to say; Fools because they have to say something. — *Plato*"_
 
 ---
