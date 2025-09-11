@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"TEAMWORK: the fuel that allows common people attain uncommon results. — *Andrew Carnegie*"_
 
 ---
