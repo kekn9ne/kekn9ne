@@ -7,6 +7,6 @@
 
 ---
 
-_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
+_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
 
 ---
