@@ -7,6 +7,6 @@
 
 ---
 
-_"We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences  — *Nikola Tesla*"_
+_"Everything eaten is killed. Every meal is a sacrifice. — *Adi Da Samraj*"_
 
 ---
