@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not the outcome. I am never the result. I am only the effort. — *Kamal Ravikant*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
