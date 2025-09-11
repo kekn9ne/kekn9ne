@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
+_"The destiny of man is in his own soul.  — *Herodotus*"_
 
 ---
