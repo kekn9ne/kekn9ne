@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the life of purpose. — *Robin Sharma*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
