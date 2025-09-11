@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
+_"Challenge yourself to find the good and beautiful thing inside of everyone. — *Mark Manson*"_
 
 ---
