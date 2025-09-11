@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lost friends, some by death...others by sheer inability to cross the street. — *Virginia Woolf*"_
+_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
 
 ---
