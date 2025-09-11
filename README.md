@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
 
 ---
