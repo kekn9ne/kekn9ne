@@ -7,6 +7,6 @@
 
 ---
 
-_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
+_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
 
 ---
