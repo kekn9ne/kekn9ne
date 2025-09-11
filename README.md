@@ -7,6 +7,6 @@
 
 ---
 
-_"Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference. — *Robert Frost*"_
+_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
 
 ---
