@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"I have lost friends, some by death...others by sheer inability to cross the street. — *Virginia Woolf*"_
 
 ---
