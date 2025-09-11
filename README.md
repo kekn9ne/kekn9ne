@@ -7,6 +7,6 @@
 
 ---
 
-_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
