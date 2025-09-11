@@ -7,6 +7,6 @@
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
