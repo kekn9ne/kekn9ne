@@ -7,6 +7,6 @@
 
 ---
 
-_"Challenge yourself to find the good and beautiful thing inside of everyone. — *Mark Manson*"_
+_"Absurdity is the ecstasy of intellectualism. — *Criss Jami*"_
 
 ---
