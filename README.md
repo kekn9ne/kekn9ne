@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
+_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
 
 ---
