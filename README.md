@@ -7,6 +7,6 @@
 
 ---
 
-_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
+_"Passion creates, addiction consumes. — *Gabor Mate*"_
 
 ---
