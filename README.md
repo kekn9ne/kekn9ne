@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything eaten is killed. Every meal is a sacrifice. — *Adi Da Samraj*"_
+_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
 
 ---
