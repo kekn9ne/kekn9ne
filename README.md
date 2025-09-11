@@ -7,6 +7,6 @@
 
 ---
 
-_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
+_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
 
 ---
