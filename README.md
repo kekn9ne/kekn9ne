@@ -7,6 +7,6 @@
 
 ---
 
-_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
+_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
 
 ---
