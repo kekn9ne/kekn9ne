@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
+_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
 
 ---
