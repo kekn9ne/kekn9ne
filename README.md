@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to dance than to march through life. — *Yoko Ono*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
