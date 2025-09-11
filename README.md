@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
