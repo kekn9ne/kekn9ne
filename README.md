@@ -7,6 +7,6 @@
 
 ---
 
-_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
+_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
 
 ---
