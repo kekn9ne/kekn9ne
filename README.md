@@ -7,6 +7,6 @@
 
 ---
 
-_"Absurdity is the ecstasy of intellectualism. — *Criss Jami*"_
+_"First learn the meaning of what you say, and then speak. — *Epictetus*"_
 
 ---
