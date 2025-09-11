@@ -7,6 +7,6 @@
 
 ---
 
-_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
+_"Before you can see the Light, you have to deal with the darkness. — *Dan Millman*"_
 
 ---
