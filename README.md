@@ -7,6 +7,6 @@
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"There's no next time. It's now or never. — *Celestine Chua*"_
 
 ---
