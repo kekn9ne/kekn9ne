@@ -7,6 +7,6 @@
 
 ---
 
-_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
+_"Numbing the pain for a while will make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
