@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever people agree with me I always feel I must be wrong. — *Oscar Wilde*"_
+_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
 
 ---
