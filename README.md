@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
+_"I am not the outcome. I am never the result. I am only the effort. — *Kamal Ravikant*"_
 
 ---
