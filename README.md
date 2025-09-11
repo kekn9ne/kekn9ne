@@ -7,6 +7,6 @@
 
 ---
 
-_"First learn the meaning of what you say, and then speak. — *Epictetus*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
