@@ -7,6 +7,6 @@
 
 ---
 
-_"Shoot for the moon, because even if you miss, you'll land among the stars. — *Les Brown*"_
+_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
 
 ---
