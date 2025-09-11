@@ -7,6 +7,6 @@
 
 ---
 
-_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
+_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
 
 ---
