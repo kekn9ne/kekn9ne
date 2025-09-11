@@ -7,6 +7,6 @@
 
 ---
 
-_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
+_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
 
 ---
