@@ -7,6 +7,6 @@
 
 ---
 
-_"The destiny of man is in his own soul.  — *Herodotus*"_
+_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
 
 ---
