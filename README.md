@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no next time. It's now or never. — *Celestine Chua*"_
+_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
 
 ---
