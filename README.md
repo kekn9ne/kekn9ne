@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is free who is not master of himself. — *Epictetus*"_
+_"It is better to learn late than never. — *Publilius Syrus*"_
 
 ---
