@@ -7,6 +7,6 @@
 
 ---
 
-_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
+_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
 
 ---
