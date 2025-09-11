@@ -7,6 +7,6 @@
 
 ---
 
-_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
+_"Shoot for the moon, because even if you miss, you'll land among the stars. — *Les Brown*"_
 
 ---
