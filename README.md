@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
 
 ---
 
-_"When you change what you believe, you change what you do. — *Spencer Johnson*"_
+_"Confidence is the greatest friend. — *Lao Tzu*"_
 
 ---
