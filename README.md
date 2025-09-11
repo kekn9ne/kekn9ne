@@ -7,6 +7,6 @@
 
 ---
 
-_"For things to change, you have to change. — *Jim Rohn*"_
+_"No man is free who is not master of himself. — *Epictetus*"_
 
 ---
