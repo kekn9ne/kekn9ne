@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion creates, addiction consumes. — *Gabor Mate*"_
+_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
 
 ---
