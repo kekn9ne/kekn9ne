@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
+_"The purpose of life is the life of purpose. — *Robin Sharma*"_
 
 ---
