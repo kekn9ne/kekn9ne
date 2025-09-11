@@ -7,6 +7,6 @@
 
 ---
 
-_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
+_"We crave for new sensations but soon become indifferent to them. The wonders of yesterday are today common occurrences  — *Nikola Tesla*"_
 
 ---
