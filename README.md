@@ -7,6 +7,6 @@
 
 ---
 
-_"The cost of leadership is self-interest. — *Simon Sinek*"_
+_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
 
 ---
