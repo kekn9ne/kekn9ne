@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
+_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
 
 ---
