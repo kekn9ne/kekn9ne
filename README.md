@@ -7,6 +7,6 @@
 
 ---
 
-_"Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.  — *Nikola Tesla*"_
+_"When you change what you believe, you change what you do. — *Spencer Johnson*"_
 
 ---
