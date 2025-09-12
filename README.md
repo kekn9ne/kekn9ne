@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
 
 ---
