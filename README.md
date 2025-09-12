@@ -7,6 +7,6 @@
 
 ---
 
-_"The primary cause of unhappiness is never the situation but your thoughts about it. — *Eckhart Tolle*"_
+_"Your problem isn't the problem. Your reaction is the problem. — *Unknown*"_
 
 ---
