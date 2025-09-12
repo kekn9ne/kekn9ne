@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless someone truly has the power to say no, they never truly have the power to say yes. — *Dan Millman*"_
+_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
 
 ---
