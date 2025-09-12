@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away. — *John Lennon*"_
+_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
 
 ---
