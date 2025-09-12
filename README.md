@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect is earned by effort not age, all things age without effort. — *C. Sean McGee*"_
+_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
 
 ---
