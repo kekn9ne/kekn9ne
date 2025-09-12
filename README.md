@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
