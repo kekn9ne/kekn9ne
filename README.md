@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
+_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
 
 ---
