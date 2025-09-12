@@ -7,6 +7,6 @@
 
 ---
 
-_"Tis not too late to seek a newer world. — *Heraclitus*"_
+_"The more you give, the more comes back to you. — *Napoleon Hill*"_
 
 ---
