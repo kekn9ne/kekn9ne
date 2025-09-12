@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't go forward and backwards at the same time. — *Steve Harvey*"_
+_"He is not a lover who does not love forever. — *Euripides*"_
 
 ---
