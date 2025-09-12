@@ -7,6 +7,6 @@
 
 ---
 
-_"Music is like creating an emotional painting. The sounds are the colors. — *Yanni*"_
+_"A random act of kindness, no matter how small, can make a tremendous impact on someone else's life. — *Roy T. Bennett*"_
 
 ---
