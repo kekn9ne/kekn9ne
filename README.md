@@ -7,6 +7,6 @@
 
 ---
 
-_"He is not a lover who does not love forever. — *Euripides*"_
+_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
 
 ---
