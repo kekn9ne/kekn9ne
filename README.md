@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Konuşma Engelli** by *fatihext* 🎶
 
 ---
 
-_"Human happiness and moral duty are inseparably connected.  — *George Washington*"_
+_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
 
 ---
