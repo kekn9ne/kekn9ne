@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
+_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
 
 ---
