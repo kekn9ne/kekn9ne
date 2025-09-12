@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
+_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
 
 ---
