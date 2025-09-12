@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
+_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
 
 ---
