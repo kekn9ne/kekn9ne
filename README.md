@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 12 September 2025**  
+🗓️ Today is: **Saturday, 13 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
 
 ---
 
-_"Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — *Ralph Marston*"_
+_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
 
 ---
