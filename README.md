@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
+_"Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has. — *Margaret Mead*"_
 
 ---
