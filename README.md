@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"Respect is earned by effort not age, all things age without effort. — *C. Sean McGee*"_
 
 ---
