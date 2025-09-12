@@ -7,6 +7,6 @@
 
 ---
 
-_"The mind is the limit. — *Arnold Schwarzenegger*"_
+_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
 
 ---
