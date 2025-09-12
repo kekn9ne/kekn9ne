@@ -7,6 +7,6 @@
 
 ---
 
-_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
