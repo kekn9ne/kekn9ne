@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
