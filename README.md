@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
+_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
 
 ---
