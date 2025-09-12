@@ -7,6 +7,6 @@
 
 ---
 
-_"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — *Theodore Roosevelt*"_
+_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
 
 ---
