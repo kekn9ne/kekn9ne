@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no medicine like hope, no incentive so great, and no tonic so powerful as expectation of something tomorrow.  — *Orison Swett Marden*"_
+_"When the fish is caught we pay no more attention to the trap. — *Huang Po*"_
 
 ---
