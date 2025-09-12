@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
+🎧 Currently Listening: **Bu Şarkı Sana Göndermeli** by *Lil Flexo* 🎶
 
 ---
 
-_"You are never too old to become younger. — *Mae West*"_
+_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
 
 ---
