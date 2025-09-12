@@ -7,6 +7,6 @@
 
 ---
 
-_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
