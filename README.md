@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends on your mindset and attitude. — *Roy T. Bennett*"_
+_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
 
 ---
