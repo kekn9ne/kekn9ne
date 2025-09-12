@@ -7,6 +7,6 @@
 
 ---
 
-_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
+_"Happiness depends on your mindset and attitude. — *Roy T. Bennett*"_
 
 ---
