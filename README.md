@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is impossible without change, and those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
+_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
 
 ---
