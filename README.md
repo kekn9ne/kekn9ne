@@ -7,6 +7,6 @@
 
 ---
 
-_"The best fighter is never angry. — *Lao Tzu*"_
+_"Progress is impossible without change, and those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
 
 ---
