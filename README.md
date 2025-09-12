@@ -7,6 +7,6 @@
 
 ---
 
-_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
+_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
 
 ---
