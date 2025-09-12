@@ -7,6 +7,6 @@
 
 ---
 
-_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
+_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
 
 ---
