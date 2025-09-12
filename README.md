@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
 
 ---
 
-_"If you don't program yourself, life will program you. — *Les Brown*"_
+_"You are never too old to become younger. — *Mae West*"_
 
 ---
