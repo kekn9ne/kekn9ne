@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot find peace avoiding life. — *Virginia Woolf*"_
+_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
 
 ---
