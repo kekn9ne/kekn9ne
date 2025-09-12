@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
+_"The primary cause of unhappiness is never the situation but your thoughts about it. — *Eckhart Tolle*"_
 
 ---
