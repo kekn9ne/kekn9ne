@@ -7,6 +7,6 @@
 
 ---
 
-_"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.  — *St. Jerome*"_
+_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
