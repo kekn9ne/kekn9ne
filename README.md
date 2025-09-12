@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **borsa kaplani** by *EGE!* 🎶
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
+_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
 
 ---
