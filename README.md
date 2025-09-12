@@ -7,6 +7,6 @@
 
 ---
 
-_"If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — *Elon Musk*"_
+_"Tis not too late to seek a newer world. — *Heraclitus*"_
 
 ---
