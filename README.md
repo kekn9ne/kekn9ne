@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
 
 ---
 
-_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
+_"Empty yourself of everything - let the mind become still. — *Lao Tzu*"_
 
 ---
