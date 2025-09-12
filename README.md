@@ -7,6 +7,6 @@
 
 ---
 
-_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
+_"Let each man exercise the art he knows. — *Aristophanes*"_
 
 ---
