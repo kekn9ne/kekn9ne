@@ -7,6 +7,6 @@
 
 ---
 
-_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
+_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
 
 ---
