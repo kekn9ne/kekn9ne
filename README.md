@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you give, the more comes back to you. — *Napoleon Hill*"_
+_"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.  — *St. Jerome*"_
 
 ---
