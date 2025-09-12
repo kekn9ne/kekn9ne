@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
+_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
 
 ---
