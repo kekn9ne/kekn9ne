@@ -7,6 +7,6 @@
 
 ---
 
-_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
+_"Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality. — *James Cameron*"_
 
 ---
