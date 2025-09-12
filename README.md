@@ -7,6 +7,6 @@
 
 ---
 
-_"Your problem isn't the problem. Your reaction is the problem. — *Unknown*"_
+_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
 
 ---
