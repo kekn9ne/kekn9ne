@@ -7,6 +7,6 @@
 
 ---
 
-_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
+_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
 
 ---
