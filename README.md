@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
+_"Curiosity is the most powerful thing you own. — *James Cameron*"_
 
 ---
