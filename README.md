@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Bu Şarkı Sana Göndermeli** by *Lil Flexo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
+_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
 
 ---
