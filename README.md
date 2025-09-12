@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
 
 ---
