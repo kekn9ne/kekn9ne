@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
+_"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — *Theodore Roosevelt*"_
 
 ---
