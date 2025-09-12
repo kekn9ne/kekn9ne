@@ -7,6 +7,6 @@
 
 ---
 
-_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
+_"The best fighter is never angry. — *Lao Tzu*"_
 
 ---
