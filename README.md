@@ -7,6 +7,6 @@
 
 ---
 
-_"A minute's success pays the failure of years. — *Robert Browning*"_
+_"You can't go forward and backwards at the same time. — *Steve Harvey*"_
 
 ---
