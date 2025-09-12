@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
+_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
 
 ---
