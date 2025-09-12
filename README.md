@@ -7,6 +7,6 @@
 
 ---
 
-_"Curiosity is the most powerful thing you own. — *James Cameron*"_
+_"Music is like creating an emotional painting. The sounds are the colors. — *Yanni*"_
 
 ---
