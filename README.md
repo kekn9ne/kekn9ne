@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who will risk going too far can possibly find out how far one can go. — *T.S. Eliot*"_
+_"A minute's success pays the failure of years. — *Robert Browning*"_
 
 ---
