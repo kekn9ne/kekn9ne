@@ -7,6 +7,6 @@
 
 ---
 
-_"Elegance does not consist in putting on a new dress. — *Coco Chanel*"_
+_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
 
 ---
