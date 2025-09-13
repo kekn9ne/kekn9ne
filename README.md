@@ -7,6 +7,6 @@
 
 ---
 
-_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
+_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
 
 ---
