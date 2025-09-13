@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people do what unsuccessful people are not willing to do. — *Jim Rohn*"_
+_"Life is trying things to see if they work. — *Ray Bradbury*"_
 
 ---
