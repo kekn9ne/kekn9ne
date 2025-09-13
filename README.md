@@ -7,6 +7,6 @@
 
 ---
 
-_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
+_"A heart is not judged by how much you love, but by how much you are loved by others. — *Judy Garland*"_
 
 ---
