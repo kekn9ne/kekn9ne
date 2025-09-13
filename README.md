@@ -7,6 +7,6 @@
 
 ---
 
-_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
+_"A leader leads by example, not by force. — *Sun Tzu*"_
 
 ---
