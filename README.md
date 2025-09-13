@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
+_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
 
 ---
