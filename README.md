@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
+_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
 
 ---
