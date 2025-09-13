@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
+_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
 
 ---
