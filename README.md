@@ -7,6 +7,6 @@
 
 ---
 
-_"As a matter of fact is an expression that precedes many an expression that isn't. — *Laurence J. Peter*"_
+_"Trust your instincts: my first reaction is almost invariably the right one.   — *Estee Lauder*"_
 
 ---
