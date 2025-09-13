@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
+_"We can't help everyone, but everyone can help someone. — *Ronald Reagan*"_
 
 ---
