@@ -7,6 +7,6 @@
 
 ---
 
-_"A diamond is a piece of charcoal that handled stress exceptionally well. — *Unknown*"_
+_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
 
 ---
