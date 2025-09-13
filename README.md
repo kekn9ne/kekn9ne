@@ -7,6 +7,6 @@
 
 ---
 
-_"By words the mind is winged. — *Aristophanes*"_
+_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
 
 ---
