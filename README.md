@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
+_"Words, once they are printed, have a life of their own. — *Carol Burnett*"_
 
 ---
