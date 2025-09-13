@@ -7,6 +7,6 @@
 
 ---
 
-_"People become attached to their burdens sometimes more than the burdens are attached to them. — *George Bernard Shaw*"_
+_"Successful people do what unsuccessful people are not willing to do. — *Jim Rohn*"_
 
 ---
