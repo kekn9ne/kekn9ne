@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no medicine like hope, no incentive so great, and no tonic so powerful as expectation of something tomorrow.  — *Orison Swett Marden*"_
+_"When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there. — *Zig Ziglar*"_
 
 ---
