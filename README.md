@@ -7,6 +7,6 @@
 
 ---
 
-_"You can start changing our world for the better daily, no matter how small the action. — *Nelson Mandela*"_
+_"Reversing your treatment of the man you have wronged is better than asking his forgiveness. — *Elbert Hubbard*"_
 
 ---
