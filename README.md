@@ -7,6 +7,6 @@
 
 ---
 
-_"We can't help everyone, but everyone can help someone. — *Ronald Reagan*"_
+_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
 
 ---
