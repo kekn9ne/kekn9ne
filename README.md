@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
 
 ---
