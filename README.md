@@ -7,6 +7,6 @@
 
 ---
 
-_"You can suffer the pain of change or suffer remaining the way you are. — *Joyce Meyer*"_
+_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
 
 ---
