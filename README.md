@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty yourself of everything - let the mind become still. — *Lao Tzu*"_
+_"By words the mind is winged. — *Aristophanes*"_
 
 ---
