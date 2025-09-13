@@ -7,6 +7,6 @@
 
 ---
 
-_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
+_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
 
 ---
