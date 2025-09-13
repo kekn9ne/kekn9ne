@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
+_"Do not use life to give life to death. Do not use death to bring death to life. — *Zhuangzi*"_
 
 ---
