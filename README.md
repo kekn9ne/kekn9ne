@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
+_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
 
 ---
