@@ -7,6 +7,6 @@
 
 ---
 
-_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
+_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
 
 ---
