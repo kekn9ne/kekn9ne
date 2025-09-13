@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
+_"A diamond is a piece of charcoal that handled stress exceptionally well. — *Unknown*"_
 
 ---
