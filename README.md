@@ -7,6 +7,6 @@
 
 ---
 
-_"The energy of the mind is the essence of life. — *Aristotle*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
