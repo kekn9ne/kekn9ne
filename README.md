@@ -7,6 +7,6 @@
 
 ---
 
-_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
+_"The energy of the mind is the essence of life. — *Aristotle*"_
 
 ---
