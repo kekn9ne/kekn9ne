@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not use life to give life to death. Do not use death to bring death to life. — *Zhuangzi*"_
+_"Wherever you are is the entry point. — *Kabir*"_
 
 ---
