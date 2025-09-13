@@ -7,6 +7,6 @@
 
 ---
 
-_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
+_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
 
 ---
