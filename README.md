@@ -7,6 +7,6 @@
 
 ---
 
-_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
+_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
 
 ---
