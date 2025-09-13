@@ -7,6 +7,6 @@
 
 ---
 
-_"When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there. — *Zig Ziglar*"_
+_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
 
 ---
