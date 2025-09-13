@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline yourself, and others won't need to. — *John Wooden*"_
+_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
 
 ---
