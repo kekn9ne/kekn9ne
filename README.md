@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
+_"Don't allow your mind to tell your heart what to do. The mind gives up easily. — *Paulo Coelho*"_
 
 ---
