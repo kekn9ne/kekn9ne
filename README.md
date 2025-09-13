@@ -7,6 +7,6 @@
 
 ---
 
-_"When the fish is caught we pay no more attention to the trap. — *Huang Po*"_
+_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
 
 ---
