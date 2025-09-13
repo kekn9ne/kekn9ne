@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is trying things to see if they work. — *Ray Bradbury*"_
+_"The river that flows in you also flows in me. — *Kabir*"_
 
 ---
