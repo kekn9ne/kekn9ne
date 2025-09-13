@@ -7,6 +7,6 @@
 
 ---
 
-_"If the plan doesn't work, change the plan, but never the goal. — *Unknown*"_
+_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
 
 ---
