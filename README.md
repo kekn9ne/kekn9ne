@@ -7,6 +7,6 @@
 
 ---
 
-_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
+_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
 
 ---
