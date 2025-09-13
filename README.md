@@ -7,6 +7,6 @@
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
 
 ---
