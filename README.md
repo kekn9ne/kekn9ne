@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't allow your mind to tell your heart what to do. The mind gives up easily. — *Paulo Coelho*"_
+_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
 
 ---
