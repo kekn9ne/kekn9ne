@@ -7,6 +7,6 @@
 
 ---
 
-_"The way of success is the way of continuous pursuit of knowledge. — *Napoleon Hill*"_
+_"We are shaped and fashioned by what we love. — *Johann Wolfgang von Goethe*"_
 
 ---
