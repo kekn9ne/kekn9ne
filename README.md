@@ -7,6 +7,6 @@
 
 ---
 
-_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
+_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
 
 ---
