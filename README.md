@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
+_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
 
 ---
