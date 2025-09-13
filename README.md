@@ -7,6 +7,6 @@
 
 ---
 
-_"Misfortune shows those who are not really friends. — *Aristotle*"_
+_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
 
 ---
