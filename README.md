@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 13 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +26°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Y** by *Poizi* 🎶
 
 ---
 
-_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
+_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
 
 ---
