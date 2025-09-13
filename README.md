@@ -7,6 +7,6 @@
 
 ---
 
-_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
+_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
 
 ---
