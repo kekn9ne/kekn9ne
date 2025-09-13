@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever we plant in our subconscious mind and nourish with repetition and emotion will one day become reality. — *Earl Nightingale*"_
+_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
 
 ---
