@@ -7,6 +7,6 @@
 
 ---
 
-_"Words, once they are printed, have a life of their own. — *Carol Burnett*"_
+_"The way of success is the way of continuous pursuit of knowledge. — *Napoleon Hill*"_
 
 ---
