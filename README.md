@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 13 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +23°C**  
+🌤️ Weather in Istanbul: **Unknown location; please try ~41.03508,28.98331**  
 📊 GitHub Contributions: **91**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"You can live a whole life time never being awake. — *Dan Millman*"_
 
 ---
