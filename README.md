@@ -7,6 +7,6 @@
 
 ---
 
-_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
+_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
 
 ---
