@@ -7,6 +7,6 @@
 
 ---
 
-_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
+_"Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.  — *Lao Tzu*"_
 
 ---
