@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are is the entry point. — *Kabir*"_
+_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
 
 ---
