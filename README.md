@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 13 September 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **Unknown location; please try ~41.03508,28.98331**  
 📊 GitHub Contributions: **91**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
+_"In the end, it's not the years in your life that count. It's the life in your years. — *Abraham Lincoln*"_
 
 ---
