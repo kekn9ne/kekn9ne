@@ -7,6 +7,6 @@
 
 ---
 
-_"Your gift is something that you can do innately better than anything else. — *Steve Harvey*"_
+_"Discipline yourself, and others won't need to. — *John Wooden*"_
 
 ---
