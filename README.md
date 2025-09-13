@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
+_"Empty yourself of everything - let the mind become still. — *Lao Tzu*"_
 
 ---
