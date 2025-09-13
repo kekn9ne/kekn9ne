@@ -7,6 +7,6 @@
 
 ---
 
-_"We must embrace pain and burn it as fuel for our journey. — *Kenji Miyazawa*"_
+_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
 
 ---
