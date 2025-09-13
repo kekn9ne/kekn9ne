@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust your instincts: my first reaction is almost invariably the right one.   — *Estee Lauder*"_
+_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
 
 ---
