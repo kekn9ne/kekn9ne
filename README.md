@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **ketojenik** by *EGE!* 🎶
+🎧 Currently Listening: **Arabayı Yakalım Mı** by *Mokali* 🎶
 
 ---
 
-_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
