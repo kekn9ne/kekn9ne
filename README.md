@@ -7,6 +7,6 @@
 
 ---
 
-_"To love means loving the unlovable. — *Gilbert Chesterton*"_
+_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
 
 ---
