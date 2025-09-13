@@ -7,6 +7,6 @@
 
 ---
 
-_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
+_"As a matter of fact is an expression that precedes many an expression that isn't. — *Laurence J. Peter*"_
 
 ---
