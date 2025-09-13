@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
