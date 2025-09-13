@@ -7,6 +7,6 @@
 
 ---
 
-_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
+_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
 
 ---
