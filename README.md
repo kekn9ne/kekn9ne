@@ -7,6 +7,6 @@
 
 ---
 
-_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
+_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
 
 ---
