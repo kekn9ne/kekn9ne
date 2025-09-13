@@ -7,6 +7,6 @@
 
 ---
 
-_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
+_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
 
 ---
