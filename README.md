@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
+_"There is no medicine like hope, no incentive so great, and no tonic so powerful as expectation of something tomorrow.  — *Orison Swett Marden*"_
 
 ---
