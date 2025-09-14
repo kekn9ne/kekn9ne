@@ -7,6 +7,6 @@
 
 ---
 
-_"A successful man is one who can lay a firm foundation with the bricks others have thrown at him.   — *David Brinkley*"_
+_"Your time is limited, so don't waste it living someone elses. life. — *Steve Jobs*"_
 
 ---
