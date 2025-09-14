@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have results or excuses, but not both. — *Arnold Schwarzenegger*"_
+_"Creativity is the greatest rebellion in existence. — *Osho*"_
 
 ---
