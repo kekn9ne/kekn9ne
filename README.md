@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
+_"Life would be tragic if it weren't funny. — *Stephen Hawking*"_
 
 ---
