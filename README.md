@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Esnettim** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
+_"A moving door hinge never corrodes. Flowing water never grows stagnant. — *Ming-Dao Deng*"_
 
 ---
