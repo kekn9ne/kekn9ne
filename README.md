@@ -7,6 +7,6 @@
 
 ---
 
-_"Creativity is the greatest rebellion in existence. — *Osho*"_
+_"You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give. — *Eleanor Roosevelt*"_
 
 ---
