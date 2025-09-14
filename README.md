@@ -7,6 +7,6 @@
 
 ---
 
-_"Always forgive your enemies - nothing annoys them so much.  — *Oscar Wilde*"_
+_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
 
 ---
