@@ -7,6 +7,6 @@
 
 ---
 
-_"Every act of creation is first an act of destruction. — *Pablo Picasso*"_
+_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
 
 ---
