@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
