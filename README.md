@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
+_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
 
 ---
