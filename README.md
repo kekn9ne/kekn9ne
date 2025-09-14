@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you. — *Jeffrey Gitomer*"_
+_"I do not exist to impress the world. I exist to live my life in a way that will make me happy. — *Richard Bach*"_
 
 ---
