@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who is his own master cannot tolerate another boss.  — *Chinese Proverb*"_
+_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
 
 ---
