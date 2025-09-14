@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Sunday, 14 September 2025**  
+🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
-📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+📊 GitHub Contributions: **90**  
+🎧 Currently Listening: **UÇUYORUM** by *EGE!* 🎶
 
 ---
 
-_"Turn the pain into power. — *Unknown*"_
+_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
 
 ---
