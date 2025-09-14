@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember, today is the tomorrow you worried about yesterday. — *Dale Carnegie*"_
+_"Discipline is the bridge between goals and accomplishment. — *Jim Rohn*"_
 
 ---
