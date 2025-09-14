@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline is the bridge between goals and accomplishment. — *Jim Rohn*"_
+_"If you're brave enough to say goodbye, life will reward you with a new hello. — *Paulo Coelho*"_
 
 ---
