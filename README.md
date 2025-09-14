@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
+_"The one who boasts does so only out of a feeling of inferiority. — *Alfred Adler*"_
 
 ---
