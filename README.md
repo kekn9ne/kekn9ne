@@ -7,6 +7,6 @@
 
 ---
 
-_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
+_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
 
 ---
