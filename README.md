@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
+_"We are shaped and fashioned by what we love. — *Johann Wolfgang von Goethe*"_
 
 ---
