@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who boasts does so only out of a feeling of inferiority. — *Alfred Adler*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
