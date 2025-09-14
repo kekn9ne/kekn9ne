@@ -7,6 +7,6 @@
 
 ---
 
-_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
+_"Nothing can survive without food. Everything we consume acts either to heal us or to poison us. — *Thich Nhat Hanh*"_
 
 ---
