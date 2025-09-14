@@ -7,6 +7,6 @@
 
 ---
 
-_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
