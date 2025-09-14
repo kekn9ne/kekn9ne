@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Düşeş** by *EGE!* 🎶
+🎧 Currently Listening: **SUDOKU** by *EGE!* 🎶
 
 ---
 
-_"Without the confidence, nothing can be accomplished. — *Sathya Sai Baba*"_
+_"Great ones are willing to get burned time and again as they sharpen their swords in the fire. — *Josh Waitzkin*"_
 
 ---
