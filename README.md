@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"Surround yourself only with people who are going to take you higher. — *Oprah Winfrey*"_
 
 ---
