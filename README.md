@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
+_"Focused, hard work is the real key to success. — *John Carmack*"_
 
 ---
