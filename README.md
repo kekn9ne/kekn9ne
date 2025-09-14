@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
