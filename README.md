@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Asosyal** by *Batuflex* 🎶
 
 ---
 
-_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
+_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
 
 ---
