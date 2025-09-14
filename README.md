@@ -7,6 +7,6 @@
 
 ---
 
-_"We become what we believe. — *Lolly Daskal*"_
+_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
 
 ---
