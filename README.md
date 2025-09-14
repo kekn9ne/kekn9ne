@@ -7,6 +7,6 @@
 
 ---
 
-_"Enthusiasm makes up for a host of deficiencies. — *Barack Obama*"_
+_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
 
 ---
