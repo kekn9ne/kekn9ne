@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot find peace avoiding life. — *Virginia Woolf*"_
+_"The only normal people are the ones you don't know very well. — *Alfred Adler*"_
 
 ---
