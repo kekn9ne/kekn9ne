@@ -7,6 +7,6 @@
 
 ---
 
-_"Gratitude is the fairest blossom which springs from the soul. — *Henry Ward Beecher*"_
+_"Nothing has more strength than dire necessity. — *Euripides*"_
 
 ---
