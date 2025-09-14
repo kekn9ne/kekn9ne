@@ -7,6 +7,6 @@
 
 ---
 
-_"The only normal people are the ones you don't know very well. — *Alfred Adler*"_
+_"We become what we believe. — *Lolly Daskal*"_
 
 ---
