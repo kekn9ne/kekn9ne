@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"The primary point of this existence is to live, and all living things move and grow. — *Ming-Dao Deng*"_
 
 ---
