@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a balance of holding on and letting go. — *Rumi*"_
+_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
 
 ---
