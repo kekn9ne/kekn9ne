@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"Life is a balance of holding on and letting go. — *Rumi*"_
 
 ---
