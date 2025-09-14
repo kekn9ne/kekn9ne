@@ -7,6 +7,6 @@
 
 ---
 
-_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
+_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
 
 ---
