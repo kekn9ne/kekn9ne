@@ -7,6 +7,6 @@
 
 ---
 
-_"Focused, hard work is the real key to success. — *John Carmack*"_
+_"The Art of Peace begins with you. — *Morihei Ueshiba*"_
 
 ---
