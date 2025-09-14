@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are the clothing of our thoughts. — *Jonathan Swift*"_
+_"Always forgive your enemies - nothing annoys them so much.  — *Oscar Wilde*"_
 
 ---
