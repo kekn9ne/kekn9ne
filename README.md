@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
+_"A leader leads by example, not by force. — *Sun Tzu*"_
 
 ---
