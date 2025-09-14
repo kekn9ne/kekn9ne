@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Eczane** by *EGE!* 🎶
 
 ---
 
-_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
+_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
 
 ---
