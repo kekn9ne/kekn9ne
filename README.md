@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **UÇUYORUM** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
+_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
 
 ---
