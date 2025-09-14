@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it. — *Dale Carnegie*"_
+_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
 
 ---
