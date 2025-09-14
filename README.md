@@ -7,6 +7,6 @@
 
 ---
 
-_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
+_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
 
 ---
