@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
 
 ---
 
-_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
+_"The best time to plant a tree was 20 years ago. The second best time is now. — *Zen Proverb*"_
 
 ---
