@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader leads by example, not by force. — *Sun Tzu*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
