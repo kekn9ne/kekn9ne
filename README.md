@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
+_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
 
 ---
