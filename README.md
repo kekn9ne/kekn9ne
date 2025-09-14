@@ -7,6 +7,6 @@
 
 ---
 
-_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
+_"There are only encounters in history. There are no accidents. — *Pablo Picasso*"_
 
 ---
