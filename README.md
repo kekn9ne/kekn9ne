@@ -7,6 +7,6 @@
 
 ---
 
-_"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems. — *Robert Kiyosaki*"_
+_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
 
 ---
