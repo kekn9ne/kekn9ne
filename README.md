@@ -7,6 +7,6 @@
 
 ---
 
-_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
+_"If you take responsibility for yourself you will develop a hunger to accomplish your dream. — *Les Brown*"_
 
 ---
