@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Esnettim** by *EGE!* 🎶
 
 ---
 
-_"You cannot swim for new horizons until you have courage to lose sight of the shore. — *William Faulkner*"_
+_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
 
 ---
