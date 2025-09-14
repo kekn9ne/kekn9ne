@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have results or excuses, but not both. — *Arnold Schwarzenegger*"_
+_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
 
 ---
