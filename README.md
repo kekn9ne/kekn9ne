@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're brave enough to say goodbye, life will reward you with a new hello. — *Paulo Coelho*"_
+_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
 
 ---
