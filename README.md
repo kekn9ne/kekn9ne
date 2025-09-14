@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
+_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
 
 ---
