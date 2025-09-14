@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"Freedom lies in being bold. — *Robert Frost*"_
 
 ---
