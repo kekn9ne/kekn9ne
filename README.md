@@ -7,6 +7,6 @@
 
 ---
 
-_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
+_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
 
 ---
