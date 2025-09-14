@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
