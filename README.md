@@ -7,6 +7,6 @@
 
 ---
 
-_"We are shaped and fashioned by what we love. — *Johann Wolfgang von Goethe*"_
+_"Everything is possible. The impossible just takes longer. — *Dan Brown*"_
 
 ---
