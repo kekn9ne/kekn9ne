@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Asosyal** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
+_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
 
 ---
