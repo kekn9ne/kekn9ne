@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
+_"Gratitude is the fairest blossom which springs from the soul. — *Henry Ward Beecher*"_
 
 ---
