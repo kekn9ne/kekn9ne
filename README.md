@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost.  — *Franz Kafka*"_
+_"You cannot find peace avoiding life. — *Virginia Woolf*"_
 
 ---
