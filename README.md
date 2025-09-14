@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is possible. The impossible just takes longer. — *Dan Brown*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
