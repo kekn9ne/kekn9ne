@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **UÇUYORUM** by *EGE!* 🎶
 
 ---
 
-_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
+_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
 
 ---
