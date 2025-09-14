@@ -7,6 +7,6 @@
 
 ---
 
-_"Surround yourself only with people who are going to take you higher. — *Oprah Winfrey*"_
+_"Never close your lips to those whom you have already opened your heart. — *Charles Dickens*"_
 
 ---
