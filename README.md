@@ -7,6 +7,6 @@
 
 ---
 
-_"When you reach the top of the mountain, keep climbing.  — *Zen Proverb*"_
+_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
 
 ---
