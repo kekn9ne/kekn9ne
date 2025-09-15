@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Helal Gang** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
