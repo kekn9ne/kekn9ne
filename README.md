@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **maalesef** by *Ravend* 🎶
 
 ---
 
-_"Nothing has more strength than dire necessity. — *Euripides*"_
+_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
 
 ---
