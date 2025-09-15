@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **EFOR** by *EGE!* 🎶
+🎧 Currently Listening: **ketojenik** by *EGE!* 🎶
 
 ---
 
-_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
