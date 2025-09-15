@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the potential for greatness. — *Steve Harvey*"_
+_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
 
 ---
