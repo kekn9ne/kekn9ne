@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is a puzzle; no need to make sense out of it. — *Socrates*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
