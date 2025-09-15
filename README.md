@@ -7,6 +7,6 @@
 
 ---
 
-_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
+_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
 
 ---
