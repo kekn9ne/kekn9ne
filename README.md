@@ -7,6 +7,6 @@
 
 ---
 
-_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
+_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
 
 ---
