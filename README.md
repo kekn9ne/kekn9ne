@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings can alter their lives by altering their attitudes of mind. — *William James*"_
+_"There's more to life than being a passenger. — *Amelia Earhart*"_
 
 ---
