@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
+_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
 
 ---
