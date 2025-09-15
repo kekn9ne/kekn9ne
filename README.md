@@ -7,6 +7,6 @@
 
 ---
 
-_"All that we see or seem is but a dream within a dream. — *Edgar Allan Poe*"_
+_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
 
 ---
