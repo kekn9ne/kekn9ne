@@ -7,6 +7,6 @@
 
 ---
 
-_"We have no more right to consume happiness without producing it than to consume wealth without producing it. — *George Bernard Shaw*"_
+_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
 
 ---
