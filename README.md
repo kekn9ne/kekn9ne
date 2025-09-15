@@ -7,6 +7,6 @@
 
 ---
 
-_"To earn more you must learn more. — *Brian Tracy*"_
+_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
 
 ---
