@@ -7,6 +7,6 @@
 
 ---
 
-_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
+_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
 
 ---
