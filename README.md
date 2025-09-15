@@ -7,6 +7,6 @@
 
 ---
 
-_"Today I begin a new life. I will greet this day with love in my heart. — *Og Mandino*"_
+_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
 
 ---
