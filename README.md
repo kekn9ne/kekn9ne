@@ -7,6 +7,6 @@
 
 ---
 
-_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
+_"It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance. — *Kamal Ravikant*"_
 
 ---
