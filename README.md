@@ -7,6 +7,6 @@
 
 ---
 
-_"Nature does not hurry, yet everything is accomplished. — *Lao Tzu*"_
+_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
 
 ---
