@@ -7,6 +7,6 @@
 
 ---
 
-_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
+_"The world is a puzzle; no need to make sense out of it. — *Socrates*"_
 
 ---
