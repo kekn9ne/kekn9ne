@@ -7,6 +7,6 @@
 
 ---
 
-_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
+_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
 
 ---
