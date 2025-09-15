@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage Is a Love Affair with the Unknown — *Osho*"_
+_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
 
 ---
