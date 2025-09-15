@@ -7,6 +7,6 @@
 
 ---
 
-_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
+_"Money is only a tool. It will take you wherever you wish, but it will not replace you as the driver. — *Ayn Rand*"_
 
 ---
