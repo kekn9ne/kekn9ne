@@ -7,6 +7,6 @@
 
 ---
 
-_"There's more to life than being a passenger. — *Amelia Earhart*"_
+_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
 
 ---
