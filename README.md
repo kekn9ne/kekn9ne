@@ -7,6 +7,6 @@
 
 ---
 
-_"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting. — *Zig Ziglar*"_
+_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
 
 ---
