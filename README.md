@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
+_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
 
 ---
