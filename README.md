@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
+_"All that we see or seem is but a dream within a dream. — *Edgar Allan Poe*"_
 
 ---
