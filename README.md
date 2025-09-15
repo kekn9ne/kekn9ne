@@ -7,6 +7,6 @@
 
 ---
 
-_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
+_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
 
 ---
