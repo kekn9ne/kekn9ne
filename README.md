@@ -7,6 +7,6 @@
 
 ---
 
-_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
+_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
 
 ---
