@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
+_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
 
 ---
