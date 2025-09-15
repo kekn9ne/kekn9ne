@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not allow your inner doubts to keep you from achieving what you can do. — *Lolly Daskal*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
