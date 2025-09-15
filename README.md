@@ -7,6 +7,6 @@
 
 ---
 
-_"Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great. — *Billie Jean King*"_
+_"We have no more right to consume happiness without producing it than to consume wealth without producing it. — *George Bernard Shaw*"_
 
 ---
