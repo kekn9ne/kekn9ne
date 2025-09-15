@@ -7,6 +7,6 @@
 
 ---
 
-_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
