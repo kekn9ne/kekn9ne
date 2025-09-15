@@ -7,6 +7,6 @@
 
 ---
 
-_"I am who I am today because of the choices I made yesterday. — *Eleanor Roosevelt*"_
+_"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse. — *Alfred Adler*"_
 
 ---
