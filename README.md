@@ -7,6 +7,6 @@
 
 ---
 
-_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
+_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
 
 ---
