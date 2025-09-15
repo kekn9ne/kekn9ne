@@ -7,6 +7,6 @@
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"Knowledge isn't power until it is applied. — *Dale Carnegie*"_
 
 ---
