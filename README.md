@@ -7,6 +7,6 @@
 
 ---
 
-_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
+_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
 
 ---
