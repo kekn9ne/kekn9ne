@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no ordinary moments. — *Dan Millman*"_
+_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
 
 ---
