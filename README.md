@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
 
 ---
