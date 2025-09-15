@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
+_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
 
 ---
