@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
+_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
 
 ---
