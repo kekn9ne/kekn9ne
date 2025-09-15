@@ -7,6 +7,6 @@
 
 ---
 
-_"There are few reasons for telling the truth, but for lying the number is infinite. — *Carlos Ruiz Zafon*"_
+_"The source of a true smile is an awakened mind. — *Thich Nhat Hanh*"_
 
 ---
