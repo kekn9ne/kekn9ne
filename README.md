@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
+_"Distant water does not put out a nearby fire. — *Chinese Proverb*"_
 
 ---
