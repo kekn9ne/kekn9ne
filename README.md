@@ -7,6 +7,6 @@
 
 ---
 
-_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
+_"It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society. — *Jiddu Krishnamurti*"_
 
 ---
