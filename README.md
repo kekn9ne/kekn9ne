@@ -7,6 +7,6 @@
 
 ---
 
-_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
+_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
 
 ---
