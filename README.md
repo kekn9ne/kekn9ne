@@ -7,6 +7,6 @@
 
 ---
 
-_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
+_"If you don't like something, change it. If you can't change it, change your attitude. — *Maya Angelou*"_
 
 ---
