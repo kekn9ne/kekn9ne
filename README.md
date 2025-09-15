@@ -7,6 +7,6 @@
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
 
 ---
