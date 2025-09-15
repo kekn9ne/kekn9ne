@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
+_"There are few reasons for telling the truth, but for lying the number is infinite. — *Carlos Ruiz Zafon*"_
 
 ---
