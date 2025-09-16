@@ -7,6 +7,6 @@
 
 ---
 
-_"Because of your smile, you make life more beautiful. — *Thich Nhat Hanh*"_
+_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
 
 ---
