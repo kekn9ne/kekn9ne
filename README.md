@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **House of the Rising Sun** by *The Animals* 🎶
 
 ---
 
-_"Don't learn to do, but learn in doing. — *Samuel Butler*"_
+_"The way out is in. — *Thich Nhat Hanh*"_
 
 ---
