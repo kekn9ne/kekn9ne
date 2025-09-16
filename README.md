@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"Some people want it to happen, some wish it would happen, others make it happen. — *Michael Jordan*"_
 
 ---
