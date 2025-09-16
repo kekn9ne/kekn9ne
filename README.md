@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death. — *Socrates*"_
 
 ---
