@@ -7,6 +7,6 @@
 
 ---
 
-_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
+_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
