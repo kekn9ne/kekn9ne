@@ -7,6 +7,6 @@
 
 ---
 
-_"The privilege of a lifetime is to become who you truly are. — *Carl Jung*"_
+_"The busy man is never wise and the wise man is never busy. — *Lin Yutang*"_
 
 ---
