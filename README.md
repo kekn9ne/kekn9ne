@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
+🎧 Currently Listening: **TNT** by *EGE!* 🎶
 
 ---
 
-_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Alan Watts*"_
 
 ---
