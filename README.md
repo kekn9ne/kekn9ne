@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
+_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
 
 ---
