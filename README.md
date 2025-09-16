@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people want it to happen, some wish it would happen, others make it happen. — *Michael Jordan*"_
+_"You're never given a dream without also being given the power to make it true. — *Richard Bach*"_
 
 ---
