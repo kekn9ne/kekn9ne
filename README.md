@@ -7,6 +7,6 @@
 
 ---
 
-_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
+_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
 
 ---
