@@ -7,6 +7,6 @@
 
 ---
 
-_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
+_"The privilege of a lifetime is to become who you truly are. — *Carl Jung*"_
 
 ---
