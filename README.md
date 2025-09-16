@@ -7,6 +7,6 @@
 
 ---
 
-_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
+_"Never do to others what you would not like them to do to you.  — *Confucius*"_
 
 ---
