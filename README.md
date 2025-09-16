@@ -7,6 +7,6 @@
 
 ---
 
-_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
+_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
 
 ---
