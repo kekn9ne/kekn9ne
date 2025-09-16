@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
+_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
 
 ---
