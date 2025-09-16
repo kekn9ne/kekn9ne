@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
+_"I wasn't brave, I just didn't have time to be scared. — *Amelia Earhart*"_
 
 ---
