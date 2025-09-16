@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
+_"Every artist dips his brush in his own soul, and paints his own nature into his pictures. — *Henry Ward Beecher*"_
 
 ---
