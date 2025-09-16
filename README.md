@@ -7,6 +7,6 @@
 
 ---
 
-_"Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death. — *Socrates*"_
+_"Until you change how you get things done, you'll never know what works best. — *Roy T. Bennett*"_
 
 ---
