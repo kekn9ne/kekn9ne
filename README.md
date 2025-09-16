@@ -7,6 +7,6 @@
 
 ---
 
-_"Never do to others what you would not like them to do to you.  — *Confucius*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
