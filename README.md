@@ -7,6 +7,6 @@
 
 ---
 
-_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
+_"An un-examined life is not worth living. — *Socrates*"_
 
 ---
