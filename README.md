@@ -7,6 +7,6 @@
 
 ---
 
-_"If you only knew the magnificence of the 3, 6, and 9, then you would have a key to the universe. — *Nikola Tesla*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
