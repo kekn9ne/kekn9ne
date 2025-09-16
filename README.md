@@ -7,6 +7,6 @@
 
 ---
 
-_"Until you change how you get things done, you'll never know what works best. — *Roy T. Bennett*"_
+_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
 
 ---
