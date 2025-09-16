@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
+_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
 
 ---
