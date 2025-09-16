@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you take responsibility for your past and present, the more you are able to create the future you seek. — *Celestine Chua*"_
+_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
 
 ---
