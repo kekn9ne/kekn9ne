@@ -7,6 +7,6 @@
 
 ---
 
-_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
+_"People think about what they don't want and attract more of the same. — *Unknown*"_
 
 ---
