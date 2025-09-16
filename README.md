@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **TNT** by *EGE!* 🎶
+🎧 Currently Listening: **Trash** by *Motive* 🎶
 
 ---
 
-_"Life is either a daring adventure, or nothing. — *Helen Keller*"_
+_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
 
 ---
