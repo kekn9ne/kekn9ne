@@ -7,6 +7,6 @@
 
 ---
 
-_"People think about what they don't want and attract more of the same. — *Unknown*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
