@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"What gets measured gets improved. — *Robin Sharma*"_
+_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
 
 ---
