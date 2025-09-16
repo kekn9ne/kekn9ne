@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no greatness where there is not simplicity, goodness, and truth. — *Leo Tolstoy*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
