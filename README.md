@@ -7,6 +7,6 @@
 
 ---
 
-_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
+_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
 
 ---
