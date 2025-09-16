@@ -7,6 +7,6 @@
 
 ---
 
-_"He who violates another's honor loses his own. — *Publilius Syrus*"_
+_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
 
 ---
