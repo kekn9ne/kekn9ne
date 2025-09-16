@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion creates, addiction consumes. — *Gabor Mate*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
