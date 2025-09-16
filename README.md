@@ -7,6 +7,6 @@
 
 ---
 
-_"The busy man is never wise and the wise man is never busy. — *Lin Yutang*"_
+_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
 
 ---
