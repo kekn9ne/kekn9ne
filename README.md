@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SLM** by *Batuflex* 🎶
+🎧 Currently Listening: **TNT** by *EGE!* 🎶
 
 ---
 
-_"He that can have patience can have what he will. — *Benjamin Franklin*"_
+_"Life is either a daring adventure, or nothing. — *Helen Keller*"_
 
 ---
