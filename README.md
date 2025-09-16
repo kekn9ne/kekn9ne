@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Yerinde Dur** by *Sefo* 🎶
+🎧 Currently Listening: **SLM** by *Batuflex* 🎶
 
 ---
 
-_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
+_"He that can have patience can have what he will. — *Benjamin Franklin*"_
 
 ---
