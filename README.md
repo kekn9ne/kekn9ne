@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **trendyol** by *tibet* 🎶
 
 ---
 
-_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
+_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
 
 ---
