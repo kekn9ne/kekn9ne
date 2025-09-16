@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **trendyol** by *tibet* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
+_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
 
 ---
