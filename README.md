@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is the signature of civilizations.  — *Beverly Sills*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
