@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **big three freestyle** by *EGE!* 🎶
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
+_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
 
 ---
