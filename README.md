@@ -7,6 +7,6 @@
 
 ---
 
-_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
+_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
 
 ---
