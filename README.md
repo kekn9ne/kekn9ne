@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
+_"Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage. — *Celestine Chua*"_
 
 ---
