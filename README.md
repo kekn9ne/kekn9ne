@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Para Yapmakta** by *Era7capone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
+_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
 
 ---
