@@ -7,6 +7,6 @@
 
 ---
 
-_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
+_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
 
 ---
