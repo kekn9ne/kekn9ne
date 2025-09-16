@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has no limitations except the ones you make. — *Les Brown*"_
+_"Out of your vulnerabilities will come your strength. — *Sigmund Freud*"_
 
 ---
