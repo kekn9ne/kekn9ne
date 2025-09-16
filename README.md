@@ -7,6 +7,6 @@
 
 ---
 
-_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
+_"There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen. — *Wayne Dyer*"_
 
 ---
