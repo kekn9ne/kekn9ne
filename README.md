@@ -7,6 +7,6 @@
 
 ---
 
-_"I wasn't brave, I just didn't have time to be scared. — *Amelia Earhart*"_
+_"Your worth consists in what you are and not in what you have. — *Thomas Edison*"_
 
 ---
