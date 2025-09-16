@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
+🎧 Currently Listening: **55-53** by *Keskin* 🎶
 
 ---
 
-_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
+_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
 
 ---
