@@ -7,6 +7,6 @@
 
 ---
 
-_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
+_"The more you take responsibility for your past and present, the more you are able to create the future you seek. — *Celestine Chua*"_
 
 ---
