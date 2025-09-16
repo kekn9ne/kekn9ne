@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 16 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +23°C**  
+🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"Show up even when you don't want to show up. — *Steve Harvey*"_
 
 ---
