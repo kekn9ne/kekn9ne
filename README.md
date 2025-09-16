@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
 
 ---
