@@ -7,6 +7,6 @@
 
 ---
 
-_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
+_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
 
 ---
