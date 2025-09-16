@@ -7,6 +7,6 @@
 
 ---
 
-_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
+_"Because of your smile, you make life more beautiful. — *Thich Nhat Hanh*"_
 
 ---
