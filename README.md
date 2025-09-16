@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
+_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
 
 ---
