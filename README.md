@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **55-53** by *Keskin* 🎶
+🎧 Currently Listening: **WAG1** by *UZI* 🎶
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"The art of being wise is knowing what to overlook. — *William James*"_
 
 ---
