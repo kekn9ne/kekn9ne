@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 16 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
 
 ---
 
-_"Show up even when you don't want to show up. — *Steve Harvey*"_
+_"Do not try to be on the side of the majority, but live according to your inner laws. — *Marcus Aurelius*"_
 
 ---
