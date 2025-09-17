@@ -7,6 +7,6 @@
 
 ---
 
-_"If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. — *Theodore Roosevelt*"_
+_"To live outside the law, you must be honest.  — *Bob Dylan*"_
 
 ---
