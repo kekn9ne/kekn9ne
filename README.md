@@ -7,6 +7,6 @@
 
 ---
 
-_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
+_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
 
 ---
