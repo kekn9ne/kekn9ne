@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
+_"If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. — *Theodore Roosevelt*"_
 
 ---
