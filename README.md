@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
 
 ---
 
-_"Fiction is the truth inside the lie. — *Stephen King*"_
+_"There's more to life than being a passenger. — *Amelia Earhart*"_
 
 ---
