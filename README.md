@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
 
 ---
 
-_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
