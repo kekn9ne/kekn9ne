@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Mükemmeliyetçi** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
+_"No man is free who is not master of himself. — *Epictetus*"_
 
 ---
