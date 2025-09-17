@@ -7,6 +7,6 @@
 
 ---
 
-_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
+_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
 
 ---
