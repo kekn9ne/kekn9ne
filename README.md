@@ -7,6 +7,6 @@
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
 
 ---
