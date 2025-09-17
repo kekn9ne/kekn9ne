@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 17 September 2025**  
+🗓️ Today is: **Thursday, 18 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"Some people want it to happen, some wish it would happen, others make it happen. — *Michael Jordan*"_
 
 ---
