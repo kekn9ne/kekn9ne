@@ -7,6 +7,6 @@
 
 ---
 
-_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
+_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
 
 ---
