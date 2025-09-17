@@ -7,6 +7,6 @@
 
 ---
 
-_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
+_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
 
 ---
