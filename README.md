@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
+_"When you make a choice, you change the future. — *Deepak Chopra*"_
 
 ---
