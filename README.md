@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
 
 ---
