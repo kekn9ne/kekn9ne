@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken  — *Oscar Wilde*"_
+_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
 
 ---
