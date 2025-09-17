@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Sıkı Dur** by *Ben Fero* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Yesterday is but today's memory, tomorrow is today's dream. — *Kahlil Gibran*"_
+_"Being in a good frame of mind helps keep one in the picture of health. — *Unknown*"_
 
 ---
