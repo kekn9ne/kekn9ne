@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
 
 ---
