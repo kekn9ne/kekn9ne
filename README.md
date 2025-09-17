@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 17 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +27°C**  
+🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
+🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
