@@ -7,6 +7,6 @@
 
 ---
 
-_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
+_"The most virtuous are those who content themselves with being virtuous without seeking to appear so. — *Plato*"_
 
 ---
