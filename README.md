@@ -7,6 +7,6 @@
 
 ---
 
-_"It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated. — *Albus Dumbledore*"_
+_"Throughout this life, you can never be certain of living long enough to take another breath. — *Huang Po*"_
 
 ---
