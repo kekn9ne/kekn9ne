@@ -7,6 +7,6 @@
 
 ---
 
-_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
