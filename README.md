@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you persuade me, you won't persuade me. — *Aristophanes*"_
+_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
 
 ---
