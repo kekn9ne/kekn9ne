@@ -7,6 +7,6 @@
 
 ---
 
-_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
+_"Heart is what separates the good from the great. — *Michael Jordan*"_
 
 ---
