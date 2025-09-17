@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
 
 ---
 
-_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
+_"The happiest people in the world are those who feel absolutely terrific about themselves. — *Brian Tracy*"_
 
 ---
