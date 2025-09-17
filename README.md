@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
+_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
 
 ---
