@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
+_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
 
 ---
