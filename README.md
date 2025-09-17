@@ -7,6 +7,6 @@
 
 ---
 
-_"The ones who are crazy enough to think they can change the world, are the ones that do. — *Steve Jobs*"_
+_"You are what you believe yourself to be. — *Paulo Coelho*"_
 
 ---
