@@ -7,6 +7,6 @@
 
 ---
 
-_"If you quit once it becomes a habit. — *Michael Jordan*"_
+_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
 
 ---
