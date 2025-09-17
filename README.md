@@ -7,6 +7,6 @@
 
 ---
 
-_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
