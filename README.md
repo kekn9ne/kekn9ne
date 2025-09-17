@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
+_"Even if you persuade me, you won't persuade me. — *Aristophanes*"_
 
 ---
