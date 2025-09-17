@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
