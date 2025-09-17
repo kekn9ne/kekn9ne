@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
+🎧 Currently Listening: **Look At Me 2.0** by *cairoxd* 🎶
 
 ---
 
-_"There's more to life than being a passenger. — *Amelia Earhart*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
