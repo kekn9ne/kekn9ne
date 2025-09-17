@@ -7,6 +7,6 @@
 
 ---
 
-_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
+_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
 
 ---
