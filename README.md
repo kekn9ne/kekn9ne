@@ -7,6 +7,6 @@
 
 ---
 
-_"An un-examined life is not worth living. — *Socrates*"_
+_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
 
 ---
