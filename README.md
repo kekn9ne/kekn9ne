@@ -7,6 +7,6 @@
 
 ---
 
-_"I want the fishing rod, not the fish. — *Yanni*"_
+_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
 
 ---
