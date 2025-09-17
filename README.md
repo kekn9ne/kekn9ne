@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to success is action. — *Brian Tracy*"_
+_"Be yourself; everyone else is already taken  — *Oscar Wilde*"_
 
 ---
