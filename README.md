@@ -7,6 +7,6 @@
 
 ---
 
-_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
+_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
 
 ---
