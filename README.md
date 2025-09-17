@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
+_"The more you are grateful for what you have the more you will have to be grateful for.   — *Zig Ziglar*"_
 
 ---
