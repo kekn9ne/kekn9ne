@@ -7,6 +7,6 @@
 
 ---
 
-_"Better late than never. — *Spencer Johnson*"_
+_"Live your life and forget your age. — *Norman Vincent Peale*"_
 
 ---
