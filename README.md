@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
+_"It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated. — *Albus Dumbledore*"_
 
 ---
