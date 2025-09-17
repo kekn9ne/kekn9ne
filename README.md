@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **A.A.K** by *Cato* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
+_"An un-examined life is not worth living. — *Socrates*"_
 
 ---
