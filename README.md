@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"The time is always right to do what is right. — *Martin Luther King, Jr.*"_
 
 ---
