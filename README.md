@@ -7,6 +7,6 @@
 
 ---
 
-_"When you make a choice, you change the future. — *Deepak Chopra*"_
+_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
 
 ---
