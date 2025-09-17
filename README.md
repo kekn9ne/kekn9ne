@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +27°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
+_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
 
 ---
