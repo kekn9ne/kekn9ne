@@ -7,6 +7,6 @@
 
 ---
 
-_"Heart is what separates the good from the great. — *Michael Jordan*"_
+_"Lust, anger and greed are the three gates to self-destructive hell. — *Bhagavad Gita*"_
 
 ---
