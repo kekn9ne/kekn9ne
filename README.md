@@ -7,6 +7,6 @@
 
 ---
 
-_"The most virtuous are those who content themselves with being virtuous without seeking to appear so. — *Plato*"_
+_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
 
 ---
