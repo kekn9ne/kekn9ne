@@ -7,6 +7,6 @@
 
 ---
 
-_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
+_"I want the fishing rod, not the fish. — *Yanni*"_
 
 ---
