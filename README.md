@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy. — *Elon Musk*"_
+_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
 
 ---
