@@ -7,6 +7,6 @@
 
 ---
 
-_"To live outside the law, you must be honest.  — *Bob Dylan*"_
+_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
 
 ---
