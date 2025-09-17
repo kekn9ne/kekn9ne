@@ -7,6 +7,6 @@
 
 ---
 
-_"It takes a very long time to become young. — *Pablo Picasso*"_
+_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
 
 ---
