@@ -7,6 +7,6 @@
 
 ---
 
-_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
+_"It takes a very long time to become young. — *Pablo Picasso*"_
 
 ---
