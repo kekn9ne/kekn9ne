@@ -7,6 +7,6 @@
 
 ---
 
-_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
+_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
 
 ---
