@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
 
 ---
