@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. — *Sydney Smith*"_
+_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
 
 ---
