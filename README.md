@@ -7,6 +7,6 @@
 
 ---
 
-_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
+_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
 
 ---
