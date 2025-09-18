@@ -7,6 +7,6 @@
 
 ---
 
-_"When we have our body and mind in order, everything else will exist in the right place, in the right way. — *Shunryu Suzuki*"_
+_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
 
 ---
