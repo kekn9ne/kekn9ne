@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm an optimist by choice not by stupidity. — *Yanni*"_
+_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
 
 ---
