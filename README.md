@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence is very important. You should not give up unless you are forced to give up. — *Elon Musk*"_
+_"If you're not making mistakes, then you're not doing anything. — *John Wooden*"_
 
 ---
