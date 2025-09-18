@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
+_"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. — *Sydney Smith*"_
 
 ---
