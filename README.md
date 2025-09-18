@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
+_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
 
 ---
