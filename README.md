@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not go where the path may lead, go instead where there is no path and leave a trail. — *Ralph Waldo Emerson*"_
+_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
 
 ---
