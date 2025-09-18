@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kalbim Çukurda** by *Gazapizm* 🎶
+🎧 Currently Listening: **Canavar** by *No.1* 🎶
 
 ---
 
-_"It doesn't matter how much you want. What really matters is how much you want it. — *Ralph Marston*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
