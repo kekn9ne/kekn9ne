@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
 
 ---
