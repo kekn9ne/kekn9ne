@@ -7,6 +7,6 @@
 
 ---
 
-_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
+_"Honesty is the first chapter in the book of wisdom. — *Thomas Jefferson*"_
 
 ---
