@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
+_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
 
 ---
