@@ -7,6 +7,6 @@
 
 ---
 
-_"An un-examined life is not worth living. — *Socrates*"_
+_"There is peace even in the storm. — *Vincent van Gogh*"_
 
 ---
