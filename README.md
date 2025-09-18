@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen. — *Winston Churchill*"_
 
 ---
