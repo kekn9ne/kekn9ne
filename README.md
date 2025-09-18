@@ -7,6 +7,6 @@
 
 ---
 
-_"Your spirit is the true shield. — *Morihei Ueshiba*"_
+_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
 
 ---
