@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 18 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean. — *Paramahansa Yogananda*"_
+_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
 
 ---
