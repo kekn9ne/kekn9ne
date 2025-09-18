@@ -7,6 +7,6 @@
 
 ---
 
-_"Before anything else, preparation is the key to success. — *Alexander Graham Bell*"_
+_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
 
 ---
