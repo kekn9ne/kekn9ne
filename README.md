@@ -7,6 +7,6 @@
 
 ---
 
-_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
+_"Everything is in your own heart. — *Thich Nhat Hanh*"_
 
 ---
