@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. — *Alan Watts*"_
+_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
 
 ---
