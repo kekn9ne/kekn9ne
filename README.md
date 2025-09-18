@@ -7,6 +7,6 @@
 
 ---
 
-_"Never let the things you can't do stop you from doing what you can. — *Ronald Reagan*"_
+_"The measure of wisdom is how calm you are when facing any given situation. — *Naval Ravikant*"_
 
 ---
