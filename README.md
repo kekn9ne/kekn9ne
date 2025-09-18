@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is what it takes to stand up and speak. Courage is also what it takes to sit down and listen. — *Winston Churchill*"_
+_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
 
 ---
