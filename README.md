@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
+_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
 
 ---
