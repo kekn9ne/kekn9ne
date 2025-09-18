@@ -7,6 +7,6 @@
 
 ---
 
-_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
+_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
 
 ---
