@@ -7,6 +7,6 @@
 
 ---
 
-_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
+_"You are now, and you do become, what you think about. — *Earl Nightingale*"_
 
 ---
