@@ -7,6 +7,6 @@
 
 ---
 
-_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
+_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
 
 ---
