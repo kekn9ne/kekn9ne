@@ -7,6 +7,6 @@
 
 ---
 
-_"I believe that one of life's greatest risks is never daring to risk. — *Oprah Winfrey*"_
+_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
 
 ---
