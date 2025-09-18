@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
 
 ---
