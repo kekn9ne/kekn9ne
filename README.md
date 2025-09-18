@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is in your own heart. — *Thich Nhat Hanh*"_
+_"Lying can never save us from another lie. — *Vaclav Havel*"_
 
 ---
