@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is what happens to you while you're busy making other plans. — *John Lennon*"_
+_"Don't let the past steal your present. — *Cherralea Morgen*"_
 
 ---
