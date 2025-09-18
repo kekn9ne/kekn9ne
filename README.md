@@ -7,6 +7,6 @@
 
 ---
 
-_"Honesty is the first chapter in the book of wisdom. — *Thomas Jefferson*"_
+_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
 
 ---
