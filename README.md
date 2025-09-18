@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
