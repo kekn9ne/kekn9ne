@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
+_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
 
 ---
