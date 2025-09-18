@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing has more strength than dire necessity. — *Euripides*"_
+_"Self-control is strength. — *James Allen*"_
 
 ---
