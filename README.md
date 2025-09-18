@@ -7,6 +7,6 @@
 
 ---
 
-_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
+_"The wise man reads both books and life itself. — *Lin Yutang*"_
 
 ---
