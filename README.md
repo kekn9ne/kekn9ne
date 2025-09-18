@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
+_"Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean. — *Paramahansa Yogananda*"_
 
 ---
