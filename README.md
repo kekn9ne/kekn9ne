@@ -7,6 +7,6 @@
 
 ---
 
-_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
+_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
 
 ---
