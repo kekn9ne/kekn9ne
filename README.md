@@ -7,6 +7,6 @@
 
 ---
 
-_"Self-control is strength. — *James Allen*"_
+_"We can have more than we've got because we can become more than we are. — *Jim Rohn*"_
 
 ---
