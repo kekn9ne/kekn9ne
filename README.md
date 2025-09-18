@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise man reads both books and life itself. — *Lin Yutang*"_
+_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
 
 ---
