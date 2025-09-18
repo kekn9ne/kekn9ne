@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Bu Benim Hayatım** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
+_"There are two kinds of perfect people: those who are dead, and those who have not been born yet. — *Chinese Proverb*"_
 
 ---
