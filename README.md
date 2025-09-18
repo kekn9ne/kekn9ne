@@ -7,6 +7,6 @@
 
 ---
 
-_"You are now, and you do become, what you think about. — *Earl Nightingale*"_
+_"I believe that one of life's greatest risks is never daring to risk. — *Oprah Winfrey*"_
 
 ---
