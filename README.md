@@ -7,6 +7,6 @@
 
 ---
 
-_"There is peace even in the storm. — *Vincent van Gogh*"_
+_"Whether you think you can or think you can't – you are right. — *Henry Ford*"_
 
 ---
