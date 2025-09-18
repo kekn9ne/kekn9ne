@@ -7,6 +7,6 @@
 
 ---
 
-_"Not why the addiction but why the pain. — *Gabor Mate*"_
+_"If you set your goals ridiculously high and its a failure, you will fail above everyone elses success. — *James Cameron*"_
 
 ---
