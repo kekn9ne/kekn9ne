@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
+_"The power to make and break habits and learning how to do that is really important. — *Naval Ravikant*"_
 
 ---
