@@ -7,6 +7,6 @@
 
 ---
 
-_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
+_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
 
 ---
