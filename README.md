@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
+_"An un-examined life is not worth living. — *Socrates*"_
 
 ---
