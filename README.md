@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
+_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
 
 ---
