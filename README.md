@@ -7,6 +7,6 @@
 
 ---
 
-_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
+_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
 
 ---
