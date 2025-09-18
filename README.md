@@ -7,6 +7,6 @@
 
 ---
 
-_"We can have more than we've got because we can become more than we are. — *Jim Rohn*"_
+_"Never let the things you can't do stop you from doing what you can. — *Ronald Reagan*"_
 
 ---
