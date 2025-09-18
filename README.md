@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
+_"Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control. — *Maxime Lagace*"_
 
 ---
