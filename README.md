@@ -7,6 +7,6 @@
 
 ---
 
-_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
+_"Before anything else, preparation is the key to success. — *Alexander Graham Bell*"_
 
 ---
