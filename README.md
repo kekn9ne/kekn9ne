@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 18 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
 
 ---
 
-_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
+_"Judge your success by what you had to give up in order to get it. — *Dalai Lama*"_
 
 ---
