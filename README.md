@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
+_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
 
 ---
