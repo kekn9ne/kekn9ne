@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
+_"I'm an optimist by choice not by stupidity. — *Yanni*"_
 
 ---
