@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the past steal your present. — *Cherralea Morgen*"_
+_"Nothing has more strength than dire necessity. — *Euripides*"_
 
 ---
