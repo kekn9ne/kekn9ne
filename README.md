@@ -7,6 +7,6 @@
 
 ---
 
-_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
