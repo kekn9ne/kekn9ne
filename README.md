@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **N'aptığını bilmesem de** by *BLOK3* 🎶
+🎧 Currently Listening: **Kalbim Çukurda** by *Gazapizm* 🎶
 
 ---
 
-_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
+_"It doesn't matter how much you want. What really matters is how much you want it. — *Ralph Marston*"_
 
 ---
