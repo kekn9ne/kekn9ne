@@ -7,6 +7,6 @@
 
 ---
 
-_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
+_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
 
 ---
