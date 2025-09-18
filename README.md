@@ -7,6 +7,6 @@
 
 ---
 
-_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
+_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
 
 ---
