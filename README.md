@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't feed a hundred people, then feed just one. — *Mother Teresa*"_
+_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
 
 ---
