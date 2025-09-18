@@ -7,6 +7,6 @@
 
 ---
 
-_"Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control. — *Maxime Lagace*"_
+_"This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. — *Alan Watts*"_
 
 ---
