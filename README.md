@@ -7,6 +7,6 @@
 
 ---
 
-_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
+_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
 
 ---
