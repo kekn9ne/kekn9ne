@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
+_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
 
 ---
