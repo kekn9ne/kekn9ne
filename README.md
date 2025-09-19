@@ -7,6 +7,6 @@
 
 ---
 
-_"People tend to complicate their own lives, as if living weren't already complicated enough. — *Carlos Ruiz Zafon*"_
+_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
 
 ---
