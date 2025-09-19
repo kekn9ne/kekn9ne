@@ -7,6 +7,6 @@
 
 ---
 
-_"It's always to soon to quit! — *Norman Vincent Peale*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
