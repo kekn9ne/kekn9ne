@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
+_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
 
 ---
