@@ -7,6 +7,6 @@
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"It's always to soon to quit! — *Norman Vincent Peale*"_
 
 ---
