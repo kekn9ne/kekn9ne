@@ -7,6 +7,6 @@
 
 ---
 
-_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
+_"Thinking is the hardest work there is, which is probably the reason why so few engage in it. — *Henry Ford*"_
 
 ---
