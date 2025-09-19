@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
 
 ---
