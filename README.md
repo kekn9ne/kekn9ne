@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
+_"We build too many walls and not enough bridges. — *Isaac Newton*"_
 
 ---
