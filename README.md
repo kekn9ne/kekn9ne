@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is, which is probably the reason why so few engage in it. — *Henry Ford*"_
+_"Memory is the scribe of the soul. — *Aristotle*"_
 
 ---
