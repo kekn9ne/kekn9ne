@@ -7,6 +7,6 @@
 
 ---
 
-_"If you think you can do a thing or think you can't do a thing, you're right. — *Henry Ford*"_
+_"Life is about not knowing and then doing something anyway. — *Mark Manson*"_
 
 ---
