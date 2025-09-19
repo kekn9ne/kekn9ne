@@ -7,6 +7,6 @@
 
 ---
 
-_"You change the world by being yourself. — *Yoko Ono*"_
+_"The only reason to be alive is to enjoy it. — *Rita Mae Brown*"_
 
 ---
