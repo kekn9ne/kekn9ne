@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can change your mind, you can change your life. — *William James*"_
+_"Wealth consists not in having great possessions, but in having few wants. — *Epictetus*"_
 
 ---
