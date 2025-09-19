@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
+_"The first step toward getting somewhere is to decide that you are not going to stay where you are. — *Unknown*"_
 
 ---
