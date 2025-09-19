@@ -7,6 +7,6 @@
 
 ---
 
-_"It always seems impossible until it's done. — *Nelson Mandela*"_
+_"The chief cause of failure and unhappiness is trading what you want most for what you want right now. — *Zig Ziglar*"_
 
 ---
