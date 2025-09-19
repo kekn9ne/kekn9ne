@@ -7,6 +7,6 @@
 
 ---
 
-_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
+_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
 
 ---
