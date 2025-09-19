@@ -7,6 +7,6 @@
 
 ---
 
-_"No idea, no matter how good, will work if it doesn't get used. — *Peter A. Cohen*"_
+_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
 
 ---
