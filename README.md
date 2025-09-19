@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
+_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
 
 ---
