@@ -7,6 +7,6 @@
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"Simplicity is the glory of expression. — *Walt Whitman*"_
 
 ---
