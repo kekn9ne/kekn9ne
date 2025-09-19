@@ -7,6 +7,6 @@
 
 ---
 
-_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
+_"Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — *Marcus Aurelius*"_
 
 ---
