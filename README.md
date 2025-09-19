@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools read fast. Geniuses reread. — *Maxime Lagace*"_
+_"Believe in one thing too much and you have no room for new ideas.   — *Ray Bradbury*"_
 
 ---
