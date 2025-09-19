@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SLM** by *Batuflex* 🎶
 
 ---
 
-_"A needle is not sharp at both ends.  — *Chinese Proverb*"_
+_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
 
 ---
