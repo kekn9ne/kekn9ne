@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Double B** by *EGE!* 🎶
+🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
 
 ---
 
-_"You can't have anything worthwhile without difficulties. — *Harry S. Truman*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
