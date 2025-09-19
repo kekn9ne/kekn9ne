@@ -7,6 +7,6 @@
 
 ---
 
-_"We build too many walls and not enough bridges. — *Isaac Newton*"_
+_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
 
 ---
