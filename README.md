@@ -7,6 +7,6 @@
 
 ---
 
-_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
+_"Just get out and do it. You will be very, very glad that you did. — *Christopher McCandless*"_
 
 ---
