@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about not knowing and then doing something anyway. — *Mark Manson*"_
+_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
 
 ---
