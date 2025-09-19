@@ -7,6 +7,6 @@
 
 ---
 
-_"The only reason to be alive is to enjoy it. — *Rita Mae Brown*"_
+_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
 
 ---
