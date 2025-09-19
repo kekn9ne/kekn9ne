@@ -7,6 +7,6 @@
 
 ---
 
-_"Any fool can paint a picture, but it takes a wise man to be able to sell it. — *Samuel Butler*"_
+_"If you think you can do a thing or think you can't do a thing, you're right. — *Henry Ford*"_
 
 ---
