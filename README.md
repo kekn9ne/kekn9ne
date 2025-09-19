@@ -7,6 +7,6 @@
 
 ---
 
-_"Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.  — *Nikola Tesla*"_
+_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
 
 ---
