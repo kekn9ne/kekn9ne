@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. — *Jon Kabat-Zinn*"_
+_"Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new. — *Brian Tracy*"_
 
 ---
