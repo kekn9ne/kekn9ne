@@ -7,6 +7,6 @@
 
 ---
 
-_"Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — *Marcus Aurelius*"_
+_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
 
 ---
