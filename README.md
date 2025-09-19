@@ -7,6 +7,6 @@
 
 ---
 
-_"Common sense is not so common.  — *Voltaire*"_
+_"We must not sit down and wait for miracles. Up and be going! — *John Eliot*"_
 
 ---
