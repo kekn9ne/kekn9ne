@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
 
 ---
