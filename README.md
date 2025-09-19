@@ -7,6 +7,6 @@
 
 ---
 
-_"We become brave by doing brave acts. — *Aristotle*"_
+_"Creativity is intelligence having fun. — *Albert Einstein*"_
 
 ---
