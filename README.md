@@ -7,6 +7,6 @@
 
 ---
 
-_"Simplicity is the glory of expression. — *Walt Whitman*"_
+_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
 
 ---
