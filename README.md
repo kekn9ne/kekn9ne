@@ -7,6 +7,6 @@
 
 ---
 
-_"Every strike brings me closer to the next home run.  — *Babe Ruth*"_
+_"You change the world by being yourself. — *Yoko Ono*"_
 
 ---
