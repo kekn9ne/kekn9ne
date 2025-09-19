@@ -7,6 +7,6 @@
 
 ---
 
-_"The score never interested me, only the game. — *Mae West*"_
+_"Don't let what you cannot do interfere with what you can do. — *John Wooden*"_
 
 ---
