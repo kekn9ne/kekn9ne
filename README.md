@@ -7,6 +7,6 @@
 
 ---
 
-_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
+_"Anyone telling you it's pointless to share your perspective is sharing their perspective. — *Jack Butcher*"_
 
 ---
