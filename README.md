@@ -7,6 +7,6 @@
 
 ---
 
-_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
+_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
 
 ---
