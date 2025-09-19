@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
+_"The score never interested me, only the game. — *Mae West*"_
 
 ---
