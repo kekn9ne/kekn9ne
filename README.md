@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
+🎧 Currently Listening: **ABBAS - Hood Trap Remix** by *Kava* 🎶
 
 ---
 
-_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
+_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
 
 ---
