@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
