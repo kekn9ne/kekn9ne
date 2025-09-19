@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
 
 ---
