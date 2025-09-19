@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easier to go down a hill than up it but the view is much better at the top. — *Henry Ward Beecher*"_
+_"Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. — *Jon Kabat-Zinn*"_
 
 ---
