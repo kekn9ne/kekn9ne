@@ -7,6 +7,6 @@
 
 ---
 
-_"Investing in yourself is the best investment you will ever make. — *Robin Sharma*"_
+_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
 
 ---
