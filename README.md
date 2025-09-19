@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 19 September 2025**  
-🌤️ Weather in Istanbul: **🌦   +19°C**  
+🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İSTASYON** by *EGE!* 🎶
 
 ---
 
-_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
+_"Do you want to know who you are? Don't ask. Act! Action will delineate and define you. — *Thomas Jefferson*"_
 
 ---
