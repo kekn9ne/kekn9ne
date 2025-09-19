@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABBAS - Hood Trap Remix** by *Kava* 🎶
+🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
 
 ---
 
-_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
+_"Living life in style also means living a life of balance. — *Jim Rohn*"_
 
 ---
