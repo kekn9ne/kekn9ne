@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't listen to the person who has the answers; listen to the person who has the questions. — *Albert Einstein*"_
+_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
 
 ---
