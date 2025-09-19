@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"I am not the outcome. I am never the result. I am only the effort. — *Kamal Ravikant*"_
 
 ---
