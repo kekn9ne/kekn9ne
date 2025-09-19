@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
+_"Great things are not done by impulse, but by a series of small things brought together. — *Vincent van Gogh*"_
 
 ---
