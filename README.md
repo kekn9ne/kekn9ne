@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
+_"If you can change your mind, you can change your life. — *William James*"_
 
 ---
