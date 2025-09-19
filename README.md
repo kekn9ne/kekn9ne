@@ -7,6 +7,6 @@
 
 ---
 
-_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
+_"Any fool can paint a picture, but it takes a wise man to be able to sell it. — *Samuel Butler*"_
 
 ---
