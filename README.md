@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: **POLATLI** by *Era7capone* 🎶
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"Our joy does not have to be based on our circumstances. — *Joyce Meyer*"_
 
 ---
