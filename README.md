@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not how much we have, but how much we enjoy, that makes happiness. — *Charles Spurgeon*"_
+_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
 
 ---
