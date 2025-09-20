@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people. — *Roy T. Bennett*"_
+_"The energy of the mind is the essence of life. — *Aristotle*"_
 
 ---
