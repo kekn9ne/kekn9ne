@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
+_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
 
 ---
