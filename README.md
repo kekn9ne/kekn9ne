@@ -7,6 +7,6 @@
 
 ---
 
-_"The energy of the mind is the essence of life. — *Aristotle*"_
+_"The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. — *Sathya Sai Baba*"_
 
 ---
