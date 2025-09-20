@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
+_"Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.   — *Jack Kerouac*"_
 
 ---
