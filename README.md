@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option, fear is not. — *James Cameron*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
