@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
+_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
 
 ---
