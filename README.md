@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is about creating value. — *Candice Carpenter*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
