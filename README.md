@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination means nothing without doing.   — *Charlie Chaplin*"_
+_"The more we have the less we own. — *Meister Eckhart*"_
 
 ---
