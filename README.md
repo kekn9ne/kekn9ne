@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
+_"Knowing is not enough, we must apply. Willing is not enough, we must do. — *Johann Wolfgang von Goethe*"_
 
 ---
