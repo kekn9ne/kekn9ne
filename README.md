@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Veda Türküsü** by *Emre Fel* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The friendship that can cease has never been real.  — *St. Jerome*"_
+_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
 
 ---
