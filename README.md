@@ -7,6 +7,6 @@
 
 ---
 
-_"When you make a choice, you change the future. — *Deepak Chopra*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
