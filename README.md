@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people. — *Roy T. Bennett*"_
 
 ---
