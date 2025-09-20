@@ -7,6 +7,6 @@
 
 ---
 
-_"To be able to forget means sanity. — *Jack London*"_
+_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
 
 ---
