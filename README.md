@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
+_"Someone who points out your flaws to you is not necessarily your enemy. Someone who speaks of your virtues is not necessarily your friend. — *Zen Proverb*"_
 
 ---
