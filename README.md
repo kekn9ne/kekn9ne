@@ -7,6 +7,6 @@
 
 ---
 
-_"When it comes to mastering a skill, time is the magic ingredient. — *Robert Greene*"_
+_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
 
 ---
