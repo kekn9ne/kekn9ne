@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the absence of judgment. — *Dalai Lama*"_
+_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
 
 ---
