@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing is not enough, we must apply. Willing is not enough, we must do. — *Johann Wolfgang von Goethe*"_
+_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
 
 ---
