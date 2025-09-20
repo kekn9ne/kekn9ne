@@ -7,6 +7,6 @@
 
 ---
 
-_"The more we have the less we own. — *Meister Eckhart*"_
+_"Nothing endures but change. — *Heraclitus*"_
 
 ---
