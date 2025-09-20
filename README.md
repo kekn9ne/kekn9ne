@@ -7,6 +7,6 @@
 
 ---
 
-_"You find peace not by rearranging the circumstances of your life, but by realizing who you are at the deepest level. — *Eckhart Tolle*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
