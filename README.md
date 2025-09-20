@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kurşuni Renkler** by *Göksel* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Creativity is intelligence having fun. — *Albert Einstein*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
