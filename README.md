@@ -7,6 +7,6 @@
 
 ---
 
-_"A random act of kindness, no matter how small, can make a tremendous impact on someone else's life. — *Roy T. Bennett*"_
+_"Fear of death is fear of the Unknown. — *Adi Da Samraj*"_
 
 ---
