@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is love and love is life. — *Elvis Presley*"_
+_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
 
 ---
