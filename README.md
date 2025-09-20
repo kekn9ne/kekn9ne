@@ -7,6 +7,6 @@
 
 ---
 
-_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
+_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
 
 ---
