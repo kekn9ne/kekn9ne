@@ -7,6 +7,6 @@
 
 ---
 
-_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
+_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
 
 ---
