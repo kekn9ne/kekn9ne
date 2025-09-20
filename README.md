@@ -7,6 +7,6 @@
 
 ---
 
-_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
+_"What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people. — *Jack Butcher*"_
 
 ---
