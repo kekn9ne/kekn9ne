@@ -7,6 +7,6 @@
 
 ---
 
-_"What you resist, persists. — *Carl Jung*"_
+_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
 
 ---
