@@ -7,6 +7,6 @@
 
 ---
 
-_"To some degree, you control your life by controlling your time. — *Conrad Hilton*"_
+_"Imagination means nothing without doing.   — *Charlie Chaplin*"_
 
 ---
