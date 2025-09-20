@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination means nothing without doing.   — *Charlie Chaplin*"_
+_"What you resist, persists. — *Carl Jung*"_
 
 ---
