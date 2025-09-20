@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
+_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
 
 ---
