@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
+_"Imagination means nothing without doing.   — *Charlie Chaplin*"_
 
 ---
