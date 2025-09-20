@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 20 September 2025**  
-🌤️ Weather in Istanbul: **☀️   +20°C**  
+🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kurşuni Renkler** by *Sezen Aksu* 🎶
+🎧 Currently Listening: **VUR** by *BLOK3* 🎶
 
 ---
 
-_"The heart that gives, gathers. — *Lao Tzu*"_
+_"All human beings can alter their lives by altering their attitudes. — *Andrew Carnegie*"_
 
 ---
