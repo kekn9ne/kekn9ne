@@ -7,6 +7,6 @@
 
 ---
 
-_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
+_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
 
 ---
