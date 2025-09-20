@@ -7,6 +7,6 @@
 
 ---
 
-_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
