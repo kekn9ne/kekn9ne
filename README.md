@@ -7,6 +7,6 @@
 
 ---
 
-_"Be grateful for what you have now, and nothing should be taken for granted. — *Roy T. Bennett*"_
+_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
 
 ---
