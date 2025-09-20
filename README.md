@@ -7,6 +7,6 @@
 
 ---
 
-_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
+_"The more you give, the more comes back to you. — *Napoleon Hill*"_
 
 ---
