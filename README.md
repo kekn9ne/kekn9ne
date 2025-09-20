@@ -7,6 +7,6 @@
 
 ---
 
-_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
