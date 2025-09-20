@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is never easy, but always possible. — *Barack Obama*"_
+_"Success is about creating value. — *Candice Carpenter*"_
 
 ---
