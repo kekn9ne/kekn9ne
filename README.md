@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
+_"Today I begin a new life. I will greet this day with love in my heart. — *Og Mandino*"_
 
 ---
