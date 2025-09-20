@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear of death is fear of the Unknown. — *Adi Da Samraj*"_
+_"The single biggest problem in communication is the illusion that it has taken place. — *George Bernard Shaw*"_
 
 ---
