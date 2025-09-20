@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Son Arzum** by *Skapova* 🎶
 
 ---
 
-_"Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.   — *Jack Kerouac*"_
+_"Nothing you do is going to matter that much in the long run. Don't take yourself so seriously. — *Naval Ravikant*"_
 
 ---
