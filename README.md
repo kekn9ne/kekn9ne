@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
 
 ---
