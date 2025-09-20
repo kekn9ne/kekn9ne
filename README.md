@@ -7,6 +7,6 @@
 
 ---
 
-_"Today I begin a new life. I will greet this day with love in my heart. — *Og Mandino*"_
+_"It is not how much we have, but how much we enjoy, that makes happiness. — *Charles Spurgeon*"_
 
 ---
