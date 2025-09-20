@@ -7,6 +7,6 @@
 
 ---
 
-_"What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people. — *Jack Butcher*"_
+_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
 
 ---
