@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
+_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
 
 ---
