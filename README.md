@@ -7,6 +7,6 @@
 
 ---
 
-_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
+_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
 
 ---
