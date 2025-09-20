@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
+_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
 
 ---
