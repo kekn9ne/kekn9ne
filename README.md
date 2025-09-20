@@ -7,6 +7,6 @@
 
 ---
 
-_"It is useless to attempt to reason a man out of a thing he was never reasoned into. — *Jonathan Swift*"_
+_"Change is never easy, but always possible. — *Barack Obama*"_
 
 ---
