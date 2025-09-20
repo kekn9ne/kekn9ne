@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
+_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
 
 ---
