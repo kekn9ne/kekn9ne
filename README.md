@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kurşuni Renkler** by *Göksel* 🎶
 
 ---
 
-_"Life is too important to be taken seriously. — *Oscar Wilde*"_
+_"Creativity is intelligence having fun. — *Albert Einstein*"_
 
 ---
