@@ -7,6 +7,6 @@
 
 ---
 
-_"To be calm is the highest achievement of the self. — *Zen Proverb*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
