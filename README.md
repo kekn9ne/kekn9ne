@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
+_"Be grateful for what you have now, and nothing should be taken for granted. — *Roy T. Bennett*"_
 
 ---
