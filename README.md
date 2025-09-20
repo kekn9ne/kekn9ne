@@ -7,6 +7,6 @@
 
 ---
 
-_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
+_"Don't let making a living prevent you from making a life. — *John Wooden*"_
 
 ---
