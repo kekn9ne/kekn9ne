@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"When you make a choice, you change the future. — *Deepak Chopra*"_
 
 ---
