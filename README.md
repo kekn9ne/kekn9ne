@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you give, the more comes back to you. — *Napoleon Hill*"_
+_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
 
 ---
