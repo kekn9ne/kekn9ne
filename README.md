@@ -7,6 +7,6 @@
 
 ---
 
-_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
+_"Life is too important to be taken seriously. — *Oscar Wilde*"_
 
 ---
