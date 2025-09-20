@@ -7,6 +7,6 @@
 
 ---
 
-_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
+_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
 
 ---
