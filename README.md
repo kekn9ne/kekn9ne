@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"It is useless to attempt to reason a man out of a thing he was never reasoned into. — *Jonathan Swift*"_
 
 ---
