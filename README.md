@@ -7,6 +7,6 @@
 
 ---
 
-_"A needle is not sharp at both ends.  — *Chinese Proverb*"_
+_"Do not believe that you will reach your destination without leaving the shore.  — *Chinese Proverb*"_
 
 ---
