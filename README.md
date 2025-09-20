@@ -7,6 +7,6 @@
 
 ---
 
-_"The single biggest problem in communication is the illusion that it has taken place. — *George Bernard Shaw*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
