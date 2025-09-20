@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Veda Türküsü** by *Emre Fel* 🎶
 
 ---
 
-_"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach. — *Benjamin Mays*"_
+_"The friendship that can cease has never been real.  — *St. Jerome*"_
 
 ---
