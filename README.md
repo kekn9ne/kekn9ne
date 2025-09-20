@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
+_"When it comes to mastering a skill, time is the magic ingredient. — *Robert Greene*"_
 
 ---
