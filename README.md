@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
