@@ -7,6 +7,6 @@
 
 ---
 
-_"Man should fear never beginning to live. — *Marcus Aurelius*"_
+_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
 
 ---
