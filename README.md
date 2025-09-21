@@ -7,6 +7,6 @@
 
 ---
 
-_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
+_"Falling down is not failure. Failure comes when you stay where you have fallen. — *Socrates*"_
 
 ---
