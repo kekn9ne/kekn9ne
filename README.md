@@ -7,6 +7,6 @@
 
 ---
 
-_"Every artist dips his brush in his own soul, and paints his own nature into his pictures. — *Henry Ward Beecher*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
