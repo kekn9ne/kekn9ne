@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **COOOK PARDON** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
+_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
 
 ---
