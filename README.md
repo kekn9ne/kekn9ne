@@ -7,6 +7,6 @@
 
 ---
 
-_"I defeat my enemies when I make them my friends. — *Dalai Lama*"_
+_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
 
 ---
