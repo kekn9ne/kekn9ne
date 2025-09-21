@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 21 September 2025**  
-🌤️ Weather in Istanbul: **☀️   +23°C**  
+🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
+🎧 Currently Listening: **7/24** by *Jeff Redd* 🎶
 
 ---
 
-_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
+_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
 
 ---
