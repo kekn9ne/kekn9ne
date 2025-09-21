@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
+_"Dream big. Start small. But most of all, start. — *Simon Sinek*"_
 
 ---
