@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is stumbling from failure to failure with no loss of enthusiasm. — *Winston Churchill*"_
+_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
 
 ---
