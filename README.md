@@ -7,6 +7,6 @@
 
 ---
 
-_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
+_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
 
 ---
