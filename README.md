@@ -7,6 +7,6 @@
 
 ---
 
-_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
