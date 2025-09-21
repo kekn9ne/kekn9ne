@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Son Arzum** by *Skapova* 🎶
 
 ---
 
-_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
+_"It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society. — *Jiddu Krishnamurti*"_
 
 ---
