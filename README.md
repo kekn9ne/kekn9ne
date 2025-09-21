@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important battle is one to conquer yourself. — *Yanni*"_
+_"Pleasure can be supported by an illusion; but happiness rests upon truth.  — *Nicolas Chamfort*"_
 
 ---
