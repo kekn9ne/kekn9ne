@@ -7,6 +7,6 @@
 
 ---
 
-_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
