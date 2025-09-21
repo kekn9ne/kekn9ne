@@ -7,6 +7,6 @@
 
 ---
 
-_"The road to success is always under construction. — *Steve Harvey*"_
+_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
 
 ---
