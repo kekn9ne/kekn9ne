@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. — *Franklin D. Roosevelt*"_
 
 ---
