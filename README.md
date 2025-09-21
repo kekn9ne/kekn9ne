@@ -7,6 +7,6 @@
 
 ---
 
-_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
+_"The most important things are the hardest to say. — *Stephen King*"_
 
 ---
