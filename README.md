@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is the ability to act rightly without precedent - the power to do the right thing the first time. — *Elbert Hubbard*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
