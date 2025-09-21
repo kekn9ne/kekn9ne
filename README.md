@@ -7,6 +7,6 @@
 
 ---
 
-_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
