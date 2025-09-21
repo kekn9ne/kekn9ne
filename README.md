@@ -7,6 +7,6 @@
 
 ---
 
-_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
+_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
 
 ---
