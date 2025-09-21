@@ -7,6 +7,6 @@
 
 ---
 
-_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
+_"Leadership starts at the top. — *Morgan Wootten*"_
 
 ---
