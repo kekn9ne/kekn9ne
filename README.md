@@ -7,6 +7,6 @@
 
 ---
 
-_"It is only depth of character that determines the profundity with which we face life. — *Ming-Dao Deng*"_
+_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
 
 ---
