@@ -7,6 +7,6 @@
 
 ---
 
-_"Either write something worth reading or do something worth writing. — *Benjamin Franklin*"_
+_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
 
 ---
