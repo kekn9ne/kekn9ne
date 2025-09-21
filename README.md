@@ -7,6 +7,6 @@
 
 ---
 
-_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
+_"I defeat my enemies when I make them my friends. — *Dalai Lama*"_
 
 ---
