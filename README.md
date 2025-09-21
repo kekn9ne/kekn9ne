@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that irritates us about others. — *Carl Jung*"_
+_"The most important battle is one to conquer yourself. — *Yanni*"_
 
 ---
