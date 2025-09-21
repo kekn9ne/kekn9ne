@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
 
 ---
