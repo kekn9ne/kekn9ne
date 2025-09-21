@@ -7,6 +7,6 @@
 
 ---
 
-_"Falling down is not failure. Failure comes when you stay where you have fallen. — *Socrates*"_
+_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
 
 ---
