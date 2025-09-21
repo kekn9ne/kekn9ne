@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
 
 ---
 
-_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
+_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
 
 ---
