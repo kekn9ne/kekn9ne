@@ -7,6 +7,6 @@
 
 ---
 
-_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
+_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
 
 ---
