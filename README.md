@@ -7,6 +7,6 @@
 
 ---
 
-_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
+_"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — *Theodore Roosevelt*"_
 
 ---
