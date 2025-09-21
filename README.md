@@ -7,6 +7,6 @@
 
 ---
 
-_"Enthusiasm is a vital element toward the individual success of every man or woman. — *Conrad Hilton*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
