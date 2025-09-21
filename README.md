@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
+_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
 
 ---
