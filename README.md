@@ -7,6 +7,6 @@
 
 ---
 
-_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.  — *Henry Ford*"_
+_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
 
 ---
