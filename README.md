@@ -7,6 +7,6 @@
 
 ---
 
-_"The past is history. It no longer exists, but you are keeping it alive in your mind through your thoughts.  Let it go. It is not serving you. — *Sonia Ricotti*"_
+_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
 
 ---
