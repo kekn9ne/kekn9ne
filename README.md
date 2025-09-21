@@ -7,6 +7,6 @@
 
 ---
 
-_"A good system shortens the road to the goal.  — *Orison Swett Marden*"_
+_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
 
 ---
