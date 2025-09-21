@@ -7,6 +7,6 @@
 
 ---
 
-_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
+_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
 
 ---
