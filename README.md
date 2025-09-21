@@ -7,6 +7,6 @@
 
 ---
 
-_"Fiction is the truth inside the lie. — *Stephen King*"_
+_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
 
 ---
