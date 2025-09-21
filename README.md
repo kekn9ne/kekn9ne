@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things are not accomplished by those who yield to trends and fads and popular opinion. — *Jack Kerouac*"_
+_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
 
 ---
