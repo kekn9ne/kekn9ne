@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important things are the hardest to say. — *Stephen King*"_
+_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.  — *Henry Ford*"_
 
 ---
