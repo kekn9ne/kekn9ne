@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
+_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
 
 ---
