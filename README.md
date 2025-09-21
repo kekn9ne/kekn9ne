@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"Man should fear never beginning to live. — *Marcus Aurelius*"_
 
 ---
