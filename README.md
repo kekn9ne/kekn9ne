@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
+_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
 
 ---
