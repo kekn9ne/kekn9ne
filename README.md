@@ -7,6 +7,6 @@
 
 ---
 
-_"People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. — *Franklin D. Roosevelt*"_
+_"The quality of your commitments will determine the course of your life. — *Ralph Marston*"_
 
 ---
