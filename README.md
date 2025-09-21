@@ -7,6 +7,6 @@
 
 ---
 
-_"We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right. — *Sonia Ricotti*"_
+_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
 
 ---
