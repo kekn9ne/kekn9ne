@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **COOOK PARDON** by *Lvbel C5* 🎶
 
 ---
 
-_"The quality of your commitments will determine the course of your life. — *Ralph Marston*"_
+_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
 
 ---
