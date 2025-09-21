@@ -7,6 +7,6 @@
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"Success is stumbling from failure to failure with no loss of enthusiasm. — *Winston Churchill*"_
 
 ---
