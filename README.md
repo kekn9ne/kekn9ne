@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
 
 ---
