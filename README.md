@@ -7,6 +7,6 @@
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
 
 ---
