@@ -7,6 +7,6 @@
 
 ---
 
-_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
+_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
 
 ---
