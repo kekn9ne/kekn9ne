@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Benjamins 2** by *Rozz Kalliope* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
+_"Find the game where you can win, and then commit your life to playing it; and play to win. — *Robert Kiyosaki*"_
 
 ---
