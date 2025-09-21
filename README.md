@@ -7,6 +7,6 @@
 
 ---
 
-_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
+_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
 
 ---
