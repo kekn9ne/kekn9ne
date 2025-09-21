@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
+_"The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — *Robert Kiyosaki*"_
 
 ---
