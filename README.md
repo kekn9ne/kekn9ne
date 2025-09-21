@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
+_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
 
 ---
