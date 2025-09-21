@@ -7,6 +7,6 @@
 
 ---
 
-_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
+_"To get angry is like to revenge yourself for the guilt of others. — *Jonathan Swift*"_
 
 ---
