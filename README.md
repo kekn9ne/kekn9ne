@@ -7,6 +7,6 @@
 
 ---
 
-_"Behind every cloud is another cloud. — *Judy Garland*"_
+_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
 
 ---
