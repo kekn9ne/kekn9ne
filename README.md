@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
+_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
 
 ---
