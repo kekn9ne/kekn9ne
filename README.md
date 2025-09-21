@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
+_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
 
 ---
