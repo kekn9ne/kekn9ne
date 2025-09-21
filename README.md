@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
+_"Everything that irritates us about others. — *Carl Jung*"_
 
 ---
