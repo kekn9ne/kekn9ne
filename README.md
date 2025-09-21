@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership starts at the top. — *Morgan Wootten*"_
+_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
 
 ---
