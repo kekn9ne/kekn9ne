@@ -7,6 +7,6 @@
 
 ---
 
-_"Only when I fall do I get up again. — *Vincent van Gogh*"_
+_"Strive for excellence, not perfection, because we don't live in a perfect world. — *Joyce Meyer*"_
 
 ---
