@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
+_"When the world pushes you to your knees, you're in the perfect position to pray. — *Rumi*"_
 
 ---
