@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"A good system shortens the road to the goal.  — *Orison Swett Marden*"_
 
 ---
