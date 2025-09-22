@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
+_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
 
 ---
