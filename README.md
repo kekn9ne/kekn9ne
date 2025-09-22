@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
+_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
 
 ---
