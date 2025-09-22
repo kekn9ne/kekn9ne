@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
+_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
 
 ---
