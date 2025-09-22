@@ -7,6 +7,6 @@
 
 ---
 
-_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
