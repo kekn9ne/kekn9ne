@@ -7,6 +7,6 @@
 
 ---
 
-_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
+_"What people need and what they want may be very different. — *Elbert Hubbard*"_
 
 ---
