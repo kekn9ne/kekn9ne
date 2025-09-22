@@ -7,6 +7,6 @@
 
 ---
 
-_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
+_"If you go out looking for friends, you're going to find they are very scarce. If you go out to be a friend, you'll find them everywhere. — *Zig Ziglar*"_
 
 ---
