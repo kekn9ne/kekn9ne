@@ -7,6 +7,6 @@
 
 ---
 
-_"Lust, anger and greed are the three gates to self-destructive hell. — *Bhagavad Gita*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
