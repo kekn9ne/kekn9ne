@@ -7,6 +7,6 @@
 
 ---
 
-_"We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world. — *Gabor Mate*"_
+_"Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold. — *Elon Musk*"_
 
 ---
