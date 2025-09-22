@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations. — *Wayne Gretzky*"_
+_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
 
 ---
