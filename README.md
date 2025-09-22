@@ -7,6 +7,6 @@
 
 ---
 
-_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
+_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. — *Henry Ford*"_
 
 ---
