@@ -7,6 +7,6 @@
 
 ---
 
-_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
+_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
 
 ---
