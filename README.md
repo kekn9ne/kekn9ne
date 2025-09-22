@@ -7,6 +7,6 @@
 
 ---
 
-_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
+_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
 
 ---
