@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **COOOK PARDON** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Otobanda Polizei** by *Mass* 🎶
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
 
 ---
