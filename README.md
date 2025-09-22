@@ -7,6 +7,6 @@
 
 ---
 
-_"He that can have patience can have what he will. — *Benjamin Franklin*"_
+_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
 
 ---
