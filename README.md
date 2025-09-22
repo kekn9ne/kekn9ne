@@ -7,6 +7,6 @@
 
 ---
 
-_"We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop. — *Mother Teresa*"_
+_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
 
 ---
