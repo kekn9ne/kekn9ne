@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
+_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
 
 ---
