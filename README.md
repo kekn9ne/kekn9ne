@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Unuttun mu Beni** by *Nahide Babashlı* 🎶
 
 ---
 
-_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
+_"The whole of life, from the moment you are born to the moment you die, is a process of learning. — *Jiddu Krishnamurti*"_
 
 ---
