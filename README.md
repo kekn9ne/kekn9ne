@@ -7,6 +7,6 @@
 
 ---
 
-_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
