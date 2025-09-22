@@ -7,6 +7,6 @@
 
 ---
 
-_"The first step is to establish that something is possible; then probability will occur. — *Elon Musk*"_
+_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
 
 ---
