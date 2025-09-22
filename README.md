@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
+_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
 
 ---
