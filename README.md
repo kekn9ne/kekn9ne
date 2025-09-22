@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **dava açacakları için değiştirdim** by *EGE!* 🎶
+🎧 Currently Listening: **ketojenik** by *EGE!* 🎶
 
 ---
 
-_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
+_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
 
 ---
