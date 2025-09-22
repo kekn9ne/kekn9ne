@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing brings down walls as surely as acceptance. — *Deepak Chopra*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
