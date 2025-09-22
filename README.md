@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
+_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
 
 ---
