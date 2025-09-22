@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day a new horizon. — *Christopher McCandless*"_
+_"We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop. — *Mother Teresa*"_
 
 ---
