@@ -7,6 +7,6 @@
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
 
 ---
