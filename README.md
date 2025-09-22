@@ -7,6 +7,6 @@
 
 ---
 
-_"To earn more you must learn more. — *Brian Tracy*"_
+_"If you don't know, the thing to do is not to get scared, but to learn. — *Ayn Rand*"_
 
 ---
