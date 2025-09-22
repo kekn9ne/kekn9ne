@@ -7,6 +7,6 @@
 
 ---
 
-_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
+_"Beware of false knowledge, it is more dangerous than ignorance. — *George Bernard Shaw*"_
 
 ---
