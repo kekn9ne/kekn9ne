@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
+_"The health of nations is more important than the wealth of nations. — *Will Rogers*"_
 
 ---
