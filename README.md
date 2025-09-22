@@ -7,6 +7,6 @@
 
 ---
 
-_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
+_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
 
 ---
