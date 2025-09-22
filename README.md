@@ -7,6 +7,6 @@
 
 ---
 
-_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
+_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
 
 ---
