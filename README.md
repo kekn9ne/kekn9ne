@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know, the thing to do is not to get scared, but to learn. — *Ayn Rand*"_
+_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
 
 ---
