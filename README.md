@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to control myself I must first accept myself by going with and not against my nature. — *Bruce Lee*"_
+_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
 
 ---
