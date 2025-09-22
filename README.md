@@ -7,6 +7,6 @@
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"Nothing good ever comes of violence. — *Martin Luther*"_
 
 ---
