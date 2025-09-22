@@ -7,6 +7,6 @@
 
 ---
 
-_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
+_"Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along.  — *Paramahansa Yogananda*"_
 
 ---
