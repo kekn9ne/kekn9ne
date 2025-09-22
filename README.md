@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership starts at the top. — *Morgan Wootten*"_
+_"To earn more you must learn more. — *Brian Tracy*"_
 
 ---
