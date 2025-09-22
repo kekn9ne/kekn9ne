@@ -7,6 +7,6 @@
 
 ---
 
-_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
+_"Lust, anger and greed are the three gates to self-destructive hell. — *Bhagavad Gita*"_
 
 ---
