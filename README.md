@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
+_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
 
 ---
