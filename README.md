@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +26°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A golden cage is still just a cage. — *Anita Krizzan*"_
+_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
 
 ---
