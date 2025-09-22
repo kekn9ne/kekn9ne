@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Otobanda Polizei** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
+_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
 
 ---
