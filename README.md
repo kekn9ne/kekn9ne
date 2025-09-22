@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **16-24** by *Wegh* 🎶
+🎧 Currently Listening: **Gülşen** by *Ati242* 🎶
 
 ---
 
-_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
+_"You can't build a reputation on what you are going to do.  — *Henry Ford*"_
 
 ---
