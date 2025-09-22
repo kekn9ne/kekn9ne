@@ -7,6 +7,6 @@
 
 ---
 
-_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
+_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
 
 ---
