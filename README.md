@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
+_"I have never let my schooling interfere with my education. — *Mark Twain*"_
 
 ---
