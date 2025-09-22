@@ -7,6 +7,6 @@
 
 ---
 
-_"The true soldier fights not because he hates what is in front of him, but because he loves what is behind him. — *Gilbert Chesterton*"_
+_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
 
 ---
