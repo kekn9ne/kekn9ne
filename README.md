@@ -7,6 +7,6 @@
 
 ---
 
-_"The health of nations is more important than the wealth of nations. — *Will Rogers*"_
+_"He that can have patience can have what he will. — *Benjamin Franklin*"_
 
 ---
