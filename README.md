@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dava açacakları için değiştirdim** by *EGE!* 🎶
 
 ---
 
-_"Simplicity is the glory of expression. — *Walt Whitman*"_
+_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
 
 ---
