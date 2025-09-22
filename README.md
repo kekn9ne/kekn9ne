@@ -7,6 +7,6 @@
 
 ---
 
-_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
+_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
 
 ---
