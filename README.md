@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
 
 ---
