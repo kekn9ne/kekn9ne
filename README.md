@@ -7,6 +7,6 @@
 
 ---
 
-_"The majority of what you want will come from the minority of what you do. — *Gary Keller*"_
+_"No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations. — *Wayne Gretzky*"_
 
 ---
