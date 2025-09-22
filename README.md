@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **16-24** by *Wegh* 🎶
 
 ---
 
-_"Nothing good ever comes of violence. — *Martin Luther*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
