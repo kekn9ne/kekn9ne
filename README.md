@@ -7,6 +7,6 @@
 
 ---
 
-_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
+_"We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world. — *Gabor Mate*"_
 
 ---
