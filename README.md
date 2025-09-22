@@ -7,6 +7,6 @@
 
 ---
 
-_"Beware of false knowledge, it is more dangerous than ignorance. — *George Bernard Shaw*"_
+_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
 
 ---
