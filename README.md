@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
+_"Simplicity is the glory of expression. — *Walt Whitman*"_
 
 ---
