@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings can alter their lives by altering their attitudes of mind. — *William James*"_
+_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
 
 ---
