@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ketojenik** by *EGE!* 🎶
+🎧 Currently Listening: **COOOK PARDON** by *Lvbel C5* 🎶
 
 ---
 
-_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
+_"Normal is the average of deviance. — *Rita Mae Brown*"_
 
 ---
