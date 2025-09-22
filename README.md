@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +28°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Gülşen** by *Ati242* 🎶
+🎧 Currently Listening: **Sahilevleri** by *KAVAK* 🎶
 
 ---
 
-_"You can't build a reputation on what you are going to do.  — *Henry Ford*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
