@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight. — *Benjamin Franklin*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
