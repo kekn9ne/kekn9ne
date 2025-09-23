@@ -7,6 +7,6 @@
 
 ---
 
-_"When one door closes another door opens.  — *Alexander Graham Bell*"_
+_"Belief creates the actual fact. — *William James*"_
 
 ---
