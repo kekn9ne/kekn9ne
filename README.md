@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
+_"What we dwell on is who we become. — *Oprah Winfrey*"_
 
 ---
