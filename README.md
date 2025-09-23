@@ -7,6 +7,6 @@
 
 ---
 
-_"Belief creates the actual fact. — *William James*"_
+_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
 
 ---
