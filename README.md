@@ -7,6 +7,6 @@
 
 ---
 
-_"My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand. — *Thich Nhat Hanh*"_
+_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
 
 ---
