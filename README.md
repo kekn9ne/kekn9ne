@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
+_"Whoever is happy will make others happy too. — *Anne Frank*"_
 
 ---
