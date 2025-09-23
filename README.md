@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 23 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Gülşen** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. — *Thomas Jefferson*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
