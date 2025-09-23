@@ -7,6 +7,6 @@
 
 ---
 
-_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
+_"Even if you persuade me, you won't persuade me. — *Aristophanes*"_
 
 ---
