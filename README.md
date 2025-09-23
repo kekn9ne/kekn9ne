@@ -7,6 +7,6 @@
 
 ---
 
-_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
+_"Natural talent only determines the limits of your athletic potential. It's dedication and a willingness to discipline your life that makes you great. — *Billie Jean King*"_
 
 ---
