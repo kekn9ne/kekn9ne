@@ -7,6 +7,6 @@
 
 ---
 
-_"To forget the whole world is easy; to make the whole world forget you is hard. — *Zhuangzi*"_
+_"My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand. — *Thich Nhat Hanh*"_
 
 ---
