@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
