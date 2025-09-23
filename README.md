@@ -7,6 +7,6 @@
 
 ---
 
-_"Note that this journey is uniquely yours, no one elses. So the path has to be your own. — *Jon Kabat-Zinn*"_
+_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
 
 ---
