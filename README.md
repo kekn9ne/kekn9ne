@@ -7,6 +7,6 @@
 
 ---
 
-_"You win more from losing than winning. — *Morgan Wootten*"_
+_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
 
 ---
