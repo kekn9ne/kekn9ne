@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
+_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
 
 ---
