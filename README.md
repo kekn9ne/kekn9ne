@@ -7,6 +7,6 @@
 
 ---
 
-_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
+_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
 
 ---
