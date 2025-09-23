@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
+_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
 
 ---
