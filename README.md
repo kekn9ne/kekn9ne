@@ -7,6 +7,6 @@
 
 ---
 
-_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. — *Henry Ford*"_
+_"There are only encounters in history. There are no accidents. — *Pablo Picasso*"_
 
 ---
