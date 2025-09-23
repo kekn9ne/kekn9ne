@@ -7,6 +7,6 @@
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
 
 ---
