@@ -7,6 +7,6 @@
 
 ---
 
-_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
+_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
 
 ---
