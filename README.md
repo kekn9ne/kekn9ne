@@ -7,6 +7,6 @@
 
 ---
 
-_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
