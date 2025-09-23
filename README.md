@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
+_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. — *Henry Ford*"_
 
 ---
