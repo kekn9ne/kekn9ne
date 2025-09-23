@@ -7,6 +7,6 @@
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
 
 ---
