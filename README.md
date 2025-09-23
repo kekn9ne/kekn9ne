@@ -7,6 +7,6 @@
 
 ---
 
-_"You miss 100% of the shots you don't take. — *Wayne Gretzky*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
