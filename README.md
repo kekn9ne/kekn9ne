@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
+_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
 
 ---
