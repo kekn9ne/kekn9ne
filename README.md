@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want more luck, take more chances. — *Brian Tracy*"_
+_"Comedy = tragedy + time. — *Carol Burnett*"_
 
 ---
