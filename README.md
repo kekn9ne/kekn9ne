@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, you travel, and as you love, you attract. — *James Allen*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
