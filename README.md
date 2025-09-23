@@ -7,6 +7,6 @@
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
 
 ---
