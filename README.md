@@ -7,6 +7,6 @@
 
 ---
 
-_"The way out is in. — *Thich Nhat Hanh*"_
+_"You win more from losing than winning. — *Morgan Wootten*"_
 
 ---
