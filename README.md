@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
+_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
 
 ---
