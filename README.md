@@ -7,6 +7,6 @@
 
 ---
 
-_"Whoever is happy will make others happy too. — *Anne Frank*"_
+_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
 
 ---
