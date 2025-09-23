@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
 
 ---
