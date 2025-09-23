@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
