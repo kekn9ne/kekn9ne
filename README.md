@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
+_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
 
 ---
