@@ -7,6 +7,6 @@
 
 ---
 
-_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
