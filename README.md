@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
+_"You miss 100% of the shots you don't take. — *Wayne Gretzky*"_
 
 ---
