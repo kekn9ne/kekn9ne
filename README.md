@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
 
 ---
