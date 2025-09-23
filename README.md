@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not wait for leaders; do it alone, person to person. — *Mother Teresa*"_
+_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
 
 ---
