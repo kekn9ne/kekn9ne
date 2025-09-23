@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"The way out is in. — *Thich Nhat Hanh*"_
 
 ---
