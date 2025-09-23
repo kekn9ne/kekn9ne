@@ -7,6 +7,6 @@
 
 ---
 
-_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
