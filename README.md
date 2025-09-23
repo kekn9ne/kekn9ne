@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — *Ralph Marston*"_
+_"Note that this journey is uniquely yours, no one elses. So the path has to be your own. — *Jon Kabat-Zinn*"_
 
 ---
