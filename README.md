@@ -7,6 +7,6 @@
 
 ---
 
-_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
+_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
 
 ---
