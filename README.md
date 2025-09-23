@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
+_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
 
 ---
