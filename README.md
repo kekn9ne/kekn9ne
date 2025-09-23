@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
+_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
 
 ---
