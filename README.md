@@ -7,6 +7,6 @@
 
 ---
 
-_"You can only lose something that you have, but you cannot lose something that you are. — *Eckhart Tolle*"_
+_"It takes a very long time to become young. — *Pablo Picasso*"_
 
 ---
