@@ -7,6 +7,6 @@
 
 ---
 
-_"What we dwell on is who we become. — *Oprah Winfrey*"_
+_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
 
 ---
