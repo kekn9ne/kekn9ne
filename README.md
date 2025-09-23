@@ -7,6 +7,6 @@
 
 ---
 
-_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
+_"Don't let making a living prevent you from making a life. — *John Wooden*"_
 
 ---
