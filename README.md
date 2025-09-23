@@ -7,6 +7,6 @@
 
 ---
 
-_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
+_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
 
 ---
