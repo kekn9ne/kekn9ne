@@ -7,6 +7,6 @@
 
 ---
 
-_"It takes a very long time to become young. — *Pablo Picasso*"_
+_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
 
 ---
