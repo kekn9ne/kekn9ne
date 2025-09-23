@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"Sometimes adversity is what you need to face in order to become successful. — *Zig Ziglar*"_
 
 ---
