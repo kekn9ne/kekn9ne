@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"If you see someone without a smile give them one of yours. — *Unknown*"_
 
 ---
