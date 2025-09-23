@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people tend to become more successful because they are always thinking about their successes. — *Brian Tracy*"_
+_"The greatest mistake you can make in life is to be continually fearing you will make one. — *Elbert Hubbard*"_
 
 ---
