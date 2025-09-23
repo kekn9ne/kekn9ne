@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 23 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"To escape from the world means that one's mind is not concerned with the opinions of the world. — *Dogen*"_
 
 ---
