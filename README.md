@@ -7,6 +7,6 @@
 
 ---
 
-_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
+_"Do not wait for leaders; do it alone, person to person. — *Mother Teresa*"_
 
 ---
