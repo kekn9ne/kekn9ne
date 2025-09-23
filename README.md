@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
+_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
 
 ---
