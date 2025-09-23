@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let making a living prevent you from making a life. — *John Wooden*"_
+_"As you think, you travel, and as you love, you attract. — *James Allen*"_
 
 ---
