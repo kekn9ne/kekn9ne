@@ -7,6 +7,6 @@
 
 ---
 
-_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
+_"You can only lose something that you have, but you cannot lose something that you are. — *Eckhart Tolle*"_
 
 ---
