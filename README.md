@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes adversity is what you need to face in order to become successful. — *Zig Ziglar*"_
+_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
 
 ---
