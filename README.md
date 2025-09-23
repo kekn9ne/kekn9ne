@@ -7,6 +7,6 @@
 
 ---
 
-_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
+_"Successful people tend to become more successful because they are always thinking about their successes. — *Brian Tracy*"_
 
 ---
