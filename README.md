@@ -7,6 +7,6 @@
 
 ---
 
-_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
+_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
 
 ---
