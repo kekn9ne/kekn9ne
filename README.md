@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest mistake you can make in life is to be continually fearing you will make one. — *Elbert Hubbard*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
