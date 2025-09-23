@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you persuade me, you won't persuade me. — *Aristophanes*"_
+_"If you can't, you must. If you must, you can. — *Tony Robbins*"_
 
 ---
