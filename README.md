@@ -7,6 +7,6 @@
 
 ---
 
-_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
+_"Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — *Ralph Marston*"_
 
 ---
