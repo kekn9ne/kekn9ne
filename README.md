@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't, you must. If you must, you can. — *Tony Robbins*"_
+_"In matters of style, swim with the current; in matters of principle, stand like a rock. — *Thomas Jefferson*"_
 
 ---
