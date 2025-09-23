@@ -7,6 +7,6 @@
 
 ---
 
-_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
+_"There's no next time. It's now or never. — *Celestine Chua*"_
 
 ---
