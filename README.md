@@ -7,6 +7,6 @@
 
 ---
 
-_"Go confidently in the direction of your dreams! Live the life you've imagined. — *Henry David Thoreau*"_
+_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
 
 ---
