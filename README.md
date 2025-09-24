@@ -7,6 +7,6 @@
 
 ---
 
-_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
+_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
 
 ---
