@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 September 2025**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **pUTA** by *Jeff Redd* 🎶
+🎧 Currently Listening: **Behzat ç 2.0** by *Dethron* 🎶
 
 ---
 
-_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
+_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
 
 ---
