@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **big three freestyle** by *EGE!* 🎶
+🎧 Currently Listening: **EFOR** by *EGE!* 🎶
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
 
 ---
