@@ -7,6 +7,6 @@
 
 ---
 
-_"A little impatience will spoil great plans. — *Chinese Proverb*"_
+_"If you can change your mind, you can change your life. — *William James*"_
 
 ---
