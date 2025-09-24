@@ -7,6 +7,6 @@
 
 ---
 
-_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
+_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
 
 ---
