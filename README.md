@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
 
 ---
