@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
+_"At the center of your being you have the answer; you know who you are and you know what you want. — *Lao Tzu*"_
 
 ---
