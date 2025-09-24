@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the oldest human needs is having someone to wonder where you are when you don't come home at night.  — *Margaret Mead*"_
+_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
 
 ---
