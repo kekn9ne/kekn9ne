@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dava açacakları için değiştirdim** by *EGE!* 🎶
 
 ---
 
-_"The goal is not to be perfect by the end, the goal is to be better today. — *Simon Sinek*"_
+_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
 
 ---
