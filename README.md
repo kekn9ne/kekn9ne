@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **EFOR** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
+_"Do every act of your life as if it were your last. — *Marcus Aurelius*"_
 
 ---
