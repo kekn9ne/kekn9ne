@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
+🎧 Currently Listening: **Eczane** by *EGE!* 🎶
 
 ---
 
-_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
