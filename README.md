@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
 
 ---
 
-_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
+_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
 
 ---
