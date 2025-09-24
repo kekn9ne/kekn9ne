@@ -7,6 +7,6 @@
 
 ---
 
-_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
+_"We become what we believe. — *Lolly Daskal*"_
 
 ---
