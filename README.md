@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't criticize what you can't understand.  — *Bob Dylan*"_
+_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
 
 ---
