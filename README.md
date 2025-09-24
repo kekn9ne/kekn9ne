@@ -7,6 +7,6 @@
 
 ---
 
-_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
+_"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — *Brian Tracy*"_
 
 ---
