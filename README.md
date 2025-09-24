@@ -7,6 +7,6 @@
 
 ---
 
-_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
+_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
 
 ---
