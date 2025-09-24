@@ -7,6 +7,6 @@
 
 ---
 
-_"Do every act of your life as if it were your last. — *Marcus Aurelius*"_
+_"There's no coming to consciousness without pain — *Carl Jung*"_
 
 ---
