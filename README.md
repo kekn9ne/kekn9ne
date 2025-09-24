@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now. — *Ralph Marston*"_
 
 ---
