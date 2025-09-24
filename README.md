@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
 
 ---
