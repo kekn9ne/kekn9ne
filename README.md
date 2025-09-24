@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
+_"The very essence of instinct is that it's followed independently of reason. — *Charles Darwin*"_
 
 ---
