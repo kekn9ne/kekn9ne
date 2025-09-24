@@ -7,6 +7,6 @@
 
 ---
 
-_"May you live all the days of your life. — *Jonathan Swift*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
