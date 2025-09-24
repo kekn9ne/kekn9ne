@@ -7,6 +7,6 @@
 
 ---
 
-_"Men trust their ears less than their eyes. — *Herodotus*"_
+_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
 
 ---
