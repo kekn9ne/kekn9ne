@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
+_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
 
 ---
