@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is no more uncertain than the present. — *Walt Whitman*"_
+_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
 
 ---
