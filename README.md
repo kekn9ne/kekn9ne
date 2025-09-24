@@ -7,6 +7,6 @@
 
 ---
 
-_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
+_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
 
 ---
