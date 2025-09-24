@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
+🎧 Currently Listening: **SHOT** by *Lvbel C5* 🎶
 
 ---
 
-_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
+_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
 
 ---
