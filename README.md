@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
+_"The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings. — *Henry Ward Beecher*"_
 
 ---
