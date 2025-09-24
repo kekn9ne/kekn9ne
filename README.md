@@ -7,6 +7,6 @@
 
 ---
 
-_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
+_"May you live all the days of your life. — *Jonathan Swift*"_
 
 ---
