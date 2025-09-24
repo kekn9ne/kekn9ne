@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"We can see through others only when we can see through ourselves. — *Bruce Lee*"_
 
 ---
