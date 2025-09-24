@@ -7,6 +7,6 @@
 
 ---
 
-_"A person who does not read is no better than one cannot read. — *Earl Nightingale*"_
+_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
 
 ---
