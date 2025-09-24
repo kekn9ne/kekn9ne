@@ -7,6 +7,6 @@
 
 ---
 
-_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
+_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
 
 ---
