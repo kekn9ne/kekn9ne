@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no coming to consciousness without pain — *Carl Jung*"_
+_"What kills the creative force is not age or lack of talent, but our own spirit, our own attitude. — *Robert Greene*"_
 
 ---
