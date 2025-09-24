@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **trendyol** by *tibet* 🎶
+🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
 
 ---
 
-_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
+_"Make peace with your inner turmoil. — *Unknown*"_
 
 ---
