@@ -7,6 +7,6 @@
 
 ---
 
-_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
