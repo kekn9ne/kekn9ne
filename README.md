@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **nOrmaLE** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
+_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
 
 ---
