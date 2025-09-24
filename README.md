@@ -7,6 +7,6 @@
 
 ---
 
-_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
+_"Only the educated are free. — *Epictetus*"_
 
 ---
