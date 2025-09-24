@@ -7,6 +7,6 @@
 
 ---
 
-_"We are like islands in the sea, separate on the surface but connected in the deep. — *William James*"_
+_"Men trust their ears less than their eyes. — *Herodotus*"_
 
 ---
