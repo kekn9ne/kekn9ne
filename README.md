@@ -7,6 +7,6 @@
 
 ---
 
-_"Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine. — *Zen Proverb*"_
+_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
 
 ---
