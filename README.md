@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can laugh, I can live. — *Christopher Reeve*"_
+_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
 
 ---
