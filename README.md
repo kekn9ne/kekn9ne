@@ -7,6 +7,6 @@
 
 ---
 
-_"Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now. — *Ralph Marston*"_
+_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
 
 ---
