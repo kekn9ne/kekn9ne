@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
+_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
 
 ---
