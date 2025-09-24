@@ -7,6 +7,6 @@
 
 ---
 
-_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
+_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
 
 ---
