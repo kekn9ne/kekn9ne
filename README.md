@@ -7,6 +7,6 @@
 
 ---
 
-_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
+_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
 
 ---
