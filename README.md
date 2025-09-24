@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"A person who does not read is no better than one cannot read. — *Earl Nightingale*"_
 
 ---
