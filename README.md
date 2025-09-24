@@ -7,6 +7,6 @@
 
 ---
 
-_"The very essence of instinct is that it's followed independently of reason. — *Charles Darwin*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
