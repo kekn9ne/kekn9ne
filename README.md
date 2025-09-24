@@ -7,6 +7,6 @@
 
 ---
 
-_"We can see through others only when we can see through ourselves. — *Bruce Lee*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
