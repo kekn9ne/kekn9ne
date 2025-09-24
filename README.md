@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 September 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Behzat ç 2.0** by *Dethron* 🎶
+🎧 Currently Listening: **A.A.K - EMR3YGUL Remix Remix** by *Cato* 🎶
 
 ---
 
-_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
