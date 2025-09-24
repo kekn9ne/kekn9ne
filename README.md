@@ -7,6 +7,6 @@
 
 ---
 
-_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
