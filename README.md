@@ -7,6 +7,6 @@
 
 ---
 
-_"The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings. — *Henry Ward Beecher*"_
+_"If you don't program yourself, life will program you. — *Les Brown*"_
 
 ---
