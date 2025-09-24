@@ -7,6 +7,6 @@
 
 ---
 
-_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
+_"Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine. — *Zen Proverb*"_
 
 ---
