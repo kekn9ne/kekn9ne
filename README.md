@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are always looking for opportunities to help others. Unsuccessful people are always asking, 'What's in it for me?' — *Brian Tracy*"_
+_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
 
 ---
