@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
 
 ---
