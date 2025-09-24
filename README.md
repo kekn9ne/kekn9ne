@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't program yourself, life will program you. — *Les Brown*"_
+_"The golden opportunity you are seeking is within yourself. — *Mary Engelbreit*"_
 
 ---
