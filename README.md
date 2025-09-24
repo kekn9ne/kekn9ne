@@ -7,6 +7,6 @@
 
 ---
 
-_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
