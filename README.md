@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +25°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Eczane** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Zen insists that the whole trouble is just our failure to realize that there is no problem. — *Bruce Lee*"_
+_"Do not look upon this world with fear and loathing. Bravely face whatever the gods offer. — *Morihei Ueshiba*"_
 
 ---
