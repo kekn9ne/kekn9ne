@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is the key to success; each mistake teaches us something. — *Morihei Ueshiba*"_
+_"Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. — *Helen Keller*"_
 
 ---
