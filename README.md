@@ -7,6 +7,6 @@
 
 ---
 
-_"Numbing the pain for a while will make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time. — *Dan Millman*"_
 
 ---
