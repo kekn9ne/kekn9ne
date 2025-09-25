@@ -7,6 +7,6 @@
 
 ---
 
-_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
