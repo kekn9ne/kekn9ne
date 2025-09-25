@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
+_"Those who know, do. Those that understand, teach. — *Aristotle*"_
 
 ---
