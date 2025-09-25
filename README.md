@@ -7,6 +7,6 @@
 
 ---
 
-_"What you become is far more important than what you get. — *Jim Rohn*"_
+_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
 
 ---
