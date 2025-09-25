@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind is infinite, it's your doubts that are limiting. — *Robert Kiyosaki*"_
+_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
 
 ---
