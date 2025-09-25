@@ -7,6 +7,6 @@
 
 ---
 
-_"Invisible things are the only realities. — *Edgar Allan Poe*"_
+_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
 
 ---
