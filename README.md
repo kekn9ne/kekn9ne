@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
