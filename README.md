@@ -7,6 +7,6 @@
 
 ---
 
-_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
