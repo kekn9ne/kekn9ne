@@ -7,6 +7,6 @@
 
 ---
 
-_"Not why the addiction but why the pain. — *Gabor Mate*"_
+_"If you want to keep your memories, you first have to live them. — *Bob Dylan*"_
 
 ---
