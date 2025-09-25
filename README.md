@@ -7,6 +7,6 @@
 
 ---
 
-_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
+_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
 
 ---
