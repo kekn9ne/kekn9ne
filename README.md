@@ -7,6 +7,6 @@
 
 ---
 
-_"Stay away from people who makes you feel like you are wasting their time. — *Paulo Coelho*"_
+_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
 
 ---
