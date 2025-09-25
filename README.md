@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABV** by *Lvbel C5* 🎶
+🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
 
 ---
 
-_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
+_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
 
 ---
