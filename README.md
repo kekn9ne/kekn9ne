@@ -7,6 +7,6 @@
 
 ---
 
-_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
+_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
 
 ---
