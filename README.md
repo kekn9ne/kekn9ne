@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a difference between giving directions and giving direction. — *Simon Sinek*"_
+_"Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — *Marcus Aurelius*"_
 
 ---
