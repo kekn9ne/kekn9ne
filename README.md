@@ -7,6 +7,6 @@
 
 ---
 
-_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
+_"Whether you have a problem in your life or not depends upon your own attitude, your own understanding. — *Shunryu Suzuki*"_
 
 ---
