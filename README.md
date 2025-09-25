@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. — *Helen Keller*"_
+_"Whenever people agree with me I always feel I must be wrong. — *Oscar Wilde*"_
 
 ---
