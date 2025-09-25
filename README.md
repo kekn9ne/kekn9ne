@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
+_"Never lose hope. Storms make people stronger and never last forever. — *Roy T. Bennett*"_
 
 ---
