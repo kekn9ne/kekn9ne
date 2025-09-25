@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **fıs?** by *KAVAK* 🎶
 
 ---
 
-_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
+_"The scariest moment is always just before you start. After that, things can only get better. — *Stephen King*"_
 
 ---
