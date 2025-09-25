@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
+_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
 
 ---
