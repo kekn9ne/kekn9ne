@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
+_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
 
 ---
