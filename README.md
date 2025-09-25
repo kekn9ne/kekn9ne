@@ -7,6 +7,6 @@
 
 ---
 
-_"To belittle, you have to be little. — *Kahlil Gibran*"_
+_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
 
 ---
