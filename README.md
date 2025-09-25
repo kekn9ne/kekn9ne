@@ -7,6 +7,6 @@
 
 ---
 
-_"Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth. — *Henry David Thoreau*"_
+_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
 
 ---
