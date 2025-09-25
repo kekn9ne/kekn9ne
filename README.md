@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
 
 ---
