@@ -7,6 +7,6 @@
 
 ---
 
-_"It is dangerous to be right in matters on which the established authorities are wrong. — *Voltaire*"_
+_"Write to help yourself, publish to help others. — *Jack Butcher*"_
 
 ---
