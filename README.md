@@ -7,6 +7,6 @@
 
 ---
 
-_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
+_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
 
 ---
