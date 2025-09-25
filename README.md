@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **16-24** by *Wegh* 🎶
+🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
 
 ---
 
-_"The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone.  — *Orison Swett Marden*"_
+_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
 
 ---
