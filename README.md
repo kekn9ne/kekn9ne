@@ -7,6 +7,6 @@
 
 ---
 
-_"Question everything. Learn something. Answer nothing. — *Euripides*"_
+_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
 
 ---
