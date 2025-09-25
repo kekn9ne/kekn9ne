@@ -7,6 +7,6 @@
 
 ---
 
-_"Never lose hope. Storms make people stronger and never last forever. — *Roy T. Bennett*"_
+_"Make your life a mission - not an intermission. — *Unknown*"_
 
 ---
