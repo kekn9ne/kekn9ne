@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
+_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
 
 ---
