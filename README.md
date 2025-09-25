@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
+_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
 
 ---
