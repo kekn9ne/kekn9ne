@@ -7,6 +7,6 @@
 
 ---
 
-_"The only real mistake is the one from which we learn nothing.  — *Henry Ford*"_
+_"What you become is far more important than what you get. — *Jim Rohn*"_
 
 ---
