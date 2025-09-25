@@ -7,6 +7,6 @@
 
 ---
 
-_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
+_"Failure is the key to success; each mistake teaches us something. — *Morihei Ueshiba*"_
 
 ---
