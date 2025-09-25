@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is within the reach of just about everyone. — *Lolly Daskal*"_
+_"Fashion fades, only style remains the same. — *Coco Chanel*"_
 
 ---
