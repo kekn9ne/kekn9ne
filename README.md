@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
+_"FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours. — *Zig Ziglar*"_
 
 ---
