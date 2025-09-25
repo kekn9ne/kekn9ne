@@ -7,6 +7,6 @@
 
 ---
 
-_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
+_"Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth. — *Henry David Thoreau*"_
 
 ---
