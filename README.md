@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
+_"You can only be afraid of what you think you know. — *Jiddu Krishnamurti*"_
 
 ---
