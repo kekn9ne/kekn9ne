@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your life a mission - not an intermission. — *Unknown*"_
+_"Not why the addiction but why the pain. — *Gabor Mate*"_
 
 ---
