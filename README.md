@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing ever goes away until it has taught us what we need to know. — *Pema Chodron*"_
+_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
 
 ---
