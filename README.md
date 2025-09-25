@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be the scariest and most beautiful thing simultaneously. — *Maxime Lagace*"_
+_"Invisible things are the only realities. — *Edgar Allan Poe*"_
 
 ---
