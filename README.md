@@ -7,6 +7,6 @@
 
 ---
 
-_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
+_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
 
 ---
