@@ -7,6 +7,6 @@
 
 ---
 
-_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
+_"Shoot for the moon, because even if you miss, you'll land among the stars. — *Les Brown*"_
 
 ---
