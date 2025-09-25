@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"Life is what happens to you while you're busy making other plans. — *John Lennon*"_
 
 ---
