@@ -7,6 +7,6 @@
 
 ---
 
-_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
+_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
 
 ---
