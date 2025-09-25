@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
+🎧 Currently Listening: **I WANNA DANCE** by *Batuflex* 🎶
 
 ---
 
-_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
+_"Either write something worth reading or do something worth writing. — *Benjamin Franklin*"_
 
 ---
