@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
+_"Stay away from people who makes you feel like you are wasting their time. — *Paulo Coelho*"_
 
 ---
