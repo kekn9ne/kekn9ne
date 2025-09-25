@@ -7,6 +7,6 @@
 
 ---
 
-_"Fashion fades, only style remains the same. — *Coco Chanel*"_
+_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
 
 ---
