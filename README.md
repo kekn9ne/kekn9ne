@@ -7,6 +7,6 @@
 
 ---
 
-_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
+_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
 
 ---
