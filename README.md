@@ -7,6 +7,6 @@
 
 ---
 
-_"Kindness is a language which the deaf can hear and the blind can see. — *Mark Twain*"_
+_"We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities. — *Josh Waitzkin*"_
 
 ---
