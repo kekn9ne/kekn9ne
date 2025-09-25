@@ -7,6 +7,6 @@
 
 ---
 
-_"To be calm is the highest achievement of the self. — *Zen Proverb*"_
+_"It is dangerous to be right in matters on which the established authorities are wrong. — *Voltaire*"_
 
 ---
