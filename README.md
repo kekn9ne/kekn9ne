@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 September 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
 
 ---
 
-_"Life is what happens to you while you're busy making other plans. — *John Lennon*"_
+_"Nothing ever goes away until it has taught us what we need to know. — *Pema Chodron*"_
 
 ---
