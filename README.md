@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **NASCAR 2** by *Kuty* 🎶
 
 ---
 
-_"Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — *Marcus Aurelius*"_
+_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
 
 ---
