@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
+_"Kindness is a language which the deaf can hear and the blind can see. — *Mark Twain*"_
 
 ---
