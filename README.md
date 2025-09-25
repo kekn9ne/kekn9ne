@@ -7,6 +7,6 @@
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"Help others and give something back. — *Arnold Schwarzenegger*"_
 
 ---
