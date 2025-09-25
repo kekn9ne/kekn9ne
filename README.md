@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"To be calm is the highest achievement of the self. — *Zen Proverb*"_
 
 ---
