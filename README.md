@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to keep your memories, you first have to live them. — *Bob Dylan*"_
+_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
 
 ---
