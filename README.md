@@ -7,6 +7,6 @@
 
 ---
 
-_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
