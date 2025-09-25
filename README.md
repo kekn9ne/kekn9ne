@@ -7,6 +7,6 @@
 
 ---
 
-_"The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time. — *Dan Millman*"_
+_"There is a difference between giving directions and giving direction. — *Simon Sinek*"_
 
 ---
