@@ -7,6 +7,6 @@
 
 ---
 
-_"One small positive thought can change your whole day. — *Zig Ziglar*"_
+_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
 
 ---
