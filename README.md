@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
+_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
 
 ---
