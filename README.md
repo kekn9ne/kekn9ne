@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
