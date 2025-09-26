@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest in reason; move in passion. — *Kahlil Gibran*"_
+_"It is better to learn late than never. — *Publilius Syrus*"_
 
 ---
