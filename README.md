@@ -7,6 +7,6 @@
 
 ---
 
-_"Every defeat, every heartbreak every loss, contains its own seed, its own lesson on how to improve your performance the next time. — *Og Mandino*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
