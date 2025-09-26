@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
+🎧 Currently Listening: **POZ VERDİM** by *D-azy* 🎶
 
 ---
 
-_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
+_"The whole is greater than the sum of its parts. — *Aristotle*"_
 
 ---
