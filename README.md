@@ -7,6 +7,6 @@
 
 ---
 
-_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
+_"For fast-acting relief try slowing down. — *Lily Tomlin*"_
 
 ---
