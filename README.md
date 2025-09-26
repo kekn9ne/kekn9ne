@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
+🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
 
 ---
 
-_"Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — *Morihei Ueshiba*"_
+_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
 
 ---
