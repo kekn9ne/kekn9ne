@@ -7,6 +7,6 @@
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
 
 ---
