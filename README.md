@@ -7,6 +7,6 @@
 
 ---
 
-_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
+_"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means. — *Ronald Reagan*"_
 
 ---
