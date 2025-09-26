@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
+🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
 
 ---
 
-_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
+_"Men go to far greater lengths to avoid what they fear than to obtain what they desire. — *Dan Brown*"_
 
 ---
