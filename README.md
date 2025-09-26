@@ -7,6 +7,6 @@
 
 ---
 
-_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
+_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
 
 ---
