@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be so open-minded that your brains fall out. — *Gilbert Chesterton*"_
+_"Not why the addiction but why the pain. — *Gabor Mate*"_
 
 ---
