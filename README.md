@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
+_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
 
 ---
