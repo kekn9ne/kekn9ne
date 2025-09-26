@@ -7,6 +7,6 @@
 
 ---
 
-_"Every second you have on this planet is very precious and it's your responsibility that you're happy. — *Naval Ravikant*"_
+_"To arrive at the simplest truth requires years of contemplation. — *Isaac Newton*"_
 
 ---
