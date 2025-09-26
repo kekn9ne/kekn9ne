@@ -7,6 +7,6 @@
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
 
 ---
