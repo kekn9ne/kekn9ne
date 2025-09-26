@@ -7,6 +7,6 @@
 
 ---
 
-_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
+_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
 
 ---
