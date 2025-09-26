@@ -7,6 +7,6 @@
 
 ---
 
-_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
+_"There are people who have money and people who are rich. — *Coco Chanel*"_
 
 ---
