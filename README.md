@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
+_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
 
 ---
