@@ -7,6 +7,6 @@
 
 ---
 
-_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
+_"One small positive thought can change your whole day. — *Zig Ziglar*"_
 
 ---
