@@ -7,6 +7,6 @@
 
 ---
 
-_"For fast-acting relief try slowing down. — *Lily Tomlin*"_
+_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
 
 ---
