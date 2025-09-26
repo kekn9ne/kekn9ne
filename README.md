@@ -7,6 +7,6 @@
 
 ---
 
-_"It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — *Albus Dumbledore*"_
+_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
 
 ---
