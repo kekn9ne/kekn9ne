@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
+_"Do not be so open-minded that your brains fall out. — *Gilbert Chesterton*"_
 
 ---
