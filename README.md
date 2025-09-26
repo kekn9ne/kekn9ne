@@ -7,6 +7,6 @@
 
 ---
 
-_"Champions keep playing until they get it right. — *Billie Jean King*"_
+_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
 
 ---
