@@ -7,6 +7,6 @@
 
 ---
 
-_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
+_"Misfortune shows those who are not really friends. — *Aristotle*"_
 
 ---
