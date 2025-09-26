@@ -7,6 +7,6 @@
 
 ---
 
-_"There are people who have money and people who are rich. — *Coco Chanel*"_
+_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
 
 ---
