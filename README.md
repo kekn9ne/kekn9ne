@@ -7,6 +7,6 @@
 
 ---
 
-_"To arrive at the simplest truth requires years of contemplation. — *Isaac Newton*"_
+_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
 
 ---
