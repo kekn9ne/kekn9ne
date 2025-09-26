@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
+_"Judge your success by what you had to give up in order to get it. — *Dalai Lama*"_
 
 ---
