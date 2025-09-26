@@ -7,6 +7,6 @@
 
 ---
 
-_"The final mystery is oneself. — *Oscar Wilde*"_
+_"When something comes from within, when it is a part of you, you have no choice but to live it, to express it. — *Kamal Ravikant*"_
 
 ---
