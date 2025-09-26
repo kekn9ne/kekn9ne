@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **RS6** by *Era7capone* 🎶
+🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
 
 ---
