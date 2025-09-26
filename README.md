@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"Rest in reason; move in passion. — *Kahlil Gibran*"_
 
 ---
