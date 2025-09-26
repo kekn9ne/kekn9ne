@@ -7,6 +7,6 @@
 
 ---
 
-_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
+_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
 
 ---
