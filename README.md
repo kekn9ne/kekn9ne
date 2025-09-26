@@ -7,6 +7,6 @@
 
 ---
 
-_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
+_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
 
 ---
