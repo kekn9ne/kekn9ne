@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
+_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
 
 ---
