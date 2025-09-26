@@ -7,6 +7,6 @@
 
 ---
 
-_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
+_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
 
 ---
