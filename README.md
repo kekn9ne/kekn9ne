@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to learn late than never. — *Publilius Syrus*"_
+_"To be totally at leisure for one day is to be immortal for one day.  — *Chinese Proverb*"_
 
 ---
