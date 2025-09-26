@@ -7,6 +7,6 @@
 
 ---
 
-_"Judge your success by what you had to give up in order to get it. — *Dalai Lama*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
