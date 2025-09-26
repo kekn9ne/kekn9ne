@@ -7,6 +7,6 @@
 
 ---
 
-_"Life comes at us in waves. We can't predict or control those waves, but we can learn to surf. — *Dan Millman*"_
+_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
 
 ---
