@@ -7,6 +7,6 @@
 
 ---
 
-_"Memory is the scribe of the soul. — *Aristotle*"_
+_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
 
 ---
