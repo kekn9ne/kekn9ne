@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
 
 ---
