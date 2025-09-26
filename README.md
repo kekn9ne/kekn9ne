@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
+_"I'm an optimist by choice not by stupidity. — *Yanni*"_
 
 ---
