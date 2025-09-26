@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
