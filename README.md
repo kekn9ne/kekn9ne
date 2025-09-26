@@ -7,6 +7,6 @@
 
 ---
 
-_"Success comes from knowing that you did your best to become the best that you are capable of becoming. — *John Wooden*"_
+_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
 
 ---
