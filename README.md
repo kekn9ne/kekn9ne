@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
+_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
 
 ---
