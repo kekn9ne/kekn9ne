@@ -7,6 +7,6 @@
 
 ---
 
-_"We forge the chains we wear in life. — *Charles Dickens*"_
+_"Champions keep playing until they get it right. — *Billie Jean King*"_
 
 ---
