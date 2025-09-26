@@ -7,6 +7,6 @@
 
 ---
 
-_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
+_"It doesn't matter how much you want. What really matters is how much you want it. — *Ralph Marston*"_
 
 ---
