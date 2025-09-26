@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
+_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
 
 ---
