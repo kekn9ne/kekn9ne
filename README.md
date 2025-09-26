@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
