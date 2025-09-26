@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
+_"If you quit once it becomes a habit. — *Michael Jordan*"_
 
 ---
