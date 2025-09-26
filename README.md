@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
+_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
 
 ---
