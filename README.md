@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship takes time and energy if it's going to work. — *Betty White*"_
+_"The final mystery is oneself. — *Oscar Wilde*"_
 
 ---
