@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter how much you want. What really matters is how much you want it. — *Ralph Marston*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
