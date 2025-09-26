@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
+_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
 
 ---
