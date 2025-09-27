@@ -7,6 +7,6 @@
 
 ---
 
-_"Supreme excellence consists of breaking the enemy's resistance without fighting. — *Sun Tzu*"_
+_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
 
 ---
