@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
+_"Loving thoughts and actions are clearly beneficial for our physical and mental health. — *Dalai Lama*"_
 
 ---
