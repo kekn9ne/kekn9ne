@@ -7,6 +7,6 @@
 
 ---
 
-_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
