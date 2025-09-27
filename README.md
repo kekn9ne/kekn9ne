@@ -7,6 +7,6 @@
 
 ---
 
-_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
+_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
 
 ---
