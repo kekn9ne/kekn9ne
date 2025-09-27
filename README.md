@@ -7,6 +7,6 @@
 
 ---
 
-_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
+_"You can do nothing to change the past, and the future will never come exactly as you plan or hope for. — *Dan Millman*"_
 
 ---
