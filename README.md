@@ -7,6 +7,6 @@
 
 ---
 
-_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
