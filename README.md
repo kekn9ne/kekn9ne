@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **TNT** by *EGE!* 🎶
+🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
 
 ---
 
-_"The destiny of man is in his own soul.  — *Herodotus*"_
+_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
 
 ---
