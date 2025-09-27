@@ -7,6 +7,6 @@
 
 ---
 
-_"Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new. — *Brian Tracy*"_
+_"Time you enjoy wasting, was not wasted. — *John Lennon*"_
 
 ---
