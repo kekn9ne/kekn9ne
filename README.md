@@ -7,6 +7,6 @@
 
 ---
 
-_"Any fool can paint a picture, but it takes a wise man to be able to sell it. — *Samuel Butler*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
