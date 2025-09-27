@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **jordan logosu** by *EGE!* 🎶
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
+_"We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities. — *Josh Waitzkin*"_
 
 ---
