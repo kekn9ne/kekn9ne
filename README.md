@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what happens to you, but how you react to it that matters. — *Epictetus*"_
+_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
 
 ---
