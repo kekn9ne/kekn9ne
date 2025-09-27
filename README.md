@@ -7,6 +7,6 @@
 
 ---
 
-_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
+_"Everything is in your own heart. — *Thich Nhat Hanh*"_
 
 ---
