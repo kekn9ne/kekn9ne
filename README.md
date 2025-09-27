@@ -7,6 +7,6 @@
 
 ---
 
-_"No amount of regretting can change the past, and no amount of worrying can change the future. — *Roy T. Bennett*"_
+_"Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. — *Earl Nightingale*"_
 
 ---
