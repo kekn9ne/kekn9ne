@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
 
 ---
 
-_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
+_"Life without love is like a tree without blossoms or fruit. — *Kahlil Gibran*"_
 
 ---
