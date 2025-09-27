@@ -7,6 +7,6 @@
 
 ---
 
-_"Thoughts become things. If you see it in your mind, you will hold it in your hand. — *Bob Proctor*"_
+_"Keep your dreams, you never know when you might need them. — *Carlos Ruiz Zafon*"_
 
 ---
