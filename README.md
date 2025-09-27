@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
 
 ---
