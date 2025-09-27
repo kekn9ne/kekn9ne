@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your dreams, you never know when you might need them. — *Carlos Ruiz Zafon*"_
+_"Supreme excellence consists of breaking the enemy's resistance without fighting. — *Sun Tzu*"_
 
 ---
