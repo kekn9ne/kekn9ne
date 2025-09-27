@@ -7,6 +7,6 @@
 
 ---
 
-_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
+_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
 
 ---
