@@ -7,6 +7,6 @@
 
 ---
 
-_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
+_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
 
 ---
