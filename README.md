@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is in your own heart. — *Thich Nhat Hanh*"_
+_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
 
 ---
