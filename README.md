@@ -7,6 +7,6 @@
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
