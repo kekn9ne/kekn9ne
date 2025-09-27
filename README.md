@@ -7,6 +7,6 @@
 
 ---
 
-_"Where words fail, music speaks. — *Hans Christian Andersen*"_
+_"The goal is not to be perfect by the end, the goal is to be better today. — *Simon Sinek*"_
 
 ---
