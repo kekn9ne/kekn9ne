@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
 
 ---
