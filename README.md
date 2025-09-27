@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do your best. What you plant now, you will harvest later. — *Og Mandino*"_
+_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
 
 ---
