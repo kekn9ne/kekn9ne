@@ -7,6 +7,6 @@
 
 ---
 
-_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
+_"All cruelty springs from weakness.   — *Seneca*"_
 
 ---
