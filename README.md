@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Any fool can paint a picture, but it takes a wise man to be able to sell it. — *Samuel Butler*"_
 
 ---
