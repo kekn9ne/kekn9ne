@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
+🎧 Currently Listening: **take it back** by *Yung Kyoto* 🎶
 
 ---
 
-_"Life without love is like a tree without blossoms or fruit. — *Kahlil Gibran*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
