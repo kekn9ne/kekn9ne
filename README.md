@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what you can, with what you have, where you are. — *Theodore Roosevelt*"_
+_"People think you're crazy if you talk about things they don't understand. — *Elvis Presley*"_
 
 ---
