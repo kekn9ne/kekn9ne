@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"Laziness may appear attractive, but work gives satisfaction. — *Anne Frank*"_
 
 ---
