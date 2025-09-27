@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
+_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
 
 ---
