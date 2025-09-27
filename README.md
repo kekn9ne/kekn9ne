@@ -7,6 +7,6 @@
 
 ---
 
-_"People think you're crazy if you talk about things they don't understand. — *Elvis Presley*"_
+_"The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less. — *Dan Millman*"_
 
 ---
