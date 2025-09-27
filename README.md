@@ -7,6 +7,6 @@
 
 ---
 
-_"Only the educated are free. — *Epictetus*"_
+_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
 
 ---
