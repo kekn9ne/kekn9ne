@@ -7,6 +7,6 @@
 
 ---
 
-_"With the new day comes new strength and new thoughts. — *Eleanor Roosevelt*"_
+_"It's not what happens to you, but how you react to it that matters. — *Epictetus*"_
 
 ---
