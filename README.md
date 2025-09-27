@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
+_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
 
 ---
