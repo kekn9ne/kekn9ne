@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
+_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
 
 ---
