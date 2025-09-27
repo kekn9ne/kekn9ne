@@ -7,6 +7,6 @@
 
 ---
 
-_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
