@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
+_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
 
 ---
