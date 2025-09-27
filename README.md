@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
+_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
 
 ---
