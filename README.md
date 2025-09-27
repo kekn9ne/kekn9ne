@@ -7,6 +7,6 @@
 
 ---
 
-_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
+_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
 
 ---
