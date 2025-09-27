@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
 
 ---
