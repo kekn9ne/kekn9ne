@@ -7,6 +7,6 @@
 
 ---
 
-_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
+_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
 
 ---
