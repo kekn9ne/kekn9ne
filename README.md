@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
+_"Thoughts become things. If you see it in your mind, you will hold it in your hand. — *Bob Proctor*"_
 
 ---
