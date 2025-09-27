@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
+🎧 Currently Listening: **Üçe Beşe Bakamam** by *Ben Fero* 🎶
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight. — *Benjamin Franklin*"_
 
 ---
