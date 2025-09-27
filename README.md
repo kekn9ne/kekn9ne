@@ -7,6 +7,6 @@
 
 ---
 
-_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
+_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
 
 ---
