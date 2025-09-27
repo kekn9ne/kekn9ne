@@ -7,6 +7,6 @@
 
 ---
 
-_"We're responsible for everything that happens to us. — *Yanni*"_
+_"There's no next time. It's now or never. — *Celestine Chua*"_
 
 ---
