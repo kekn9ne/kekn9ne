@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hako Diyorlar 2.0** by *Montana suian* 🎶
 
 ---
 
-_"Deliberately seek the company of people who influence you to think and act on building the life you desire. — *Napoleon Hill*"_
+_"No kind action ever stops with itself. One kind action leads to another. Good example is followed. — *Amelia Earhart*"_
 
 ---
