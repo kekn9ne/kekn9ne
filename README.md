@@ -7,6 +7,6 @@
 
 ---
 
-_"Beware of false knowledge, it is more dangerous than ignorance. — *George Bernard Shaw*"_
+_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
 
 ---
