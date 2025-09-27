@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
+_"Do what you can, with what you have, where you are. — *Theodore Roosevelt*"_
 
 ---
