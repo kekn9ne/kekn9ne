@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
+_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
 
 ---
