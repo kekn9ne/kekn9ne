@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't tell big dreams to small minded people. — *Steve Harvey*"_
+_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
 
 ---
