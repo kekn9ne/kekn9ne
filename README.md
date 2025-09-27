@@ -7,6 +7,6 @@
 
 ---
 
-_"The first step toward getting somewhere is to decide that you are not going to stay where you are. — *Unknown*"_
+_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
 
 ---
