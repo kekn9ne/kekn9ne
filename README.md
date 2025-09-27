@@ -7,6 +7,6 @@
 
 ---
 
-_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
+_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
 
 ---
