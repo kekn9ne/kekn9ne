@@ -7,6 +7,6 @@
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
 
 ---
