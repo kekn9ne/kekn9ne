@@ -7,6 +7,6 @@
 
 ---
 
-_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
