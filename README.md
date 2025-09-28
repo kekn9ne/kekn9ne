@@ -7,6 +7,6 @@
 
 ---
 
-_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
+_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
 
 ---
