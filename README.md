@@ -7,6 +7,6 @@
 
 ---
 
-_"The first rule of handling conflict is don't hang around people who are constantly engaging in conflict. — *Naval Ravikant*"_
+_"Find the game where you can win, and then commit your life to playing it; and play to win. — *Robert Kiyosaki*"_
 
 ---
