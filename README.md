@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
