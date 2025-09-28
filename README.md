@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
