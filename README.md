@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
