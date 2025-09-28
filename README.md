@@ -7,6 +7,6 @@
 
 ---
 
-_"Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot. — *D. H. Lawrence*"_
+_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
 
 ---
