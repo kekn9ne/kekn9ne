@@ -7,6 +7,6 @@
 
 ---
 
-_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
+_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
 
 ---
