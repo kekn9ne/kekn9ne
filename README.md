@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 28 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Altımda Volkswagen GT - Remix** by *kayax19* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don´t hesitate or allow yourself to make excuses. Just get out and do it. — *Christopher McCandless*"_
+_"Goodness is the only investment that never fails. — *Henry David Thoreau*"_
 
 ---
