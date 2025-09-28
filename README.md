@@ -7,6 +7,6 @@
 
 ---
 
-_"It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — *Albus Dumbledore*"_
+_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
 
 ---
