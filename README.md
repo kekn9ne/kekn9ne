@@ -7,6 +7,6 @@
 
 ---
 
-_"Every strike brings me closer to the next home run.  — *Babe Ruth*"_
+_"Who you are is always right. — *Ming-Dao Deng*"_
 
 ---
