@@ -7,6 +7,6 @@
 
 ---
 
-_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
