@@ -7,6 +7,6 @@
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"Don't let the past steal your present. — *Cherralea Morgen*"_
 
 ---
