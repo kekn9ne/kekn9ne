@@ -7,6 +7,6 @@
 
 ---
 
-_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
