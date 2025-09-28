@@ -7,6 +7,6 @@
 
 ---
 
-_"The decisions of our past are the architects of our present. — *Dan Brown*"_
+_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
 
 ---
