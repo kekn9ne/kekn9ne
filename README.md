@@ -7,6 +7,6 @@
 
 ---
 
-_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
+_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
 
 ---
