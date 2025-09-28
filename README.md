@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost.  — *Franz Kafka*"_
+_"What the mind can conceive and believe, and the heart desire, you can achieve. — *Norman Vincent Peale*"_
 
 ---
