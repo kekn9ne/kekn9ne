@@ -7,6 +7,6 @@
 
 ---
 
-_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
+_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
 
 ---
