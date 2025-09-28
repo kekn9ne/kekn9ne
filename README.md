@@ -7,6 +7,6 @@
 
 ---
 
-_"Wrong turns are as important as right turns. More important, sometimes. — *Richard Bach*"_
+_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
 
 ---
