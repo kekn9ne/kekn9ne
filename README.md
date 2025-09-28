@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
+_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
 
 ---
