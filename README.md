@@ -7,6 +7,6 @@
 
 ---
 
-_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
