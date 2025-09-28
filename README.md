@@ -7,6 +7,6 @@
 
 ---
 
-_"Where words fail, music speaks. — *Hans Christian Andersen*"_
+_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
 
 ---
