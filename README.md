@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you lose yourself in something bigger than yourself, the more energy you will have. — *Norman Vincent Peale*"_
+_"Children are our greatest natural resource. — *Herbert Hoover*"_
 
 ---
