@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
+_"Out of suffering have emerged the strongest souls; the most massive characters are seared with scars. — *Kahlil Gibran*"_
 
 ---
