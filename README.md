@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless someone truly has the power to say no, they never truly have the power to say yes. — *Dan Millman*"_
+_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
 
 ---
