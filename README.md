@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
+_"Every strike brings me closer to the next home run.  — *Babe Ruth*"_
 
 ---
