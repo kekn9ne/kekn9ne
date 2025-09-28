@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
+_"If a man knows not to which port he sails, no wind is favorable.   — *Seneca*"_
 
 ---
