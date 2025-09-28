@@ -7,6 +7,6 @@
 
 ---
 
-_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
+_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
 
 ---
