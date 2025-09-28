@@ -7,6 +7,6 @@
 
 ---
 
-_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
+_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
 
 ---
