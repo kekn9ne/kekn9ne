@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is always right. — *Ming-Dao Deng*"_
+_"Children are our greatest natural resource. — *Herbert Hoover*"_
 
 ---
