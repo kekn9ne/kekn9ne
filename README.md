@@ -7,6 +7,6 @@
 
 ---
 
-_"Goodness is the only investment that never fails. — *Henry David Thoreau*"_
+_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
 
 ---
