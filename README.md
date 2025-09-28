@@ -7,6 +7,6 @@
 
 ---
 
-_"Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next. — *Herbert Hoover*"_
+_"The decisions of our past are the architects of our present. — *Dan Brown*"_
 
 ---
