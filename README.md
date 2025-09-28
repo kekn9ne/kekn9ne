@@ -7,6 +7,6 @@
 
 ---
 
-_"Find the game where you can win, and then commit your life to playing it; and play to win. — *Robert Kiyosaki*"_
+_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
 
 ---
