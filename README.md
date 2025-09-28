@@ -7,6 +7,6 @@
 
 ---
 
-_"Children are our greatest natural resource. — *Herbert Hoover*"_
+_"Where words fail, music speaks. — *Hans Christian Andersen*"_
 
 ---
