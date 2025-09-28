@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let your mind stop you. — *Steve Harvey*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
