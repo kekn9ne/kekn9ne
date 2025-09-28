@@ -7,6 +7,6 @@
 
 ---
 
-_"An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold. — *Chinese Proverb*"_
+_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
 
 ---
