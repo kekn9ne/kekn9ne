@@ -7,6 +7,6 @@
 
 ---
 
-_"Children are our greatest natural resource. — *Herbert Hoover*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
