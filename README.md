@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
 
 ---
