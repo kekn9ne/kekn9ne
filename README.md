@@ -7,6 +7,6 @@
 
 ---
 
-_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
+_"A man is not called wise because he talks and talks again; but if he is peaceful, loving and fearless then he is in truth called wise.  — *Buddha*"_
 
 ---
