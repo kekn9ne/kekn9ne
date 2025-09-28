@@ -7,6 +7,6 @@
 
 ---
 
-_"Anything becomes interesting if you look at it long enough.. — *Gustave Flaubert*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
