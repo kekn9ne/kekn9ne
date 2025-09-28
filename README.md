@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
+_"Your time is limited, so don't waste it living someone elses. life. — *Steve Jobs*"_
 
 ---
