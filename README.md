@@ -7,6 +7,6 @@
 
 ---
 
-_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
+_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
 
 ---
