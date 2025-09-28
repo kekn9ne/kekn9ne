@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't what you do, but how you do it. — *John Wooden*"_
+_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
 
 ---
