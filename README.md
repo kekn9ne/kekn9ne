@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
 
 ---
