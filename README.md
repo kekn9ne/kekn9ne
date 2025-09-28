@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"It isn't what you do, but how you do it. — *John Wooden*"_
 
 ---
