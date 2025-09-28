@@ -7,6 +7,6 @@
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"Forget safety. Live where you fear to live. — *Rumi*"_
 
 ---
