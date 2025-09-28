@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"Anything becomes interesting if you look at it long enough.. — *Gustave Flaubert*"_
 
 ---
