@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who reads a book with a sense of obligation does not understand the art of reading. — *Lin Yutang*"_
+_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
 
 ---
