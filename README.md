@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **kum saati** by *EGE!* 🎶
+🎧 Currently Listening: **Nereden** by *Motive* 🎶
 
 ---
 
-_"Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window. — *Peter Drucker*"_
+_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
 
 ---
