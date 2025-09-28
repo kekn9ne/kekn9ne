@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
+_"It takes a great deal of bravery to stand up to our enemies, but just as much to stand up to our friends. — *Albus Dumbledore*"_
 
 ---
