@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
+_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
 
 ---
