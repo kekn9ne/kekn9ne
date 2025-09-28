@@ -7,6 +7,6 @@
 
 ---
 
-_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
+_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
 
 ---
