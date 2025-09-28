@@ -7,6 +7,6 @@
 
 ---
 
-_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
+_"You are free, and that is why you are lost.  — *Franz Kafka*"_
 
 ---
