@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. — *Steve Jobs*"_
+_"The first rule of handling conflict is don't hang around people who are constantly engaging in conflict. — *Naval Ravikant*"_
 
 ---
