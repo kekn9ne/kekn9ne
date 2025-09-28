@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
 
 ---
