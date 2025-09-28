@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
+_"The more we have the less we own. — *Meister Eckhart*"_
 
 ---
