@@ -7,6 +7,6 @@
 
 ---
 
-_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
+_"The more you lose yourself in something bigger than yourself, the more energy you will have. — *Norman Vincent Peale*"_
 
 ---
