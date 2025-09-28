@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
