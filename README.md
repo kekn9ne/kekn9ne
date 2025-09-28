@@ -7,6 +7,6 @@
 
 ---
 
-_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
+_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
 
 ---
