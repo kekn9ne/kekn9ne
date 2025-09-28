@@ -7,6 +7,6 @@
 
 ---
 
-_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
+_"Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next. — *Herbert Hoover*"_
 
 ---
