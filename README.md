@@ -7,6 +7,6 @@
 
 ---
 
-_"The more we have the less we own. — *Meister Eckhart*"_
+_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
 
 ---
