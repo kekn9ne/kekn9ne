@@ -7,6 +7,6 @@
 
 ---
 
-_"If a man knows not to which port he sails, no wind is favorable.   — *Seneca*"_
+_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
 
 ---
