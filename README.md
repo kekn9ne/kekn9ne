@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
+_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
 
 ---
