@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"Where words fail, music speaks. — *Hans Christian Andersen*"_
 
 ---
