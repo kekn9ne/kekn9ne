@@ -7,6 +7,6 @@
 
 ---
 
-_"The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now! — *Tony Robbins*"_
+_"Good things aren't supposed to just fall into your lap. — *Audrey Hepburn*"_
 
 ---
