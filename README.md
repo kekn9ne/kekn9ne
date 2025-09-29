@@ -7,6 +7,6 @@
 
 ---
 
-_"Realize deeply that the present moment is all you ever have.  — *Eckhart Tolle*"_
+_"If you want more luck, take more chances. — *Brian Tracy*"_
 
 ---
