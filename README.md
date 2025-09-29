@@ -7,6 +7,6 @@
 
 ---
 
-_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
+_"Live, travel, adventure, bless, and don't be sorry.   — *Jack Kerouac*"_
 
 ---
