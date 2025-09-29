@@ -7,6 +7,6 @@
 
 ---
 
-_"Mastering others is strength, mastering yourself is true power. — *Lao Tzu*"_
+_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
 
 ---
