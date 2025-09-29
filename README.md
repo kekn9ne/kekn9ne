@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man is guilty of all the good he did not do.  — *Voltaire*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
