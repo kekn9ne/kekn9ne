@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"If light is in your heart, you will find your way home.   — *Rumi*"_
 
 ---
