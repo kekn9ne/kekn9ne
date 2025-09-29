@@ -7,6 +7,6 @@
 
 ---
 
-_"Your worth consists in what you are and not in what you have. — *Thomas Edison*"_
+_"What worries you, masters you. — *John Locke*"_
 
 ---
