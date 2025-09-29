@@ -7,6 +7,6 @@
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
