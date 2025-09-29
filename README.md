@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
+_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
 
 ---
