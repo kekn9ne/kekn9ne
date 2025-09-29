@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
