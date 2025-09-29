@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
+_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
 
 ---
