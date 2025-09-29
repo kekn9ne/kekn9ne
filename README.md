@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **WE NEVER LOSE** by *Ardaflex* 🎶
 
 ---
 
-_"If you're brave enough to say goodbye, life will reward you with a new hello. — *Paulo Coelho*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
