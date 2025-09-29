@@ -7,6 +7,6 @@
 
 ---
 
-_"To wish you were someone else is to waste the person you are. — *Unknown*"_
+_"The way out is in. — *Thich Nhat Hanh*"_
 
 ---
