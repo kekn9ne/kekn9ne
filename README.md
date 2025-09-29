@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who learn more skills and combine them in creative ways. — *Robert Greene*"_
+_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
 
 ---
