@@ -7,6 +7,6 @@
 
 ---
 
-_"The way out is in. — *Thich Nhat Hanh*"_
+_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
 
 ---
