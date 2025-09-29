@@ -7,6 +7,6 @@
 
 ---
 
-_"Confuse them with your silence and amaze them with your actions. — *Unknown*"_
+_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
 
 ---
