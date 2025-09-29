@@ -7,6 +7,6 @@
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
 
 ---
