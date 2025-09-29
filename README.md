@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
+_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
 
 ---
