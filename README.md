@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
+_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
 
 ---
