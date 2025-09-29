@@ -7,6 +7,6 @@
 
 ---
 
-_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
+_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
 
 ---
