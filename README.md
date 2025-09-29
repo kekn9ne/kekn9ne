@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
+_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
 
 ---
