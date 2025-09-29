@@ -7,6 +7,6 @@
 
 ---
 
-_"Good things aren't supposed to just fall into your lap. — *Audrey Hepburn*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
