@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
+_"To wish you were someone else is to waste the person you are. — *Unknown*"_
 
 ---
