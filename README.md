@@ -7,6 +7,6 @@
 
 ---
 
-_"What worries you, masters you. — *John Locke*"_
+_"Empty yourself of everything - let the mind become still. — *Lao Tzu*"_
 
 ---
