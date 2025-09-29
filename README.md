@@ -7,6 +7,6 @@
 
 ---
 
-_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
+_"Those who are enlightened never stop forging themselves. — *Morihei Ueshiba*"_
 
 ---
