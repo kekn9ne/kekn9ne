@@ -7,6 +7,6 @@
 
 ---
 
-_"Where words fail, music speaks. — *Hans Christian Andersen*"_
+_"To be totally at leisure for one day is to be immortal for one day.  — *Chinese Proverb*"_
 
 ---
