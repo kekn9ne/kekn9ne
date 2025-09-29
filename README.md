@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **HUHU!** by *Batuflex* 🎶
+🎧 Currently Listening: **Yokuş** by *Heijan* 🎶
 
 ---
 
-_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
+_"Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.   — *Jack Kerouac*"_
 
 ---
