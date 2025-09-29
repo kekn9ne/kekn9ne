@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want more luck, take more chances. — *Brian Tracy*"_
+_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
 
 ---
