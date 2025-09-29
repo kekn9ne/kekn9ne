@@ -7,6 +7,6 @@
 
 ---
 
-_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
+_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
 
 ---
