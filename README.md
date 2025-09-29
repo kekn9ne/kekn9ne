@@ -7,6 +7,6 @@
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"Success on the outside means nothing unless you also have success within. — *Robin Sharma*"_
 
 ---
