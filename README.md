@@ -7,6 +7,6 @@
 
 ---
 
-_"Quality is not an act, it is a habit. — *Aristotle*"_
+_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
 
 ---
