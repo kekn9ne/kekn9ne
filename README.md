@@ -7,6 +7,6 @@
 
 ---
 
-_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
+_"Awaken. Take heed, do not squander your life. — *Dogen*"_
 
 ---
