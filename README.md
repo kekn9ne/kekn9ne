@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
 
 ---
