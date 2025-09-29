@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"All life is a manifestation of the spirit, the manifestation of love. — *Morihei Ueshiba*"_
 
 ---
