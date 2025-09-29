@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **🌦   +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İSTASYON** by *EGE!* 🎶
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"What you become is far more important than what you get. — *Jim Rohn*"_
 
 ---
