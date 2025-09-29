@@ -7,6 +7,6 @@
 
 ---
 
-_"Every traveler has a home of his own, and he learns to appreciate it the more from his wandering. — *Charles Dickens*"_
+_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
 
 ---
