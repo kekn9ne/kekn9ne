@@ -7,6 +7,6 @@
 
 ---
 
-_"All life is a manifestation of the spirit, the manifestation of love. — *Morihei Ueshiba*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
