@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Yokuş** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.   — *Jack Kerouac*"_
+_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
 
 ---
