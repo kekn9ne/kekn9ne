@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
+_"I must also have a dark side if I am to be whole. — *Carl Jung*"_
 
 ---
