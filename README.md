@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Esnettim** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A needle is not sharp at both ends.  — *Chinese Proverb*"_
+_"Confuse them with your silence and amaze them with your actions. — *Unknown*"_
 
 ---
