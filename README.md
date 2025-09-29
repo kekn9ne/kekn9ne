@@ -7,6 +7,6 @@
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
 
 ---
