@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
 
 ---
