@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"If you're brave enough to say goodbye, life will reward you with a new hello. — *Paulo Coelho*"_
 
 ---
