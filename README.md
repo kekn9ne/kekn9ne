@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Eczane** by *EGE!* 🎶
+🎧 Currently Listening: **HUHU!** by *Batuflex* 🎶
 
 ---
 
-_"Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. — *Deepak Chopra*"_
+_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
 
 ---
