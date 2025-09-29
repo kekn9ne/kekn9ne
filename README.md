@@ -7,6 +7,6 @@
 
 ---
 
-_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
+_"Your worth consists in what you are and not in what you have. — *Thomas Edison*"_
 
 ---
