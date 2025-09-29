@@ -7,6 +7,6 @@
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"Create each day anew. — *Morihei Ueshiba*"_
 
 ---
