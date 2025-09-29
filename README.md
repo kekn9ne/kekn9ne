@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
+_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
 
 ---
