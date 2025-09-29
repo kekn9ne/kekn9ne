@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
+_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
 
 ---
