@@ -7,6 +7,6 @@
 
 ---
 
-_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
+_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
 
 ---
