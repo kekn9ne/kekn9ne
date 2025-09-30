@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are going to achieve excellence in big things, you develop the habit in little matters. — *Colin Powell*"_
+_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
 
 ---
