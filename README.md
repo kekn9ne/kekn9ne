@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing more frustrating than slanderers is those foolish enough to listen to them. — *Criss Jami*"_
+_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
 
 ---
