@@ -7,6 +7,6 @@
 
 ---
 
-_"Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner. — *Sonia Ricotti*"_
+_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
 
 ---
