@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
