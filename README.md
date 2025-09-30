@@ -7,6 +7,6 @@
 
 ---
 
-_"To escape from the world means that one's mind is not concerned with the opinions of the world. — *Dogen*"_
+_"Thought is so cunning, so clever, that it distorts everything for its own convenience. — *Jiddu Krishnamurti*"_
 
 ---
