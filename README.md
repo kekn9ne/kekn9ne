@@ -7,6 +7,6 @@
 
 ---
 
-_"Action is the foundational key to all success. — *Pablo Picasso*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
