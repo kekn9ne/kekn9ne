@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be one person in this world, but to one person you may mean the world. — *Unknown*"_
+_"You have the ability, now apply yourself. — *Benjamin Mays*"_
 
 ---
