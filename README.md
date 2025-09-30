@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: **YAPAR MISIN?** by *Poizi* 🎶
 
 ---
 
-_"Never doubt that a small group of thoughtful, committed citizens can change the world; indeed, it's the only thing that ever has. — *Margaret Mead*"_
+_"Don't stumble over something that's behind you. — *Steve Harvey*"_
 
 ---
