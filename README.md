@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse. — *Alfred Adler*"_
+_"A man should do his job so well that the living, the dead, and the unborn could do it no better. — *Martin Luther King, Jr.*"_
 
 ---
