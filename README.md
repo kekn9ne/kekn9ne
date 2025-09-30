@@ -7,6 +7,6 @@
 
 ---
 
-_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
+_"Simplicity is the glory of expression. — *Walt Whitman*"_
 
 ---
