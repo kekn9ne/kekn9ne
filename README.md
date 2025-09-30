@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **pr** by *Muti* 🎶
+🎧 Currently Listening: **SAFI / TMM** by *DJEZJA* 🎶
 
 ---
 
-_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
+_"You only live once, but if you do it right, once is enough. — *Mae West*"_
 
 ---
