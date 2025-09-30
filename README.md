@@ -7,6 +7,6 @@
 
 ---
 
-_"Enlightenment is intimacy with all things. — *Dogen*"_
+_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
 
 ---
