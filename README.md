@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
+_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
 
 ---
