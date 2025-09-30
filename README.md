@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a vision. Be demanding. — *Colin Powell*"_
+_"To escape from the world means that one's mind is not concerned with the opinions of the world. — *Dogen*"_
 
 ---
