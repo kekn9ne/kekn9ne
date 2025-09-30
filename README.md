@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
+_"Action is the foundational key to all success. — *Pablo Picasso*"_
 
 ---
