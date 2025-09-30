@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"Some people don't like change, but you need to embrace change if the alternative is disaster. — *Elon Musk*"_
 
 ---
