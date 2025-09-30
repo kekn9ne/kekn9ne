@@ -7,6 +7,6 @@
 
 ---
 
-_"I have never in my life learned anything from any man who agreed with me. — *Dudley Field Malone*"_
+_"In the middle of difficulty lies opportunity. — *Albert Einstein*"_
 
 ---
