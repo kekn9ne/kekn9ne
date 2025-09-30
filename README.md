@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
+_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
 
 ---
