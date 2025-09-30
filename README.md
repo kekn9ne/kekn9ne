@@ -7,6 +7,6 @@
 
 ---
 
-_"No one has ever become poor by giving. — *Anne Frank*"_
+_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
 
 ---
