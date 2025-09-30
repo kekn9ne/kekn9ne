@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire for the fruits of work must never be your motive in working. — *Bhagavad Gita*"_
+_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
 
 ---
