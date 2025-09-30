@@ -7,6 +7,6 @@
 
 ---
 
-_"The truly rich men are the ones who have health, loved ones and a work they love. — *Maxime Lagace*"_
+_"The very essence of instinct is that it's followed independently of reason. — *Charles Darwin*"_
 
 ---
