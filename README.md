@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
+_"Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. — *Thich Nhat Hanh*"_
 
 ---
