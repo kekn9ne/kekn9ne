@@ -7,6 +7,6 @@
 
 ---
 
-_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
+_"Have a vision. Be demanding. — *Colin Powell*"_
 
 ---
