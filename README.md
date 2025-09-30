@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
