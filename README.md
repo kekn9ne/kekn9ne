@@ -7,6 +7,6 @@
 
 ---
 
-_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
+_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
 
 ---
