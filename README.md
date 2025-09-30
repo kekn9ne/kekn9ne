@@ -7,6 +7,6 @@
 
 ---
 
-_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
+_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
 
 ---
