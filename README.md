@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
+_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
 
 ---
