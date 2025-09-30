@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 30 September 2025**  
-🌤️ Weather in Istanbul: **⛅️  +20°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **marlboro double fusion** by *13 Killoki* 🎶
+🎧 Currently Listening: **Günahsız** by *Keişan* 🎶
 
 ---
 
-_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
+_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
 
 ---
