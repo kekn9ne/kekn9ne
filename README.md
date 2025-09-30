@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
 
 ---
