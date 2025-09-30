@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
