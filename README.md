@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
+_"Being wrong opens us up to the possibility of change. — *Mark Manson*"_
 
 ---
