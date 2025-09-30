@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **YAPAR MISIN?** by *Poizi* 🎶
+🎧 Currently Listening: **Aşk Cinayet Sever** by *Gülşen* 🎶
 
 ---
 
-_"Don't stumble over something that's behind you. — *Steve Harvey*"_
+_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
 
 ---
