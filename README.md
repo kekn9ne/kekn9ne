@@ -7,6 +7,6 @@
 
 ---
 
-_"Being wrong opens us up to the possibility of change. — *Mark Manson*"_
+_"Success comes to those who become success conscious. — *Napoleon Hill*"_
 
 ---
