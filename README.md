@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
+_"The road to success and the road to failure are almost exactly the same. — *Colin R. Davis*"_
 
 ---
