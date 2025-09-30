@@ -7,6 +7,6 @@
 
 ---
 
-_"Thought is so cunning, so clever, that it distorts everything for its own convenience. — *Jiddu Krishnamurti*"_
+_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
 
 ---
