@@ -7,6 +7,6 @@
 
 ---
 
-_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
+_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
 
 ---
