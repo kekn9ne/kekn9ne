@@ -7,6 +7,6 @@
 
 ---
 
-_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
+_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
 
 ---
