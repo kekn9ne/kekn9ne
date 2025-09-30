@@ -7,6 +7,6 @@
 
 ---
 
-_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
+_"The truly rich men are the ones who have health, loved ones and a work they love. — *Maxime Lagace*"_
 
 ---
