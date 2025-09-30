@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
+_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
 
 ---
