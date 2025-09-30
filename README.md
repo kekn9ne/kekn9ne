@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing ever goes away until it has taught us what we need to know. — *Pema Chodron*"_
+_"If you are going to achieve excellence in big things, you develop the habit in little matters. — *Colin Powell*"_
 
 ---
