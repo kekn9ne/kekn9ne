@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of getting started is breaking your complex, overwhelming tasks into small manageable tasks, and then starting on the first one. — *Mark Twain*"_
+_"When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it. — *Josh Waitzkin*"_
 
 ---
