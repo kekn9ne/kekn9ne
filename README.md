@@ -7,6 +7,6 @@
 
 ---
 
-_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
+_"You may be one person in this world, but to one person you may mean the world. — *Unknown*"_
 
 ---
