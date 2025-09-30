@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 September 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KASA ORIJINAL** by *Lvbel C5* 🎶
+🎧 Currently Listening: **marlboro double fusion** by *13 Killoki* 🎶
 
 ---
 
-_"Experience is a comb which nature gives us when we are bald.  — *Chinese Proverb*"_
+_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
 
 ---
