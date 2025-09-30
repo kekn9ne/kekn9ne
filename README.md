@@ -7,6 +7,6 @@
 
 ---
 
-_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
+_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
 
 ---
