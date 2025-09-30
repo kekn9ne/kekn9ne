@@ -7,6 +7,6 @@
 
 ---
 
-_"The road to success and the road to failure are almost exactly the same. — *Colin R. Davis*"_
+_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
 
 ---
