@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
+_"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. — *Sydney Smith*"_
 
 ---
