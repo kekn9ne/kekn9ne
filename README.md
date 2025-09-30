@@ -7,6 +7,6 @@
 
 ---
 
-_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
