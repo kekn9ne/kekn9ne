@@ -7,6 +7,6 @@
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"Desire for the fruits of work must never be your motive in working. — *Bhagavad Gita*"_
 
 ---
