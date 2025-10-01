@@ -7,6 +7,6 @@
 
 ---
 
-_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
+_"You can start changing our world for the better daily, no matter how small the action. — *Nelson Mandela*"_
 
 ---
