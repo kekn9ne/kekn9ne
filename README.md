@@ -7,6 +7,6 @@
 
 ---
 
-_"Throughout this life, you can never be certain of living long enough to take another breath. — *Huang Po*"_
+_"Quiet people have the loudest minds. — *Stephen King*"_
 
 ---
