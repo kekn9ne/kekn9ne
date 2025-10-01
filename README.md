@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there's life, there's hope. — *Stephen Hawking*"_
+_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
 
 ---
