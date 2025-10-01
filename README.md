@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not always a matter of holding good cards, but sometimes, playing a poor hand well.  — *Jack London*"_
+_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
 
 ---
