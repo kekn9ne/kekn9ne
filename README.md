@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
+_"If a man knows not to which port he sails, no wind is favorable.   — *Seneca*"_
 
 ---
