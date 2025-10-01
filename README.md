@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
+_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
 
 ---
