@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity: doing the same thing over and over again and expecting different results. — *Albert Einstein*"_
+_"Throw your heart over the fence and the rest will follow — *Norman Vincent Peale*"_
 
 ---
