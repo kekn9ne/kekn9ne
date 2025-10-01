@@ -7,6 +7,6 @@
 
 ---
 
-_"Each of us is a unique strand in the intricate web of life and here to make a contribution. — *Deepak Chopra*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
