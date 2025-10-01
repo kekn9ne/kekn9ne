@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
+_"Men are anxious to improve their circumstances but are unwilling to improve themselves; they therefore remain bound. — *James Allen*"_
 
 ---
