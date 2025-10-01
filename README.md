@@ -7,6 +7,6 @@
 
 ---
 
-_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
+_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
 
 ---
