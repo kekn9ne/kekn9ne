@@ -7,6 +7,6 @@
 
 ---
 
-_"So we beat on, boats against the current, borne back ceaselessly into the past. — *F. Scott Fitzgerald*"_
+_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
 
 ---
