@@ -7,6 +7,6 @@
 
 ---
 
-_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
+_"The time is always right to do what is right. — *Martin Luther King, Jr.*"_
 
 ---
