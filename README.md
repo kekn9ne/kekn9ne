@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw your heart over the fence and the rest will follow — *Norman Vincent Peale*"_
+_"Throughout this life, you can never be certain of living long enough to take another breath. — *Huang Po*"_
 
 ---
