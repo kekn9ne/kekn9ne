@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Insanity: doing the same thing over and over again and expecting different results. — *Albert Einstein*"_
 
 ---
