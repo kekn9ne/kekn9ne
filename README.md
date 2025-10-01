@@ -7,6 +7,6 @@
 
 ---
 
-_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
