@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen King*"_
+_"Just get out and do it. You will be very, very glad that you did. — *Christopher McCandless*"_
 
 ---
