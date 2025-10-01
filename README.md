@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
+_"Lost Time is never found again. — *Benjamin Franklin*"_
 
 ---
