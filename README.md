@@ -7,6 +7,6 @@
 
 ---
 
-_"You can live a whole life time never being awake. — *Dan Millman*"_
+_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
 
 ---
