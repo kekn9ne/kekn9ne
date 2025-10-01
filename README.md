@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
+_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
 
 ---
