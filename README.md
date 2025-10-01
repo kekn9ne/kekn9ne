@@ -7,6 +7,6 @@
 
 ---
 
-_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
+_"Your success and happiness lie in you. — *Helen Keller*"_
 
 ---
