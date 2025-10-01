@@ -7,6 +7,6 @@
 
 ---
 
-_"Success comes from knowing that you did your best to become the best that you are capable of becoming. — *John Wooden*"_
+_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
 
 ---
