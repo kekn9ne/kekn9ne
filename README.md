@@ -7,6 +7,6 @@
 
 ---
 
-_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
+_"Our greatest fears lie in anticipation. — *Honore de Balzac*"_
 
 ---
