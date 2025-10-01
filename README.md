@@ -7,6 +7,6 @@
 
 ---
 
-_"Live as if you were to die tomorrow. Learn as if you were to live forever. — *Mahatma Gandhi*"_
+_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
 
 ---
