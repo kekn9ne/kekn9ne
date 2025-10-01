@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
 
 ---
