@@ -7,6 +7,6 @@
 
 ---
 
-_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
+_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
 
 ---
