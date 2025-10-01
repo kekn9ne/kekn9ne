@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what happens to you, but how you react to it that matters. — *Epictetus*"_
+_"Those who know, do. Those that understand, teach. — *Aristotle*"_
 
 ---
