@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember the entrance to the sanctuary is inside you. — *Rumi*"_
+_"Lying can never save us from another lie. — *Vaclav Havel*"_
 
 ---
