@@ -7,6 +7,6 @@
 
 ---
 
-_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
+_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
 
 ---
