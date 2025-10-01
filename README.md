@@ -7,6 +7,6 @@
 
 ---
 
-_"At the end of the day, let there be no excuses, no explanations, no regrets. — *Steve Maraboli*"_
+_"An un-examined life is not worth living. — *Socrates*"_
 
 ---
