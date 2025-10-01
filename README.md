@@ -7,6 +7,6 @@
 
 ---
 
-_"Never close your lips to those whom you have already opened your heart. — *Charles Dickens*"_
+_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
 
 ---
