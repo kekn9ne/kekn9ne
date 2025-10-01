@@ -7,6 +7,6 @@
 
 ---
 
-_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
+_"Success comes from knowing that you did your best to become the best that you are capable of becoming. — *John Wooden*"_
 
 ---
