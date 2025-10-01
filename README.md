@@ -7,6 +7,6 @@
 
 ---
 
-_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
+_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
 
 ---
