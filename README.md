@@ -7,6 +7,6 @@
 
 ---
 
-_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
+_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
 
 ---
