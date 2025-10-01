@@ -7,6 +7,6 @@
 
 ---
 
-_"An un-examined life is not worth living. — *Socrates*"_
+_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
 
 ---
