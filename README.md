@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
+_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
 
 ---
