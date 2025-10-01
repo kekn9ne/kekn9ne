@@ -7,6 +7,6 @@
 
 ---
 
-_"The successful warrior is the average man, with laser-like focus. — *Bruce Lee*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
