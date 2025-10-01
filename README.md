@@ -7,6 +7,6 @@
 
 ---
 
-_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
+_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
 
 ---
