@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom lies in being bold. — *Robert Frost*"_
+_"To love means loving the unlovable. — *Gilbert Chesterton*"_
 
 ---
