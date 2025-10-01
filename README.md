@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest fears lie in anticipation. — *Honore de Balzac*"_
+_"It's not what happens to you, but how you react to it that matters. — *Epictetus*"_
 
 ---
