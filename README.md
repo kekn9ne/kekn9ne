@@ -7,6 +7,6 @@
 
 ---
 
-_"Just get out and do it. You will be very, very glad that you did. — *Christopher McCandless*"_
+_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
 
 ---
