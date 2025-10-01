@@ -7,6 +7,6 @@
 
 ---
 
-_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
+_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
 
 ---
