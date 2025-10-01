@@ -7,6 +7,6 @@
 
 ---
 
-_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
+_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
 
 ---
