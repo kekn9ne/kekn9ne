@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 01 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Lost Time is never found again. — *Benjamin Franklin*"_
+_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
 
 ---
