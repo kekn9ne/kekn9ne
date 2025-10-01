@@ -7,6 +7,6 @@
 
 ---
 
-_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
+_"You can live a whole life time never being awake. — *Dan Millman*"_
 
 ---
