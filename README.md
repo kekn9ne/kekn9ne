@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
 
 ---
