@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
+_"Where there's life, there's hope. — *Stephen Hawking*"_
 
 ---
