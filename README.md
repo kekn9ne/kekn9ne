@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 01 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
+_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
 
 ---
