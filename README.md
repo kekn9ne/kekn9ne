@@ -7,6 +7,6 @@
 
 ---
 
-_"You can start changing our world for the better daily, no matter how small the action. — *Nelson Mandela*"_
+_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
 
 ---
