@@ -7,6 +7,6 @@
 
 ---
 
-_"It is difficult to free fools from the chains they revere.  — *Voltaire*"_
+_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
 
 ---
