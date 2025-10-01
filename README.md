@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 01 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
