@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
+_"You must conceive it in your heart and mind before you can receive it. If you believe then all things are possible. — *Norman Vincent Peale*"_
 
 ---
