@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 01 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SUKUNA ITADORI** by *13 Killoki* 🎶
 
 ---
 
-_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
+_"The first rule of handling conflict is don't hang around people who are constantly engaging in conflict. — *Naval Ravikant*"_
 
 ---
