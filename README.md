@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"Believe you can and you will be halfway there. — *Lolly Daskal*"_
 
 ---
