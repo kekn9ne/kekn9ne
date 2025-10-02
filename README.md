@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is an iceberg. — *Unknown*"_
+_"When it comes to mastering a skill, time is the magic ingredient. — *Robert Greene*"_
 
 ---
