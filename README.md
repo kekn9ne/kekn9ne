@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 02 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
+_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
 
 ---
