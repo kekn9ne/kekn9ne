@@ -7,6 +7,6 @@
 
 ---
 
-_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
+_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
 
 ---
