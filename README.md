@@ -7,6 +7,6 @@
 
 ---
 
-_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
+_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
 
 ---
