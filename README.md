@@ -7,6 +7,6 @@
 
 ---
 
-_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
+_"Success is good at any age, but the sooner you find it, the longer you will enjoy it. — *Napoleon Hill*"_
 
 ---
