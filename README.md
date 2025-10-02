@@ -7,6 +7,6 @@
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"There are no limitations to the mind except those we acknowledge... — *Napoleon Hill*"_
 
 ---
