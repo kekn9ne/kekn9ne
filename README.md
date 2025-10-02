@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 02 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +24°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
+_"We cannot expect to be happy always... by experiencing evil as well as good we become wise. — *Hans Christian Andersen*"_
 
 ---
