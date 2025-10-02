@@ -7,6 +7,6 @@
 
 ---
 
-_"We're responsible for everything that happens to us. — *Yanni*"_
+_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
 
 ---
