@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 02 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The happiest people in the world are those who feel absolutely terrific about themselves. — *Brian Tracy*"_
+_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
 
 ---
