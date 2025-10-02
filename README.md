@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
+_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
 
 ---
