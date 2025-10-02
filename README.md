@@ -7,6 +7,6 @@
 
 ---
 
-_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
