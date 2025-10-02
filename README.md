@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop acting so small. You are the universe in ecstatic motion. — *Rumi*"_
+_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
 
 ---
