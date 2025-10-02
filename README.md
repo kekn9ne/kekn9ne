@@ -7,6 +7,6 @@
 
 ---
 
-_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
+_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
 
 ---
