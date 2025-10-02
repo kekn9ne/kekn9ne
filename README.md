@@ -7,6 +7,6 @@
 
 ---
 
-_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
+_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
 
 ---
