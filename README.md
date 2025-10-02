@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe you can and you will be halfway there. — *Lolly Daskal*"_
+_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
 
 ---
