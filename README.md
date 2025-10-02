@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't listen to the person who has the answers; listen to the person who has the questions. — *Albert Einstein*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
