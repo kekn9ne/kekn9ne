@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot expect to be happy always... by experiencing evil as well as good we become wise. — *Hans Christian Andersen*"_
+_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
 
 ---
