@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 02 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **PAHALI ve KALİTELİ** by *Organize* 🎶
 
 ---
 
-_"Success is good at any age, but the sooner you find it, the longer you will enjoy it. — *Napoleon Hill*"_
+_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
 
 ---
