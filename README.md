@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Esnettim** by *EGE!* 🎶
 
 ---
 
-_"Don't live the same year 75 times and call it a life. — *Robin Sharma*"_
+_"FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours. — *Zig Ziglar*"_
 
 ---
