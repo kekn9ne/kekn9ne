@@ -7,6 +7,6 @@
 
 ---
 
-_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
+_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
 
 ---
