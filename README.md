@@ -7,6 +7,6 @@
 
 ---
 
-_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
+_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
 
 ---
