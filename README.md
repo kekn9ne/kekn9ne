@@ -7,6 +7,6 @@
 
 ---
 
-_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
+_"Strive for excellence, not perfection, because we don't live in a perfect world. — *Joyce Meyer*"_
 
 ---
