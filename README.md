@@ -7,6 +7,6 @@
 
 ---
 
-_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
+_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
 
 ---
