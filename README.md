@@ -7,6 +7,6 @@
 
 ---
 
-_"Just try to be the best you can be; never cease trying to be the best you can be. That's in your power. — *John Wooden*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
