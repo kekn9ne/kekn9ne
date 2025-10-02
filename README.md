@@ -7,6 +7,6 @@
 
 ---
 
-_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
