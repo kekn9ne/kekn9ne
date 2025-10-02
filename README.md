@@ -7,6 +7,6 @@
 
 ---
 
-_"Strive for excellence, not perfection, because we don't live in a perfect world. — *Joyce Meyer*"_
+_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
 
 ---
