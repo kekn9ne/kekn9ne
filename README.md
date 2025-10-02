@@ -7,6 +7,6 @@
 
 ---
 
-_"Why live an ordinary life, when you can live an extraordinary one. — *Tony Robbins*"_
+_"Just try to be the best you can be; never cease trying to be the best you can be. That's in your power. — *John Wooden*"_
 
 ---
