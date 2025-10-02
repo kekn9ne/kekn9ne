@@ -7,6 +7,6 @@
 
 ---
 
-_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
+_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
 
 ---
