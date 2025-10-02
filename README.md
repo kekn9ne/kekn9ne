@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
+_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
 
 ---
