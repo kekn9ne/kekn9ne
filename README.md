@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
+_"Don't listen to the person who has the answers; listen to the person who has the questions. — *Albert Einstein*"_
 
 ---
