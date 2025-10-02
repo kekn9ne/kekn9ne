@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't seek, don't avoid, don't expect. Take what comes and be happy. — *Maxime Lagace*"_
+_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
 
 ---
