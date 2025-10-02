@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
+_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
 
 ---
