@@ -7,6 +7,6 @@
 
 ---
 
-_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
