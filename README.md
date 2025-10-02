@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 02 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Çözemezler 2.0** by *Dethron* 🎶
+🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
 
 ---
 
-_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
+_"It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way. — *Alan Watts*"_
 
 ---
