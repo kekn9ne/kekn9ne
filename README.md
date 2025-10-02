@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
+_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
 
 ---
