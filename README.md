@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no limitations to the mind except those we acknowledge... — *Napoleon Hill*"_
+_"We're responsible for everything that happens to us. — *Yanni*"_
 
 ---
