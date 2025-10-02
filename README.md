@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is a great teacher. If you're open to it every mistake has a lesson to offer. — *Oprah Winfrey*"_
+_"Stop acting so small. You are the universe in ecstatic motion. — *Rumi*"_
 
 ---
