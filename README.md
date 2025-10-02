@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
+_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
 
 ---
