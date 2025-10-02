@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
+_"Don't seek, don't avoid, don't expect. Take what comes and be happy. — *Maxime Lagace*"_
 
 ---
