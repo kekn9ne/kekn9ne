@@ -7,6 +7,6 @@
 
 ---
 
-_"When it comes to mastering a skill, time is the magic ingredient. — *Robert Greene*"_
+_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
 
 ---
