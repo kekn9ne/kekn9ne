@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
+_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
 
 ---
