@@ -7,6 +7,6 @@
 
 ---
 
-_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
+_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
 
 ---
