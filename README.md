@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 02 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
 
 ---
