@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
+_"Don't live the same year 75 times and call it a life. — *Robin Sharma*"_
 
 ---
