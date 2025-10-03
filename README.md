@@ -7,6 +7,6 @@
 
 ---
 
-_"Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference. — *Robert Frost*"_
+_"You use a glass mirror to see your face; you use works of art to see your soul. — *George Bernard Shaw*"_
 
 ---
