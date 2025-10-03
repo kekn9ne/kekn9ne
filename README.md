@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. — *Arnold Schwarzenegger*"_
+_"Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference. — *Robert Frost*"_
 
 ---
