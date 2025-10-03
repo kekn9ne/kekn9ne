@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something worth remembering. — *Elvis Presley*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
