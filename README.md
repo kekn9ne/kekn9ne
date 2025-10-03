@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
+_"I would rather be hated for who I am than loved for who I'm not.   — *Wayne Dyer*"_
 
 ---
