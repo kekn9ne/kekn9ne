@@ -7,6 +7,6 @@
 
 ---
 
-_"The nearer a man comes to a calm mind, the closer he is to strength. — *Marcus Aurelius*"_
+_"Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along.  — *Paramahansa Yogananda*"_
 
 ---
