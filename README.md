@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't give up the fight, Stand up for your rights. — *Bob Marley*"_
+_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
 
 ---
