@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
+_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
 
 ---
