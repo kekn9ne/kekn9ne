@@ -7,6 +7,6 @@
 
 ---
 
-_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
+_"Success comes to those who become success conscious. — *Napoleon Hill*"_
 
 ---
