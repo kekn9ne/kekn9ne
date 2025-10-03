@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
+_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
 
 ---
