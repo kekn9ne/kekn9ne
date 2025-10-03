@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rastafari** by *Organize* 🎶
 
 ---
 
-_"There is no self-discovery without pain and loss. — *Anita Krizzan*"_
+_"Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day! — *Og Mandino*"_
 
 ---
