@@ -7,6 +7,6 @@
 
 ---
 
-_"Integrity is telling myself the truth. And honesty is telling the truth to other people. — *Spencer Johnson*"_
+_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
 
 ---
