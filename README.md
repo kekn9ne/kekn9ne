@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave enough to suck at something new. — *Unknown*"_
+_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
 
 ---
