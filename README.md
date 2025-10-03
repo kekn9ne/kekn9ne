@@ -7,6 +7,6 @@
 
 ---
 
-_"It is best to begin at the beginning. — *Amelia Earhart*"_
+_"Walk towards the sunshine, and the shadows will fall behind you. — *Mary Engelbreit*"_
 
 ---
