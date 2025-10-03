@@ -7,6 +7,6 @@
 
 ---
 
-_"Gratitude is the fairest blossom which springs from the soul. — *Henry Ward Beecher*"_
+_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
 
 ---
