@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek is to suffer. To seek nothing is bliss. — *Bodhidharma*"_
+_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
 
 ---
