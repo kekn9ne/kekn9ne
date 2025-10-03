@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. — *Theodore Roosevelt*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
