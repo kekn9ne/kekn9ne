@@ -7,6 +7,6 @@
 
 ---
 
-_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
+_"Your only obligation in any lifetime is to be true to yourself. — *Richard Bach*"_
 
 ---
