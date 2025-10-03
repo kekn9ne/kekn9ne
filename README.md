@@ -7,6 +7,6 @@
 
 ---
 
-_"Walk towards the sunshine, and the shadows will fall behind you. — *Mary Engelbreit*"_
+_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
 
 ---
