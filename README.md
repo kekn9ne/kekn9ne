@@ -7,6 +7,6 @@
 
 ---
 
-_"You have a brain and mind of your own. Use it, and reach your own decisions. — *Napoleon Hill*"_
+_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
 
 ---
