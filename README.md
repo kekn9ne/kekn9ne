@@ -7,6 +7,6 @@
 
 ---
 
-_"Where the willingness is great, the difficulties cannot be great. — *Niccolo Machiavelli*"_
+_"We tend to live up to our expectations. — *Earl Nightingale*"_
 
 ---
