@@ -7,6 +7,6 @@
 
 ---
 
-_"Little by little, one travels far. — *J.R.R. Tolkien*"_
+_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
 
 ---
