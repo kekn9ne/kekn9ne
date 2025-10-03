@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is not about possession. Love is about appreciation. — *Osho*"_
+_"At every moment where language can't go, that's your mind. — *Bodhidharma*"_
 
 ---
