@@ -7,6 +7,6 @@
 
 ---
 
-_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
+_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
 
 ---
