@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
