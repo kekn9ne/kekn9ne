@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
+🎧 Currently Listening: **JET BABA** by *cakal* 🎶
 
 ---
 
-_"Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim. — *John D. Rockefeller*"_
+_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
 
 ---
