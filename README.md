@@ -7,6 +7,6 @@
 
 ---
 
-_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
+_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
 
 ---
