@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
+_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
 
 ---
