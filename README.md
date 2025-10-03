@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
+_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
 
 ---
