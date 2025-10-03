@@ -7,6 +7,6 @@
 
 ---
 
-_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
+_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
 
 ---
