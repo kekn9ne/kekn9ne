@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
+_"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. — *Sydney Smith*"_
 
 ---
