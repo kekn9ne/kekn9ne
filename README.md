@@ -7,6 +7,6 @@
 
 ---
 
-_"A friend to all is a friend to none. — *Aristotle*"_
+_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
 
 ---
