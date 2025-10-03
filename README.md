@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
+_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
 
 ---
