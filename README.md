@@ -7,6 +7,6 @@
 
 ---
 
-_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
+_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
 
 ---
