@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
+_"Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. — *Arnold Schwarzenegger*"_
 
 ---
