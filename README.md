@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
 
 ---
