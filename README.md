@@ -7,6 +7,6 @@
 
 ---
 
-_"We don't stop playing because we grow old; we grow old because we stop playing. — *George Bernard Shaw*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
