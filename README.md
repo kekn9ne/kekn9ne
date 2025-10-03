@@ -7,6 +7,6 @@
 
 ---
 
-_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
+_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
 
 ---
