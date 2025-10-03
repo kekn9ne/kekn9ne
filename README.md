@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
+_"An inventor is a man who asks Why? of the universe and lets nothing stand between the answer and his mind. — *Ayn Rand*"_
 
 ---
