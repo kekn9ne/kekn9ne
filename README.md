@@ -7,6 +7,6 @@
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control. — *Maxime Lagace*"_
 
 ---
