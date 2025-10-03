@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. — *Theodore Roosevelt*"_
 
 ---
