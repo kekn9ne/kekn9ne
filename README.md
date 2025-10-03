@@ -7,6 +7,6 @@
 
 ---
 
-_"When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there. — *Zig Ziglar*"_
+_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
 
 ---
