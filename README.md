@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
+_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
 
 ---
