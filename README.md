@@ -7,6 +7,6 @@
 
 ---
 
-_"Duty makes us do things well, but love makes us do them beautifully.   — *Zig Ziglar*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
