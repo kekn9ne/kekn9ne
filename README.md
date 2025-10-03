@@ -7,6 +7,6 @@
 
 ---
 
-_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
+_"Your past does not equal your future. — *Tony Robbins*"_
 
 ---
