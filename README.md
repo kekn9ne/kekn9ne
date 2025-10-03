@@ -7,6 +7,6 @@
 
 ---
 
-_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
+_"It is best to begin at the beginning. — *Amelia Earhart*"_
 
 ---
