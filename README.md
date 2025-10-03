@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 03 October 2025**  
+🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **JET BABA** by *cakal* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The older you get, the more you understand how your conscience works. — *Criss Jami*"_
+_"Integrity is telling myself the truth. And honesty is telling the truth to other people. — *Spencer Johnson*"_
 
 ---
