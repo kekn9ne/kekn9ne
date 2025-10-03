@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
+_"Gratitude is the fairest blossom which springs from the soul. — *Henry Ward Beecher*"_
 
 ---
