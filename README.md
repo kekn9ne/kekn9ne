@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day! — *Og Mandino*"_
+_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
 
 ---
