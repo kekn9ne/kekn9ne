@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
+_"Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have. — *Norman Vincent Peale*"_
 
 ---
