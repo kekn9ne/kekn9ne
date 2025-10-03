@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
+_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
 
 ---
