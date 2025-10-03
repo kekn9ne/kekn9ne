@@ -7,6 +7,6 @@
 
 ---
 
-_"We tend to live up to our expectations. — *Earl Nightingale*"_
+_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
 
 ---
