@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't hate the player. Change the game. — *Steve Harvey*"_
+_"Beauty is not in the face; beauty is a light in the heart. — *Kahlil Gibran*"_
 
 ---
