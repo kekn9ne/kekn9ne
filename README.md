@@ -7,6 +7,6 @@
 
 ---
 
-_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
+_"Duty makes us do things well, but love makes us do them beautifully.   — *Zig Ziglar*"_
 
 ---
