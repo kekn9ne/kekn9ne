@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
+_"You have a brain and mind of your own. Use it, and reach your own decisions. — *Napoleon Hill*"_
 
 ---
