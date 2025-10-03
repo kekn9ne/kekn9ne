@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
+_"There is no self-discovery without pain and loss. — *Anita Krizzan*"_
 
 ---
