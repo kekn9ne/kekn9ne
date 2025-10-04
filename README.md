@@ -7,6 +7,6 @@
 
 ---
 
-_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
+_"Happiness is the spiritual experience of living every minute with love, grace and gratitude. — *Denis Waitley*"_
 
 ---
