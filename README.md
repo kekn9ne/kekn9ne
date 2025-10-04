@@ -7,6 +7,6 @@
 
 ---
 
-_"It is up to each of us to sing as we feel moved by the overall song of life. — *Ming-Dao Deng*"_
+_"What you become is far more important than what you get. — *Jim Rohn*"_
 
 ---
