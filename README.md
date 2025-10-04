@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **gelemez** by *EGE!* 🎶
+🎧 Currently Listening: **napıyosun mesela ?** by *BLOK3* 🎶
 
 ---
 
-_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
