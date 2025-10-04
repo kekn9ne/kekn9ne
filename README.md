@@ -7,6 +7,6 @@
 
 ---
 
-_"Just try to be the best you can be; never cease trying to be the best you can be. That's in your power. — *John Wooden*"_
+_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
 
 ---
