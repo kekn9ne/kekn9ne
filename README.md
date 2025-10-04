@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
+_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
 
 ---
