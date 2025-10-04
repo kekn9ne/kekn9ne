@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
+🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
 
 ---
 
-_"Enlightenment is intimacy with all things. — *Dogen*"_
+_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
 
 ---
