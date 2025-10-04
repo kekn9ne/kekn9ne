@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
 
 ---
