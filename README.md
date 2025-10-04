@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of getting ahead is getting started. — *Mark Twain*"_
+_"Don't spend time beating on a wall, hoping to transform it into a door. — *Coco Chanel*"_
 
 ---
