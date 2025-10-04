@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is always right. — *Ming-Dao Deng*"_
+_"The fewer the words, the better the prayer. — *Martin Luther*"_
 
 ---
