@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
+_"There are no shortcuts to any place worth going.  — *Beverly Sills*"_
 
 ---
