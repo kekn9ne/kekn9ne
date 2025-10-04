@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
 
 ---
