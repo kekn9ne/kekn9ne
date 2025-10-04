@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't spend time beating on a wall, hoping to transform it into a door. — *Coco Chanel*"_
+_"Just try to be the best you can be; never cease trying to be the best you can be. That's in your power. — *John Wooden*"_
 
 ---
