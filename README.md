@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **napıyosun mesela ?** by *BLOK3* 🎶
+🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
 
 ---
 
-_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
+_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
 
 ---
