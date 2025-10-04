@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you admire was once a beginner. — *Jack Butcher*"_
+_"Human happiness and moral duty are inseparably connected.  — *George Washington*"_
 
 ---
