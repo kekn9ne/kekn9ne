@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot change anything unless we accept it. — *Carl Jung*"_
+_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
 
 ---
