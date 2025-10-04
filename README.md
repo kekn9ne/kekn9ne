@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **POLATLI** by *Era7capone* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
+_"Never let the things you can't do stop you from doing what you can. — *Ronald Reagan*"_
 
 ---
