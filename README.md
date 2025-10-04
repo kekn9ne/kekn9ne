@@ -7,6 +7,6 @@
 
 ---
 
-_"All you need is passion. If you have a passion for something, you'll create the talent. — *Yanni*"_
+_"You can never get enough of what you don't need to make you happy. — *Eric Hoffer*"_
 
 ---
