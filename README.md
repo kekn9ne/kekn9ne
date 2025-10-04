@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
+🎧 Currently Listening: **Geceler Şahit** by *Etki* 🎶
 
 ---
 
-_"The only man who never makes mistakes is the man who never does anything. — *Theodore Roosevelt*"_
+_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
 
 ---
