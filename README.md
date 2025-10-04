@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of the evil in this world is done by people with good intentions. — *T.S. Eliot*"_
+_"Words have no power to impress the mind without the exquisite horror of their reality. — *Edgar Allan Poe*"_
 
 ---
