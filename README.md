@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
+🎧 Currently Listening: **Mavi Chivas** by *Ati242* 🎶
 
 ---
 
-_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
+_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
 
 ---
