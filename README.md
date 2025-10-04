@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Geceler Şahit** by *Etki* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
+_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
 
 ---
