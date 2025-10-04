@@ -7,6 +7,6 @@
 
 ---
 
-_"What you become is far more important than what you get. — *Jim Rohn*"_
+_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
 
 ---
