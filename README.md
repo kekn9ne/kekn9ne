@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **POLATLI** by *Era7capone* 🎶
 
 ---
 
-_"Nothing good ever comes of violence. — *Martin Luther*"_
+_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
 
 ---
