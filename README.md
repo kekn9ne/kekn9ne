@@ -7,6 +7,6 @@
 
 ---
 
-_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
+_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
 
 ---
