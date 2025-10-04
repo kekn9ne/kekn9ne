@@ -7,6 +7,6 @@
 
 ---
 
-_"All know the way; few actually walk it.  — *Bodhidharma*"_
+_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
 
 ---
