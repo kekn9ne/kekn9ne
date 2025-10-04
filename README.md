@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Batık Gemi** by *Semicenk* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
