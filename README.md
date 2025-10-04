@@ -7,6 +7,6 @@
 
 ---
 
-_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
+_"Nothing good ever comes of violence. — *Martin Luther*"_
 
 ---
