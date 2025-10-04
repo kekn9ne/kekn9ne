@@ -7,6 +7,6 @@
 
 ---
 
-_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
+_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
 
 ---
