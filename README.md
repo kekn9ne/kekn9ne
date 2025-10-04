@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people will walk in and out of your life, but only true friends will leave footprints in your heart. — *Eleanor Roosevelt*"_
+_"Who you are is always right. — *Ming-Dao Deng*"_
 
 ---
