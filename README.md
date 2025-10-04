@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Bigman** by *Heijan* 🎶
 
 ---
 
-_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
