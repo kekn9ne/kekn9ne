@@ -7,6 +7,6 @@
 
 ---
 
-_"Human happiness and moral duty are inseparably connected.  — *George Washington*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goal. — *Henry Ford*"_
 
 ---
