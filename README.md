@@ -7,6 +7,6 @@
 
 ---
 
-_"You can only be afraid of what you think you know. — *Jiddu Krishnamurti*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
