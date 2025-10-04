@@ -7,6 +7,6 @@
 
 ---
 
-_"He that can have patience can have what he will. — *Benjamin Franklin*"_
+_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
 
 ---
