@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Disko Topu** by *Şam* 🎶
+🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
 
 ---
 
-_"Be yourself; everyone else is already taken  — *Oscar Wilde*"_
+_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
 
 ---
