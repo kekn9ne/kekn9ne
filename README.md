@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are the clothing of our thoughts. — *Jonathan Swift*"_
+_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
 
 ---
