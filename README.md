@@ -7,6 +7,6 @@
 
 ---
 
-_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
+_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
 
 ---
