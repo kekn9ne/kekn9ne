@@ -7,6 +7,6 @@
 
 ---
 
-_"Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found. — *Pema Chodron*"_
+_"Tall oaks grow from little acorns. — *Andrew Carnegie*"_
 
 ---
