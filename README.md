@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — *G.I. Gurdjieff*"_
+_"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies. — *Emily Dickinson*"_
 
 ---
