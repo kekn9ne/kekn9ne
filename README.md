@@ -7,6 +7,6 @@
 
 ---
 
-_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
+_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
 
 ---
