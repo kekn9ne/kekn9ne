@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the spiritual experience of living every minute with love, grace and gratitude. — *Denis Waitley*"_
+_"When something comes from within, when it is a part of you, you have no choice but to live it, to express it. — *Kamal Ravikant*"_
 
 ---
