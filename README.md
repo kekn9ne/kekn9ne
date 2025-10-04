@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
+_"We love the things we love for what they are. — *Robert Frost*"_
 
 ---
