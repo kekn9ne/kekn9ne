@@ -7,6 +7,6 @@
 
 ---
 
-_"Well done is better than well said. — *Benjamin Franklin*"_
+_"He that can have patience can have what he will. — *Benjamin Franklin*"_
 
 ---
