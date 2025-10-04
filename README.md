@@ -7,6 +7,6 @@
 
 ---
 
-_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
+_"We cannot change anything unless we accept it. — *Carl Jung*"_
 
 ---
