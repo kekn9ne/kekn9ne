@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
 
 ---
