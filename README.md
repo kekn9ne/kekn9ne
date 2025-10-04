@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
+_"The secret of getting ahead is getting started. — *Mark Twain*"_
 
 ---
