@@ -7,6 +7,6 @@
 
 ---
 
-_"Work out your own salvation. Do not depend on others. — *Buddha*"_
+_"Expect the best of yourself, and then do what is necessary to make it a reality. — *Ralph Marston*"_
 
 ---
