@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
+_"Most of the evil in this world is done by people with good intentions. — *T.S. Eliot*"_
 
 ---
