@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
+_"Society is composed of two great classes those who have more dinners than appetite, and those who have more appetite than dinners. — *Nicolas Chamfort*"_
 
 ---
