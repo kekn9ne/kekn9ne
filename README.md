@@ -7,6 +7,6 @@
 
 ---
 
-_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
+_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
 
 ---
