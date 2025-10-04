@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABV** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
 
 ---
 
-_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
+_"Enlightenment is intimacy with all things. — *Dogen*"_
 
 ---
