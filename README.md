@@ -7,6 +7,6 @@
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
 
 ---
