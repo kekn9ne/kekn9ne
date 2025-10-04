@@ -7,6 +7,6 @@
 
 ---
 
-_"Words have no power to impress the mind without the exquisite horror of their reality. — *Edgar Allan Poe*"_
+_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
 
 ---
