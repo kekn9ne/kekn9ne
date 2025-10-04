@@ -7,6 +7,6 @@
 
 ---
 
-_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
