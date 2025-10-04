@@ -7,6 +7,6 @@
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
 
 ---
