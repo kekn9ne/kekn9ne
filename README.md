@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
+_"Work out your own salvation. Do not depend on others. — *Buddha*"_
 
 ---
