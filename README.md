@@ -7,6 +7,6 @@
 
 ---
 
-_"You can never get enough of what you don't need to make you happy. — *Eric Hoffer*"_
+_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
 
 ---
