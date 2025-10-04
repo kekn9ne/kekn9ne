@@ -7,6 +7,6 @@
 
 ---
 
-_"The most difficult thing is the decision to act, the rest is merely tenacity. The fears are paper tigers. — *Amelia Earhart*"_
+_"All know the way; few actually walk it.  — *Bodhidharma*"_
 
 ---
