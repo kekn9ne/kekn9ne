@@ -7,6 +7,6 @@
 
 ---
 
-_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
+_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
 
 ---
