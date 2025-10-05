@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer. — *J.R.R. Tolkien*"_
+_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
 
 ---
