@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
 
 ---
