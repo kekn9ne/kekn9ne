@@ -7,6 +7,6 @@
 
 ---
 
-_"When you judge another, you do not define them, you define yourself — *Wayne Dyer*"_
+_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
 
 ---
