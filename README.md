@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can laugh, I can live. — *Christopher Reeve*"_
+_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
 
 ---
