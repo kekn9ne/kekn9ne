@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
+_"The purpose of life is the life of purpose. — *Robin Sharma*"_
 
 ---
