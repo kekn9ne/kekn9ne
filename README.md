@@ -7,6 +7,6 @@
 
 ---
 
-_"Not doing it is certainly the best way to not getting it.   — *Wayne Gretzky*"_
+_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
 
 ---
