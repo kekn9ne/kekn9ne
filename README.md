@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens, always be yourself. — *Dale Carnegie*"_
+_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
 
 ---
