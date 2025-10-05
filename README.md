@@ -7,6 +7,6 @@
 
 ---
 
-_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
+_"Never let your memories be greater than your dreams. — *Doug Ivester*"_
 
 ---
