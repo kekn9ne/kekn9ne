@@ -7,6 +7,6 @@
 
 ---
 
-_"Heart is what separates the good from the great. — *Michael Jordan*"_
+_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
 
 ---
