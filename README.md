@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
+_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
 
 ---
