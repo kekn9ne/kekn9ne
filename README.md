@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a poor teacher. — *Robert Kiyosaki*"_
+_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
 
 ---
