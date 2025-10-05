@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves. — *Adi Da Samraj*"_
+_"The more perfect a person is on the outside, the more demons they have on the inside. — *Sigmund Freud*"_
 
 ---
