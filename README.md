@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 05 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +17°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
+_"Only when you can be extremely pliable and soft can you be extremely hard and strong. — *Zen Proverb*"_
 
 ---
