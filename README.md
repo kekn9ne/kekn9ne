@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
+_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
 
 ---
