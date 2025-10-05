@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding failure is to avoid progress. — *Unknown*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
