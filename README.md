@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
+_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
 
 ---
