@@ -7,6 +7,6 @@
 
 ---
 
-_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
