@@ -7,6 +7,6 @@
 
 ---
 
-_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
