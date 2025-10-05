@@ -7,6 +7,6 @@
 
 ---
 
-_"The best teacher is experience and not through someone's distorted point of view. — *Jack Kerouac*"_
+_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
 
 ---
