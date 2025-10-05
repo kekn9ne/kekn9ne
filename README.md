@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
+_"Awaken. Take heed, do not squander your life. — *Dogen*"_
 
 ---
