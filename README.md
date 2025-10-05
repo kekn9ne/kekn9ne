@@ -7,6 +7,6 @@
 
 ---
 
-_"To be totally at leisure for one day is to be immortal for one day.  — *Chinese Proverb*"_
+_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
 
 ---
