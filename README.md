@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"Through discipline comes freedom. — *Aristotle*"_
 
 ---
