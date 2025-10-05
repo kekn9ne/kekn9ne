@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to see things just as they are, then you yourself must practice just as you are. — *Dogen*"_
+_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
 
 ---
