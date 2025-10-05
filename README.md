@@ -7,6 +7,6 @@
 
 ---
 
-_"It is indeed a radical act of love just to sit down and be quiet for a time by yourself. — *Jon Kabat-Zinn*"_
+_"Not doing it is certainly the best way to not getting it.   — *Wayne Gretzky*"_
 
 ---
