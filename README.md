@@ -7,6 +7,6 @@
 
 ---
 
-_"Others can stop you temporarily - you are the only one who can do it permanently. — *Zig Ziglar*"_
+_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
 
 ---
