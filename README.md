@@ -7,6 +7,6 @@
 
 ---
 
-_"Your gift is something that you can do innately better than anything else. — *Steve Harvey*"_
+_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
 
 ---
