@@ -7,6 +7,6 @@
 
 ---
 
-_"Selfishness and greed, individual or national, cause most of our troubles. — *Harry S. Truman*"_
+_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
 
 ---
