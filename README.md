@@ -7,6 +7,6 @@
 
 ---
 
-_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
+_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
 
 ---
