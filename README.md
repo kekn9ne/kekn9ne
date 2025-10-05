@@ -7,6 +7,6 @@
 
 ---
 
-_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
+_"If you believe you can, you can. If you believe you can't, then, well you can't. — *Celestine Chua*"_
 
 ---
