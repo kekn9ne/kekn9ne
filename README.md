@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it. — *Dale Carnegie*"_
 
 ---
