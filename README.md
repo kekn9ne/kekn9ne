@@ -7,6 +7,6 @@
 
 ---
 
-_"Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for. — *Gurbaksh Chahal*"_
+_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
 
 ---
