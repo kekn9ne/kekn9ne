@@ -7,6 +7,6 @@
 
 ---
 
-_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
+_"Heart is what separates the good from the great. — *Michael Jordan*"_
 
 ---
