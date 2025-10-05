@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy. — *Roy T. Bennett*"_
+_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
 
 ---
