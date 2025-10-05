@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
 
 ---
