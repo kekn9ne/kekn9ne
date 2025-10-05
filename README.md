@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
