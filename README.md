@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BALMAIN** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
+_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
 
 ---
