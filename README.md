@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
+_"The people who are crazy enough to think they can change the world are the ones who do. — *Steve Jobs*"_
 
 ---
