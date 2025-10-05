@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
+_"Help others and give something back. — *Arnold Schwarzenegger*"_
 
 ---
