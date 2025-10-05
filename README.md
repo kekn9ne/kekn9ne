@@ -7,6 +7,6 @@
 
 ---
 
-_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
+_"No man is free who is not master of himself. — *Epictetus*"_
 
 ---
