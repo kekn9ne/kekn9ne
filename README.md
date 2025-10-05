@@ -7,6 +7,6 @@
 
 ---
 
-_"Never let your memories be greater than your dreams. — *Doug Ivester*"_
+_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
 
 ---
