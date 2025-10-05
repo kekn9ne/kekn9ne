@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **FINISH HIM** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined. — *Deepak Chopra*"_
+_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
 
 ---
