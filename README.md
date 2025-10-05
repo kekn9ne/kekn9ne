@@ -7,6 +7,6 @@
 
 ---
 
-_"Through discipline comes freedom. — *Aristotle*"_
+_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
 
 ---
