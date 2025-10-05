@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
+_"Becoming a great leader doesn't mean being perfect. it means living with your imperfections. — *Lolly Daskal*"_
 
 ---
