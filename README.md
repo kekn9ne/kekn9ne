@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **FINISH HIM** by *Mass* 🎶
 
 ---
 
-_"It is secondary whether we choose belief or defiance. What is precious is that we are always able to choose. — *Ming-Dao Deng*"_
+_"Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined. — *Deepak Chopra*"_
 
 ---
