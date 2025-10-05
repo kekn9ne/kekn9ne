@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
+_"Selfishness and greed, individual or national, cause most of our troubles. — *Harry S. Truman*"_
 
 ---
