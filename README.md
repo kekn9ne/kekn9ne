@@ -7,6 +7,6 @@
 
 ---
 
-_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
+_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
 
 ---
