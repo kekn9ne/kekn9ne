@@ -7,6 +7,6 @@
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
 
 ---
