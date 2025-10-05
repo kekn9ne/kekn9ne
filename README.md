@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
+_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
 
 ---
