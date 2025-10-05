@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
+_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
 
 ---
