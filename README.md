@@ -7,6 +7,6 @@
 
 ---
 
-_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
+_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
 
 ---
