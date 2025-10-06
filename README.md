@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"Keep your friends close, and your enemies closer. — *Sun Tzu*"_
 
 ---
