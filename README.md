@@ -7,6 +7,6 @@
 
 ---
 
-_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
+_"Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found. — *Pema Chodron*"_
 
 ---
