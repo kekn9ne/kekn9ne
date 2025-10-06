@@ -7,6 +7,6 @@
 
 ---
 
-_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
+_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
 
 ---
