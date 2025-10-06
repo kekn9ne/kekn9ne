@@ -7,6 +7,6 @@
 
 ---
 
-_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
+_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
 
 ---
