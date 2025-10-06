@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
 
 ---
 
-_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
+_"It's better to dance than to march through life. — *Yoko Ono*"_
 
 ---
