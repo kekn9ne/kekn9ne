@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the past steal your present. — *Cherralea Morgen*"_
+_"It's not the size of the dog in the fight, it's the size of the fight in the dog. — *Mark Twain*"_
 
 ---
