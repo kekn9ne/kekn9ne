@@ -7,6 +7,6 @@
 
 ---
 
-_"Your heart is full of fertile seeds, waiting to sprout. — *Morihei Ueshiba*"_
+_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
 
 ---
