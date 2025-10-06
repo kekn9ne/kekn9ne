@@ -7,6 +7,6 @@
 
 ---
 
-_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
