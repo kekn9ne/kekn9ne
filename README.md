@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
+_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
 
 ---
