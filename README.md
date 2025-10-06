@@ -7,6 +7,6 @@
 
 ---
 
-_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
+_"Sometimes it is harder to deprive oneself of a pain than of a pleasure. — *F. Scott Fitzgerald*"_
 
 ---
