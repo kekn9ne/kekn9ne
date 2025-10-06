@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
+_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
 
 ---
