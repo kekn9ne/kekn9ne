@@ -7,6 +7,6 @@
 
 ---
 
-_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
+_"True prayer has no set form. — *Morihei Ueshiba*"_
 
 ---
