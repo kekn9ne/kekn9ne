@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **☁️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kalpsiz** by *Semicenk* 🎶
 
 ---
 
-_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
+_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
 
 ---
