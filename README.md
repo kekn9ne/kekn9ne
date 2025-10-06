@@ -7,6 +7,6 @@
 
 ---
 
-_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
+_"The greatest of all mistakes is to do nothing because you think you can only do a little.   — *Zig Ziglar*"_
 
 ---
