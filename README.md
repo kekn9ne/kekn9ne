@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
+🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
 
 ---
 
-_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
+_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
 
 ---
