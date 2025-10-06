@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise accomplish all that they want without arousing the envy or scorn of others. — *Ming-Dao Deng*"_
+_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
 
 ---
