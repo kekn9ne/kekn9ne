@@ -7,6 +7,6 @@
 
 ---
 
-_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
+_"If you don't know, the thing to do is not to get scared, but to learn. — *Ayn Rand*"_
 
 ---
