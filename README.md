@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes it is harder to deprive oneself of a pain than of a pleasure. — *F. Scott Fitzgerald*"_
+_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
 
 ---
