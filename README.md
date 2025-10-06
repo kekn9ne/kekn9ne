@@ -7,6 +7,6 @@
 
 ---
 
-_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
+_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
 
 ---
