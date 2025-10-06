@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It's better to dance than to march through life. — *Yoko Ono*"_
+_"Love is merely the name for the desire and pursuit of the whole. — *Aristophanes*"_
 
 ---
