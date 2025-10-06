@@ -7,6 +7,6 @@
 
 ---
 
-_"The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become. — *Heraclitus*"_
+_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
 
 ---
