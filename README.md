@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
 
 ---
