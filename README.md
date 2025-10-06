@@ -7,6 +7,6 @@
 
 ---
 
-_"He who fails to plan, plans to fail. — *Unknown*"_
+_"The wise accomplish all that they want without arousing the envy or scorn of others. — *Ming-Dao Deng*"_
 
 ---
