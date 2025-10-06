@@ -7,6 +7,6 @@
 
 ---
 
-_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
+_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
 
 ---
