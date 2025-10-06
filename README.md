@@ -7,6 +7,6 @@
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
 
 ---
