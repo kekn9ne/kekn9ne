@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
+_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
 
 ---
