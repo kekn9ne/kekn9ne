@@ -7,6 +7,6 @@
 
 ---
 
-_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
+_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
 
 ---
