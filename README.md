@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"Success is getting what you want, happiness is wanting what you get. — *W.P. Kinsella*"_
 
 ---
