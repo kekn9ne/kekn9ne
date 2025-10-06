@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
