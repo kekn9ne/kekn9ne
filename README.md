@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
+🎧 Currently Listening: **Otobanda Polizei** by *Mass* 🎶
 
 ---
 
-_"Everybody has talent, but ability takes hard work. — *Michael Jordan*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
