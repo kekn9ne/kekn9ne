@@ -7,6 +7,6 @@
 
 ---
 
-_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
+_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
 
 ---
