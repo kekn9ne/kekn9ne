@@ -7,6 +7,6 @@
 
 ---
 
-_"A hopeless man is a very desperate and dangerous man, almost a dead man. — *Robert F. Kennedy*"_
+_"He who fails to plan, plans to fail. — *Unknown*"_
 
 ---
