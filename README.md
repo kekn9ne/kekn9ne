@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
+_"The desire for more positive experience is itself a negative experience. — *Mark Manson*"_
 
 ---
