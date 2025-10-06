@@ -7,6 +7,6 @@
 
 ---
 
-_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
