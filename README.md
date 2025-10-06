@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **☁️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kalpsiz** by *Semicenk* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
+_"Confidence is the greatest friend. — *Lao Tzu*"_
 
 ---
