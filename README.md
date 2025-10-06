@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
+🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
 
 ---
 
-_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
