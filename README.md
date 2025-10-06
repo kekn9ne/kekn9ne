@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
+_"Misfortune shows those who are not really friends. — *Aristotle*"_
 
 ---
