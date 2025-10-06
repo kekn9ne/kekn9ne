@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
