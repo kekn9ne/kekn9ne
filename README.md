@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know, the thing to do is not to get scared, but to learn. — *Ayn Rand*"_
+_"A hopeless man is a very desperate and dangerous man, almost a dead man. — *Robert F. Kennedy*"_
 
 ---
