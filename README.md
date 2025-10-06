@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest of all mistakes is to do nothing because you think you can only do a little.   — *Zig Ziglar*"_
+_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
 
 ---
