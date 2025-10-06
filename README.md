@@ -7,6 +7,6 @@
 
 ---
 
-_"Misfortune shows those who are not really friends. — *Aristotle*"_
+_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
 
 ---
