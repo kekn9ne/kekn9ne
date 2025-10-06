@@ -7,6 +7,6 @@
 
 ---
 
-_"Remain calm. Be kind. — *Colin Powell*"_
+_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
 
 ---
