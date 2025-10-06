@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
+_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
 
 ---
