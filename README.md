@@ -7,6 +7,6 @@
 
 ---
 
-_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
+_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
 
 ---
