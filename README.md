@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
+_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
 
 ---
