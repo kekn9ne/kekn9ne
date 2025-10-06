@@ -7,6 +7,6 @@
 
 ---
 
-_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
+_"The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become. — *Heraclitus*"_
 
 ---
