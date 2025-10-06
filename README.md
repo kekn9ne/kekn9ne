@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 06 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Otobanda Polizei** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
 
 ---
