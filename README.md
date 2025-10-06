@@ -7,6 +7,6 @@
 
 ---
 
-_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
+_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
 
 ---
