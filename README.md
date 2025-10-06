@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"Remain calm. Be kind. — *Colin Powell*"_
 
 ---
