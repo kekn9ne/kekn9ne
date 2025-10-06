@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
+_"Each of us is a unique strand in the intricate web of life and here to make a contribution. — *Deepak Chopra*"_
 
 ---
