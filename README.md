@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
+_"You can tell more about a person by what he says about others than you can by what others say about him. — *Audrey Hepburn*"_
 
 ---
