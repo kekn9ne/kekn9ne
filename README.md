@@ -7,6 +7,6 @@
 
 ---
 
-_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
