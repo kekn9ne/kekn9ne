@@ -7,6 +7,6 @@
 
 ---
 
-_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
