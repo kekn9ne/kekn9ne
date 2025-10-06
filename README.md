@@ -7,6 +7,6 @@
 
 ---
 
-_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
+_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
 
 ---
