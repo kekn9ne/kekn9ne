@@ -7,6 +7,6 @@
 
 ---
 
-_"True prayer has no set form. — *Morihei Ueshiba*"_
+_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
 
 ---
