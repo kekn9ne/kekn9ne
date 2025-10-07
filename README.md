@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
 
 ---
