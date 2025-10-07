@@ -7,6 +7,6 @@
 
 ---
 
-_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
