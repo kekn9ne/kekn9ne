@@ -7,6 +7,6 @@
 
 ---
 
-_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"Freedom lies in being bold. — *Robert Frost*"_
 
 ---
