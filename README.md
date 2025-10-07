@@ -7,6 +7,6 @@
 
 ---
 
-_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
+_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
 
 ---
