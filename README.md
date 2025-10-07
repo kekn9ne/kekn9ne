@@ -7,6 +7,6 @@
 
 ---
 
-_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
+_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
 
 ---
