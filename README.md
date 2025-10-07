@@ -7,6 +7,6 @@
 
 ---
 
-_"Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life.  — *Eckhart Tolle*"_
+_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
 
 ---
