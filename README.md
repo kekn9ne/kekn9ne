@@ -7,6 +7,6 @@
 
 ---
 
-_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
+_"The grass is greener where you water it. — *Neil Barringham*"_
 
 ---
