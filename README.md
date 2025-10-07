@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 07 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
+_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
 
 ---
