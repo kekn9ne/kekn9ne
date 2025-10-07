@@ -7,6 +7,6 @@
 
 ---
 
-_"If you need inspiration, don't do it. — *Elon Musk*"_
+_"The giving of love is an education in itself. — *Eleanor Roosevelt*"_
 
 ---
