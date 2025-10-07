@@ -7,6 +7,6 @@
 
 ---
 
-_"The health of nations is more important than the wealth of nations. — *Will Rogers*"_
+_"Heal the past, live the present, dream the future. — *Mary Engelbreit*"_
 
 ---
