@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
+_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
 
 ---
