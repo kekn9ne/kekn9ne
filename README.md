@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
 
 ---
