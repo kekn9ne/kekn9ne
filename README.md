@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
+_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
 
 ---
