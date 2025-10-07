@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
+_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
 
 ---
