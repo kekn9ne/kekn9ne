@@ -7,6 +7,6 @@
 
 ---
 
-_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
+_"All I can do is be me, whoever that is. — *Bob Dylan*"_
 
 ---
