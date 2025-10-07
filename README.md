@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
+_"Change is inevitable but personal growth is a choice. — *Bob Proctor*"_
 
 ---
