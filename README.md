@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot teach a crab to walk straight. — *Aristophanes*"_
+_"If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man. — *Mark Twain*"_
 
 ---
