@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
 
 ---
