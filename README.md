@@ -7,6 +7,6 @@
 
 ---
 
-_"I am thankful to all those who said no. It's because of them, I did it myself.   — *Wayne Dyer*"_
+_"If you don't like something change it; if you can't change it, change the way you think about it. — *Mary Engelbreit*"_
 
 ---
