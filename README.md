@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who realize their folly are not true fools. — *Zhuangzi*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
