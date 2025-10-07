@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 07 October 2025**  
-🌤️ Weather in Istanbul: **🌦   +19°C**  
+🌤️ Weather in Istanbul: **🌦   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
+🎧 Currently Listening: **Yol** by *Gazapizm* 🎶
 
 ---
 
-_"You miss 100% of the shots you don't take. — *Wayne Gretzky*"_
+_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
 
 ---
