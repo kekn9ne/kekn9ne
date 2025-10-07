@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 08 October 2025**  
-🌤️ Weather in Istanbul: **🌦   +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
+_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
 
 ---
