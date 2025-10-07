@@ -7,6 +7,6 @@
 
 ---
 
-_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
 
 ---
