@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
