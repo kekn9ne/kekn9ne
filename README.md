@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
+_"Genius, in truth, means little more than the faculty of perceiving in an unhabitual way. — *William James*"_
 
 ---
