@@ -7,6 +7,6 @@
 
 ---
 
-_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
+_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
 
 ---
