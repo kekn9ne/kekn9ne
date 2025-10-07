@@ -7,6 +7,6 @@
 
 ---
 
-_"A man should do his job so well that the living, the dead, and the unborn could do it no better. — *Martin Luther King, Jr.*"_
+_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
 
 ---
