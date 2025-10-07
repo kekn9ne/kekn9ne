@@ -7,6 +7,6 @@
 
 ---
 
-_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
+_"Those who realize their folly are not true fools. — *Zhuangzi*"_
 
 ---
