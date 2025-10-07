@@ -7,6 +7,6 @@
 
 ---
 
-_"Being in a good frame of mind helps keep one in the picture of health. — *Unknown*"_
+_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
 
 ---
