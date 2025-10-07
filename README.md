@@ -7,6 +7,6 @@
 
 ---
 
-_"Passion is energy. Feel the power that comes from focusing on what excites you.  — *Oprah Winfrey*"_
+_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
 
 ---
