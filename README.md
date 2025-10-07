@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
+_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
 
 ---
