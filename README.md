@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine. — *Roy T. Bennett*"_
+_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
 
 ---
