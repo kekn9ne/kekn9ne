@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are the clothes thoughts wear. — *Samuel Beckett*"_
+_"People inspire you, or they drain you. Pick them wisely. — *Les Brown*"_
 
 ---
