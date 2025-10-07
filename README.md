@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 07 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A lie can travel half way around the world while the truth is putting on its shoes. — *Mark Twain*"_
+_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
 
 ---
