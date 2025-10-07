@@ -7,6 +7,6 @@
 
 ---
 
-_"If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man. — *Mark Twain*"_
+_"Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life.  — *Eckhart Tolle*"_
 
 ---
