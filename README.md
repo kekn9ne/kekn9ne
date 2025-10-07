@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 07 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Burası Dünya Değil** by *Hidra* 🎶
+🎧 Currently Listening: **Uzak** by *Kayra* 🎶
 
 ---
 
-_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
