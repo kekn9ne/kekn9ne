@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 07 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Yol** by *Gazapizm* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
+_"I would rather die on my feet than live on my knees. — *Euripides*"_
 
 ---
