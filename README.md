@@ -7,6 +7,6 @@
 
 ---
 
-_"The impossible can always be broken down into possibilities. — *Unknown*"_
+_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
 
 ---
