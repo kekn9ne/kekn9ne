@@ -7,6 +7,6 @@
 
 ---
 
-_"Life doesn't get easier or more forgiving, we get stronger and more resilient. — *Steve Maraboli*"_
+_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
 
 ---
