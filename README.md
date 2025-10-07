@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 07 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne İşim Var Benim** by *Swanches* 🎶
+🎧 Currently Listening: **Burası Dünya Değil** by *Hidra* 🎶
 
 ---
 
-_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
+_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
 
 ---
