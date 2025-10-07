@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
+_"You cannot teach a crab to walk straight. — *Aristophanes*"_
 
 ---
