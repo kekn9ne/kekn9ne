@@ -7,6 +7,6 @@
 
 ---
 
-_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
+_"The health of nations is more important than the wealth of nations. — *Will Rogers*"_
 
 ---
