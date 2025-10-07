@@ -7,6 +7,6 @@
 
 ---
 
-_"People inspire you, or they drain you. Pick them wisely. — *Les Brown*"_
+_"Being in a good frame of mind helps keep one in the picture of health. — *Unknown*"_
 
 ---
