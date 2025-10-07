@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
