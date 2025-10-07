@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom lies in being bold. — *Robert Frost*"_
+_"Words are the clothes thoughts wear. — *Samuel Beckett*"_
 
 ---
