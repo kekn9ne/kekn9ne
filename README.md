@@ -7,6 +7,6 @@
 
 ---
 
-_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
