@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
+_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
 
 ---
