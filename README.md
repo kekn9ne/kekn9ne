@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the ability, now apply yourself. — *Benjamin Mays*"_
+_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
 
 ---
