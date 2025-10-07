@@ -7,6 +7,6 @@
 
 ---
 
-_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
+_"A man should do his job so well that the living, the dead, and the unborn could do it no better. — *Martin Luther King, Jr.*"_
 
 ---
