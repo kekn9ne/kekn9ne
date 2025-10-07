@@ -7,6 +7,6 @@
 
 ---
 
-_"Heal the past, live the present, dream the future. — *Mary Engelbreit*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
