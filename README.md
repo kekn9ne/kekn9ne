@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is inevitable but personal growth is a choice. — *Bob Proctor*"_
+_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
 
 ---
