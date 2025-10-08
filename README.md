@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart that gives, gathers. — *Lao Tzu*"_
+_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
 
 ---
