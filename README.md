@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 08 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
+🎧 Currently Listening: **Geceler Şahit** by *Etki* 🎶
 
 ---
 
-_"The way we feel is the direct result of what we think. — *Peter A. Cohen*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
