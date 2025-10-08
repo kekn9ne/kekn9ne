@@ -7,6 +7,6 @@
 
 ---
 
-_"Rivers know this: there is no hurry. We shall get there some day. — *A.A. Milne*"_
+_"Don't hate the player. Change the game. — *Steve Harvey*"_
 
 ---
