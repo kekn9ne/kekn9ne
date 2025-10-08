@@ -7,6 +7,6 @@
 
 ---
 
-_"Just do the best you can. No one can do more than that. — *John Wooden*"_
+_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
 
 ---
