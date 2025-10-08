@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"What the mind can conceive and believe, and the heart desire, you can achieve. — *Norman Vincent Peale*"_
 
 ---
