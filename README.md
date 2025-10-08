@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
+_"Nature does not hurry, yet everything is accomplished. — *Lao Tzu*"_
 
 ---
