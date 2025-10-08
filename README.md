@@ -7,6 +7,6 @@
 
 ---
 
-_"Nature does not hurry, yet everything is accomplished. — *Lao Tzu*"_
+_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
 
 ---
