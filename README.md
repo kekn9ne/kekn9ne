@@ -7,6 +7,6 @@
 
 ---
 
-_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
+_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
 
 ---
