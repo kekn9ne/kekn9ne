@@ -7,6 +7,6 @@
 
 ---
 
-_"If you throw away all thoughts of attainment, you will then come to see the real purpose of your quest. — *Seungsahn*"_
+_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
 
 ---
