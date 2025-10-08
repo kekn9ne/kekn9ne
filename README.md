@@ -7,6 +7,6 @@
 
 ---
 
-_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
+_"No man is happy unless he believes he is. — *Publilius Syrus*"_
 
 ---
