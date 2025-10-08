@@ -7,6 +7,6 @@
 
 ---
 
-_"If I persist long enough I will win. — *Og Mandino*"_
+_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
 
 ---
