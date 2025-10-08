@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes things become possible if we want them bad enough. — *T.S. Eliot*"_
+_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
 
 ---
