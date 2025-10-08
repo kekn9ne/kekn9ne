@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to value yourself, which means: fight for your happiness. — *Ayn Rand*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
