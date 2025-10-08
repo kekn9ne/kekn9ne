@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"Show me a hero, and I'll write you a tragedy. — *F. Scott Fitzgerald*"_
 
 ---
