@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
+_"Work for something because it is good, not just because it stands a chance to succeed. — *Vaclav Havel*"_
 
 ---
