@@ -7,6 +7,6 @@
 
 ---
 
-_"Monsters are real, and ghosts are real too. They live inside us, and sometimes, they win. — *Stephen King*"_
+_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
 
 ---
