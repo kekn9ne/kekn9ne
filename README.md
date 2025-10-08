@@ -7,6 +7,6 @@
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being. — *Anita Krizzan*"_
 
 ---
