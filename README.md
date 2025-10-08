@@ -7,6 +7,6 @@
 
 ---
 
-_"I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear. — *Nelson Mandela*"_
+_"Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything. — *Shunryu Suzuki*"_
 
 ---
