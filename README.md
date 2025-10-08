@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
 
 ---
