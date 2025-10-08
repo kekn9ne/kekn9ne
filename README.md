@@ -7,6 +7,6 @@
 
 ---
 
-_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
+_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
 
 ---
