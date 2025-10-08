@@ -7,6 +7,6 @@
 
 ---
 
-_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
+_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
 
 ---
