@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
+_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
 
 ---
