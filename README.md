@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
+_"The heart that gives, gathers. — *Lao Tzu*"_
 
 ---
