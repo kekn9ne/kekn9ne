@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
+_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
 
 ---
