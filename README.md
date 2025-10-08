@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it. — *Celestine Chua*"_
+_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
 
 ---
