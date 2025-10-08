@@ -7,6 +7,6 @@
 
 ---
 
-_"Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything. — *Shunryu Suzuki*"_
+_"I am always doing that which I can not do, in order that I may learn how to do it. — *Pablo Picasso*"_
 
 ---
