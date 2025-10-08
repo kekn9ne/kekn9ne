@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
+_"Only when one allows themself the right to die, do they then give yourself the permission to live. — *C. Sean McGee*"_
 
 ---
