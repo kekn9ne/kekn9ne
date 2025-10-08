@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 08 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Piskopat** by *Hayat* 🎶
+🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
 
 ---
 
-_"Believe that life is worth living and your belief will help create the fact. — *William James*"_
+_"The way we feel is the direct result of what we think. — *Peter A. Cohen*"_
 
 ---
