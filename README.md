@@ -7,6 +7,6 @@
 
 ---
 
-_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
+_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
 
 ---
