@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything has beauty but not everyone sees it. — *Confucius*"_
+_"Learn to value yourself, which means: fight for your happiness. — *Ayn Rand*"_
 
 ---
