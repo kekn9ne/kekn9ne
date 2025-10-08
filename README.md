@@ -7,6 +7,6 @@
 
 ---
 
-_"On the other side of the clouds is a bright blue sky. — *Unknown*"_
+_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
 
 ---
