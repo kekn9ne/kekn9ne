@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect was invented to cover the empty place where love should be. — *Leo Tolstoy*"_
+_"Everything has beauty but not everyone sees it. — *Confucius*"_
 
 ---
