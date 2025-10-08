@@ -7,6 +7,6 @@
 
 ---
 
-_"The past has no power over the present moment.  — *Eckhart Tolle*"_
+_"I can live without money, but I cannot live without love. — *Judy Garland*"_
 
 ---
