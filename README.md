@@ -7,6 +7,6 @@
 
 ---
 
-_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
+_"On the other side of the clouds is a bright blue sky. — *Unknown*"_
 
 ---
