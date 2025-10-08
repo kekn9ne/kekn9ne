@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 08 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **AFFETMEM** by *BLOK3* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
+_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
 
 ---
