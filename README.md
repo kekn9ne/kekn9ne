@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 08 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
 
 ---
 
-_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
+_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
 
 ---
