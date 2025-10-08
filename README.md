@@ -7,6 +7,6 @@
 
 ---
 
-_"The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it. — *Carl Jung*"_
+_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
 
 ---
