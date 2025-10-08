@@ -7,6 +7,6 @@
 
 ---
 
-_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
+_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
 
 ---
