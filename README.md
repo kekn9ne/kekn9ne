@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't hate the player. Change the game. — *Steve Harvey*"_
+_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
 
 ---
