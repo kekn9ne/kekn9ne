@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
