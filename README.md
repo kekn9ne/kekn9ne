@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
+_"Don't spend major time on minor things. — *Jim Rohn*"_
 
 ---
