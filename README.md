@@ -7,6 +7,6 @@
 
 ---
 
-_"A man should do his job so well that the living, the dead, and the unborn could do it no better. — *Martin Luther King, Jr.*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
