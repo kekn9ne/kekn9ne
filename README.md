@@ -7,6 +7,6 @@
 
 ---
 
-_"Work for something because it is good, not just because it stands a chance to succeed. — *Vaclav Havel*"_
+_"The only real security that a man can have in this world is a reserve of knowledge, experience and ability.  — *Henry Ford*"_
 
 ---
