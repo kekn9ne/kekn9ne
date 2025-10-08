@@ -7,6 +7,6 @@
 
 ---
 
-_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
