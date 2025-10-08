@@ -7,6 +7,6 @@
 
 ---
 
-_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
