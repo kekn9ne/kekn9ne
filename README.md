@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 08 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Behzat ç 2.0** by *lexian* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Age is a very high price to pay for maturity. — *William James*"_
+_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
 
 ---
