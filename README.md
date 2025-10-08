@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't spend major time on minor things. — *Jim Rohn*"_
+_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
 
 ---
