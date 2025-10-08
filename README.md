@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy unless he believes he is. — *Publilius Syrus*"_
+_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
 
 ---
