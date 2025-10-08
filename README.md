@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being. — *Anita Krizzan*"_
+_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
 
 ---
