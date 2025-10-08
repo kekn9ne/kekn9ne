@@ -7,6 +7,6 @@
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"If I persist long enough I will win. — *Og Mandino*"_
 
 ---
