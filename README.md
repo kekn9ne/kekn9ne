@@ -7,6 +7,6 @@
 
 ---
 
-_"When the time is gone, you can never get it back. — *Stephen King*"_
+_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
 
 ---
