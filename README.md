@@ -7,6 +7,6 @@
 
 ---
 
-_"Where the willingness is great, the difficulties cannot be great. — *Niccolo Machiavelli*"_
+_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
 
 ---
