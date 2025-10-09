@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that. — *Eckhart Tolle*"_
 
 ---
