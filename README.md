@@ -7,6 +7,6 @@
 
 ---
 
-_"The privilege of a lifetime is to become who you truly are. — *Carl Jung*"_
+_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
 
 ---
