@@ -7,6 +7,6 @@
 
 ---
 
-_"The trouble with the rat race is that even if you win, you're still a rat. — *Lily Tomlin*"_
+_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
 
 ---
