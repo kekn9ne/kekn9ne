@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is the signature of civilizations.  — *Beverly Sills*"_
+_"Never do things others can do and will do if there are things others cannot do or will not do. — *Amelia Earhart*"_
 
 ---
