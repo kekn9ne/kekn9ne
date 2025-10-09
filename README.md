@@ -7,6 +7,6 @@
 
 ---
 
-_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
+_"Words can only have a positive effect on others if and when they are ready to listen. — *Christopher Reeve*"_
 
 ---
