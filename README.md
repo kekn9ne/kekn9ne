@@ -7,6 +7,6 @@
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"If you truly expect something to be difficult, it will be. — *Peter A. Cohen*"_
 
 ---
