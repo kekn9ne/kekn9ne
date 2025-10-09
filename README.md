@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne İçin Yaşıyorum** by *Şanışer* 🎶
+🎧 Currently Listening: **Siyah Kelebekler** by *Motive* 🎶
 
 ---
 
-_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
+_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
 
 ---
