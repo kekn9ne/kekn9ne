@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
 
 ---
