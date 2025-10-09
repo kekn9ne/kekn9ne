@@ -7,6 +7,6 @@
 
 ---
 
-_"Challenge yourself to find the good and beautiful thing inside of everyone. — *Mark Manson*"_
+_"When you move beyond your fear, you feel free. — *Spencer Johnson*"_
 
 ---
