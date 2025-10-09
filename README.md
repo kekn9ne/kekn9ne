@@ -7,6 +7,6 @@
 
 ---
 
-_"We must cultivate our garden.  — *Voltaire*"_
+_"An un-examined life is not worth living. — *Socrates*"_
 
 ---
