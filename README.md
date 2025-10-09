@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Geceler Şahit** by *Etki* 🎶
+🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
 
 ---
 
-_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
+_"Never spend your money before you have earned it. — *Thomas Jefferson*"_
 
 ---
