@@ -7,6 +7,6 @@
 
 ---
 
-_"Faults are yours to fix, not to curse. — *Colin Powell*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
