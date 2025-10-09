@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn from the mistakes of others. You can't live long enough to make them all yourself. — *Eleanor Roosevelt*"_
+_"Where the willingness is great, the difficulties cannot be great. — *Niccolo Machiavelli*"_
 
 ---
