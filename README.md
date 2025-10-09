@@ -7,6 +7,6 @@
 
 ---
 
-_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
+_"When the time is gone, you can never get it back. — *Stephen King*"_
 
 ---
