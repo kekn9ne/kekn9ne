@@ -7,6 +7,6 @@
 
 ---
 
-_"Enlightenment is intimacy with all things. — *Dogen*"_
+_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
 
 ---
