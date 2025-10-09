@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 10 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Hüsran Hepsi** by *Şanışer* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
+_"The privilege of a lifetime is to become who you truly are. — *Carl Jung*"_
 
 ---
