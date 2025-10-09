@@ -7,6 +7,6 @@
 
 ---
 
-_"Expect the best, plan for the worst, and prepare to be surprised.  — *Denis Waitley*"_
+_"Life is not just the passing of time. Life is the collection of experiences and their intensity. — *Jim Rohn*"_
 
 ---
