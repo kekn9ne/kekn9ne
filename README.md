@@ -7,6 +7,6 @@
 
 ---
 
-_"Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand. — *Colin Powell*"_
+_"Be kind, for everyone you meet is fighting a harder battle. — *Plato*"_
 
 ---
