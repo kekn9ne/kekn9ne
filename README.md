@@ -7,6 +7,6 @@
 
 ---
 
-_"Becoming a great leader doesn't mean being perfect. it means living with your imperfections. — *Lolly Daskal*"_
+_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
 
 ---
