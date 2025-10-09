@@ -7,6 +7,6 @@
 
 ---
 
-_"Life begins where fear ends. — *Osho*"_
+_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
 
 ---
