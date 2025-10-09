@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
+🎧 Currently Listening: **aklına ben gelicem** by *BLOK3* 🎶
 
 ---
 
-_"Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work. — *John Eliot*"_
+_"Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become. — *Paramahansa Yogananda*"_
 
 ---
