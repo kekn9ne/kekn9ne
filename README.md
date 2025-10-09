@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
+_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
 
 ---
