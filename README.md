@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bu Sefer Sorun Bende** by *Sokrat St* 🎶
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"Success is never final; failure is never fatal. — *Conrad Hilton*"_
 
 ---
