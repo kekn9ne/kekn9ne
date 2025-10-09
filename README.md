@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Siyah Kelebekler** by *Motive* 🎶
+🎧 Currently Listening: **Bunu Sen Seçtin** by *Sokrat St* 🎶
 
 ---
 
-_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
