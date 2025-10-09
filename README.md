@@ -7,6 +7,6 @@
 
 ---
 
-_"If you truly expect something to be difficult, it will be. — *Peter A. Cohen*"_
+_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
 
 ---
