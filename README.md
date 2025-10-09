@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
+🎧 Currently Listening: **Bana Birseyler Soyle** by *Kartax* 🎶
 
 ---
 
-_"Never spend your money before you have earned it. — *Thomas Jefferson*"_
+_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
 
 ---
