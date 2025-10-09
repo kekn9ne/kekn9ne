@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
+_"Live the moment for the moment. — *Michael Jordan*"_
 
 ---
