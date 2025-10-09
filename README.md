@@ -7,6 +7,6 @@
 
 ---
 
-_"When you move beyond your fear, you feel free. — *Spencer Johnson*"_
+_"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.   — *Ray Bradbury*"_
 
 ---
