@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
+_"Becoming a great leader doesn't mean being perfect. it means living with your imperfections. — *Lolly Daskal*"_
 
 ---
