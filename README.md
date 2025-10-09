@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing is not enough, we must apply. Willing is not enough, we must do. — *Johann Wolfgang von Goethe*"_
+_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
 
 ---
