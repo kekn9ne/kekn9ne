@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
+_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
 
 ---
