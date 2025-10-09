@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
+_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
 
 ---
