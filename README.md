@@ -7,6 +7,6 @@
 
 ---
 
-_"Never do things others can do and will do if there are things others cannot do or will not do. — *Amelia Earhart*"_
+_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
 
 ---
