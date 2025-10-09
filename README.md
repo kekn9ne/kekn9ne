@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **MAHALLE** by *ERAY067* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
+_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
 
 ---
