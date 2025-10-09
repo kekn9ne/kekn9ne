@@ -7,6 +7,6 @@
 
 ---
 
-_"Be kind, for everyone you meet is fighting a harder battle. — *Plato*"_
+_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
 
 ---
