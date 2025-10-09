@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
+_"Instead of being intimidated by the limitations, be inspired to find new ways around them. — *Ralph Marston*"_
 
 ---
