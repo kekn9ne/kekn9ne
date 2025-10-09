@@ -7,6 +7,6 @@
 
 ---
 
-_"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that. — *Eckhart Tolle*"_
+_"Faults are yours to fix, not to curse. — *Colin Powell*"_
 
 ---
