@@ -7,6 +7,6 @@
 
 ---
 
-_"The best teacher is experience and not through someone's distorted point of view. — *Jack Kerouac*"_
+_"Expect the best, plan for the worst, and prepare to be surprised.  — *Denis Waitley*"_
 
 ---
