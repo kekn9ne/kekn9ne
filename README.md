@@ -7,6 +7,6 @@
 
 ---
 
-_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
+_"Enlightenment is intimacy with all things. — *Dogen*"_
 
 ---
