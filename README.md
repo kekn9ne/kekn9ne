@@ -7,6 +7,6 @@
 
 ---
 
-_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
+_"Know your gifts and share them. — *Les Brown*"_
 
 ---
