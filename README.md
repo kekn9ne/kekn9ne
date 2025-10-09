@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope is not a strategy. Luck is not a factor. Fear is not an option. — *James Cameron*"_
+_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
 
 ---
