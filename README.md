@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"We must create our own world or we will die from inaction. — *Robert Greene*"_
 
 ---
