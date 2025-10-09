@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
