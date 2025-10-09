@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not just the passing of time. Life is the collection of experiences and their intensity. — *Jim Rohn*"_
+_"Hope is not a strategy. Luck is not a factor. Fear is not an option. — *James Cameron*"_
 
 ---
