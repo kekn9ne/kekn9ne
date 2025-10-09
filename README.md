@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Geceler Şahit** by *Etki* 🎶
+🎧 Currently Listening: **AFFETMEM** by *BLOK3* 🎶
 
 ---
 
-_"Never feel shame for trying and failing, for he who has never failed is he who has never tried. — *Og Mandino*"_
+_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
 
 ---
