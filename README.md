@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember we're all in this alone. — *Lily Tomlin*"_
+_"Knowing is not enough, we must apply. Willing is not enough, we must do. — *Johann Wolfgang von Goethe*"_
 
 ---
