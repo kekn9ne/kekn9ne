@@ -7,6 +7,6 @@
 
 ---
 
-_"Know your gifts and share them. — *Les Brown*"_
+_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
 
 ---
