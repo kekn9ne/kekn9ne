@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 09 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Bu Sefer Sorun Bende** by *Sokrat St* 🎶
+🎧 Currently Listening: **Geceler Şahit** by *Etki* 🎶
 
 ---
 
-_"Success is never final; failure is never fatal. — *Conrad Hilton*"_
+_"Never feel shame for trying and failing, for he who has never failed is he who has never tried. — *Og Mandino*"_
 
 ---
