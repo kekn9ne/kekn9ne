@@ -7,6 +7,6 @@
 
 ---
 
-_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
