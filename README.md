@@ -7,6 +7,6 @@
 
 ---
 
-_"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.   — *Ray Bradbury*"_
+_"Life is not always a matter of holding good cards, but sometimes, playing a poor hand well.  — *Jack London*"_
 
 ---
