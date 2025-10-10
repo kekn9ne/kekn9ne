@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
 
 ---
