@@ -7,6 +7,6 @@
 
 ---
 
-_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
