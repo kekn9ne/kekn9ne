@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
+_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
 
 ---
