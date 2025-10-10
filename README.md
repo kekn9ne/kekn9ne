@@ -7,6 +7,6 @@
 
 ---
 
-_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
+_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
 
 ---
