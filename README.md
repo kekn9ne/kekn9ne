@@ -7,6 +7,6 @@
 
 ---
 
-_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
+_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
 
 ---
