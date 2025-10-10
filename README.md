@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
+_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
 
 ---
