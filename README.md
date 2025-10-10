@@ -7,6 +7,6 @@
 
 ---
 
-_"Intense love does not measure, it just gives. — *Mother Teresa*"_
+_"It's beautiful to be alone. To be alone does not mean to be lonely. It means the mind is not influenced and contaminated by society. — *Jiddu Krishnamurti*"_
 
 ---
