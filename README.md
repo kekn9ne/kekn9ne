@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
 
 ---
