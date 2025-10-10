@@ -7,6 +7,6 @@
 
 ---
 
-_"Forgive those who have hurt you. — *Les Brown*"_
+_"Judge your success by what you had to give up in order to get it. — *Dalai Lama*"_
 
 ---
