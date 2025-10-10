@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
+_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
 
 ---
