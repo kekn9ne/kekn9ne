@@ -7,6 +7,6 @@
 
 ---
 
-_"Decide upon your major definite purpose in life and then organize all your activities around it. — *Brian Tracy*"_
+_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
 
 ---
