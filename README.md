@@ -7,6 +7,6 @@
 
 ---
 
-_"In all chaos there is a cosmos, in all disorder a secret order. — *Carl Jung*"_
+_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
 
 ---
