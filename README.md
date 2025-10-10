@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power! — *Robert Kiyosaki*"_
+_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
 
 ---
