@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
+_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
 
 ---
