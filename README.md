@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
+_"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — *Alfred Adler*"_
 
 ---
