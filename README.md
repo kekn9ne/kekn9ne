@@ -7,6 +7,6 @@
 
 ---
 
-_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
+_"Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams. — *Robert Greene*"_
 
 ---
