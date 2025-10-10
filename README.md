@@ -7,6 +7,6 @@
 
 ---
 
-_"Reversing your treatment of the man you have wronged is better than asking his forgiveness. — *Elbert Hubbard*"_
+_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
 
 ---
