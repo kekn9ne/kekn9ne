@@ -7,6 +7,6 @@
 
 ---
 
-_"All power is from within and therefore under our control. — *Robert Collier*"_
+_"Listen to what you know instead of what you fear. — *Richard Bach*"_
 
 ---
