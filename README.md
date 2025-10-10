@@ -7,6 +7,6 @@
 
 ---
 
-_"When you have to make a choice and don't make it, that is in itself a choice. — *William James*"_
+_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
 
 ---
