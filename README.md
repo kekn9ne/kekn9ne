@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
+_"The purpose of life is the life of purpose. — *Robin Sharma*"_
 
 ---
