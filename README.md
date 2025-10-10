@@ -7,6 +7,6 @@
 
 ---
 
-_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
+_"Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don't have to have it all figured out to move forward. — *Roy T. Bennett*"_
 
 ---
