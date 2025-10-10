@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence breeds beauty.   — *Estee Lauder*"_
+_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
 
 ---
