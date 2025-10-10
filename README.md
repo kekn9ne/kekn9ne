@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"When you have to make a choice and don't make it, that is in itself a choice. — *William James*"_
 
 ---
