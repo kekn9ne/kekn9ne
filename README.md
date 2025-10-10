@@ -7,6 +7,6 @@
 
 ---
 
-_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
+_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
 
 ---
