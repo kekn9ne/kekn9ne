@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. — *Deepak Chopra*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
