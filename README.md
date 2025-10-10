@@ -7,6 +7,6 @@
 
 ---
 
-_"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — *Alfred Adler*"_
+_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
 
 ---
