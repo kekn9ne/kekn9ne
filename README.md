@@ -7,6 +7,6 @@
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"Judge a man by his questions rather than his answers. — *Voltaire*"_
 
 ---
