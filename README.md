@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
 
 ---
