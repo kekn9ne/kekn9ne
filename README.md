@@ -7,6 +7,6 @@
 
 ---
 
-_"To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to. — *Kahlil Gibran*"_
+_"It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power! — *Robert Kiyosaki*"_
 
 ---
