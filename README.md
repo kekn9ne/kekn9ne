@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever happened, happened for the good. Whatever is happening, is happening for the good. Whatever will happen, will also happen for the good. — *Bhagavad Gita*"_
+_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
 
 ---
