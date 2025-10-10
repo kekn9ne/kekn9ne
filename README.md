@@ -7,6 +7,6 @@
 
 ---
 
-_"Judge your success by what you had to give up in order to get it. — *Dalai Lama*"_
+_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
 
 ---
