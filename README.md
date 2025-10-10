@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"Change yourself and you have done your part in changing the world. — *Paramahansa Yogananda*"_
 
 ---
