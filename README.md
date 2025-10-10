@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is destiny. — *Heraclitus*"_
+_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
 
 ---
