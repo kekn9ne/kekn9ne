@@ -7,6 +7,6 @@
 
 ---
 
-_"Circumstances rule men; men do not rule circumstances.  — *Herodotus*"_
+_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
 
 ---
