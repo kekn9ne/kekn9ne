@@ -7,6 +7,6 @@
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
 
 ---
