@@ -7,6 +7,6 @@
 
 ---
 
-_"When it hurts - observe. Life is trying to teach you something. — *Anita Krizzan*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
