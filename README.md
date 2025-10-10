@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
+_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
 
 ---
