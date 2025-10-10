@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 10 October 2025**  
-🌤️ Weather in Istanbul: **Unknown location; please try ~41.03508,28.98331**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Change yourself and you have done your part in changing the world. — *Paramahansa Yogananda*"_
+_"Every time you are tempted to react in the same old way, ask if you want to be a prisoner of the past or a pioneer of the future. — *Deepak Chopra*"_
 
 ---
