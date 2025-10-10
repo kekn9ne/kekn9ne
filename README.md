@@ -7,6 +7,6 @@
 
 ---
 
-_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
+_"Decide upon your major definite purpose in life and then organize all your activities around it. — *Brian Tracy*"_
 
 ---
