@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is like money, easier made than kept. — *Samuel Butler*"_
+_"Some people want it to happen, some wish it would happen, others make it happen. — *Michael Jordan*"_
 
 ---
