@@ -7,6 +7,6 @@
 
 ---
 
-_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
+_"The only limits in your life are those that you set yourself. — *Celestine Chua*"_
 
 ---
