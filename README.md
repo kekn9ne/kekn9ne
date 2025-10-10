@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
+_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
 
 ---
