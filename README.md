@@ -7,6 +7,6 @@
 
 ---
 
-_"Challenge yourself to find the good and beautiful thing inside of everyone. — *Mark Manson*"_
+_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
 
 ---
