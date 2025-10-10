@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"Real learning comes about when the competitive spirit has ceased. — *Jiddu Krishnamurti*"_
 
 ---
