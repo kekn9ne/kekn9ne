@@ -7,6 +7,6 @@
 
 ---
 
-_"Things may come to those who wait, but only the things left by those who hustle. — *Abraham Lincoln*"_
+_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
 
 ---
