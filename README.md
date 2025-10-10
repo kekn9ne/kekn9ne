@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
+_"Love is the absence of judgment. — *Dalai Lama*"_
 
 ---
