@@ -7,6 +7,6 @@
 
 ---
 
-_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
+_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
 
 ---
