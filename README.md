@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people want it to happen, some wish it would happen, others make it happen. — *Michael Jordan*"_
+_"When it hurts - observe. Life is trying to teach you something. — *Anita Krizzan*"_
 
 ---
