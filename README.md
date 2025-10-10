@@ -7,6 +7,6 @@
 
 ---
 
-_"You will succeed because most people are lazy. — *Shahir Zag*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
