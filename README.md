@@ -7,6 +7,6 @@
 
 ---
 
-_"The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence. — *Josh Waitzkin*"_
+_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
 
 ---
