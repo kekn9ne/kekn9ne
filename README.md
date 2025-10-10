@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
+_"Whatever your heart clings to and confides in, that is really your God. — *Martin Luther*"_
 
 ---
