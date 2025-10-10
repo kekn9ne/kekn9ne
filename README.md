@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
+_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
 
 ---
