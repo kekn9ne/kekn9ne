@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
+_"Reversing your treatment of the man you have wronged is better than asking his forgiveness. — *Elbert Hubbard*"_
 
 ---
