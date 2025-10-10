@@ -7,6 +7,6 @@
 
 ---
 
-_"Real learning comes about when the competitive spirit has ceased. — *Jiddu Krishnamurti*"_
+_"If it's not broken, tinker with it till you find out how it works. — *Bob Proctor*"_
 
 ---
