@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the life of purpose. — *Robin Sharma*"_
+_"You will succeed because most people are lazy. — *Shahir Zag*"_
 
 ---
