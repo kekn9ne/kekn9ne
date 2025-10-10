@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
 
 ---
