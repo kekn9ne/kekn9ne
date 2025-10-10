@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
+_"All power is from within and therefore under our control. — *Robert Collier*"_
 
 ---
