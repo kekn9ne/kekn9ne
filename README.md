@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever your heart clings to and confides in, that is really your God. — *Martin Luther*"_
+_"Things may come to those who wait, but only the things left by those who hustle. — *Abraham Lincoln*"_
 
 ---
