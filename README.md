@@ -7,6 +7,6 @@
 
 ---
 
-_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
+_"A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties. — *Harry S. Truman*"_
 
 ---
