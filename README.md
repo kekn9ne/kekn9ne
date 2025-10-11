@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is stupid. So are regrets. — *Marilyn Monroe*"_
+_"Behind every beautiful thing, there's some kind of pain. — *Bob Dylan*"_
 
 ---
