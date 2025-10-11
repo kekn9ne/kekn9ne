@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing your own darkness is the best method for dealing with the darknesses of other people. — *Carl Jung*"_
+_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
 
 ---
