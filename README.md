@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Caney** by *UZI* 🎶
+🎧 Currently Listening: **Yarım Kalan Sigara** by *No.1* 🎶
 
 ---
 
-_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
