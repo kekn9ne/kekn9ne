@@ -7,6 +7,6 @@
 
 ---
 
-_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
+_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
 
 ---
