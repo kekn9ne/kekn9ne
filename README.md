@@ -7,6 +7,6 @@
 
 ---
 
-_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
+_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
 
 ---
