@@ -7,6 +7,6 @@
 
 ---
 
-_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
+_"The more you extend kindness to yourself, the more it will become your automatic response to others. — *Wayne Dyer*"_
 
 ---
