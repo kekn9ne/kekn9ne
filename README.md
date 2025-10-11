@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
+_"Dreams are the royal road to the unconscious.  — *Sigmund Freud*"_
 
 ---
