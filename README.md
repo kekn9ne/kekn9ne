@@ -7,6 +7,6 @@
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
