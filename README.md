@@ -7,6 +7,6 @@
 
 ---
 
-_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
+_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
 
 ---
