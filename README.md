@@ -7,6 +7,6 @@
 
 ---
 
-_"If there is a book that you want to read, but it hasn't been written yet, then you must write it. — *Toni Morrison*"_
+_"When one door closes another door opens.  — *Alexander Graham Bell*"_
 
 ---
