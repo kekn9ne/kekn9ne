@@ -7,6 +7,6 @@
 
 ---
 
-_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
+_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
 
 ---
