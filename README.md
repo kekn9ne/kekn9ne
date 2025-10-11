@@ -7,6 +7,6 @@
 
 ---
 
-_"All life is an experiment. The more experiments you make, the better. — *Ralph Waldo Emerson*"_
+_"Out of your vulnerabilities will come your strength. — *Sigmund Freud*"_
 
 ---
