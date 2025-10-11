@@ -7,6 +7,6 @@
 
 ---
 
-_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
+_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
 
 ---
