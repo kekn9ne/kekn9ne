@@ -7,6 +7,6 @@
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
