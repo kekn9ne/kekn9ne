@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
+_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
 
 ---
