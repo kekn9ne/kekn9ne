@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Hüsran Hepsi** by *Şanışer* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
+_"The greatest treasures are those invisible to the eye but found by the heart. — *Judy Garland*"_
 
 ---
