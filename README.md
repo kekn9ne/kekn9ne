@@ -7,6 +7,6 @@
 
 ---
 
-_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
+_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
 
 ---
