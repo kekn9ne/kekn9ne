@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
+_"Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it. — *James Matthew Barrie*"_
 
 ---
