@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
+_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
 
 ---
