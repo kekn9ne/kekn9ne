@@ -7,6 +7,6 @@
 
 ---
 
-_"If you put water into a cup, it becomes the cup. — *Bruce Lee*"_
+_"If you are far from the enemy, make him believe you are near. — *Sun Tzu*"_
 
 ---
