@@ -7,6 +7,6 @@
 
 ---
 
-_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
+_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
 
 ---
