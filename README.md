@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
 
 ---
