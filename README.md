@@ -7,6 +7,6 @@
 
 ---
 
-_"Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams. — *Robert Greene*"_
+_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
 
 ---
