@@ -7,6 +7,6 @@
 
 ---
 
-_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
+_"I was wise enough to never grow up while fooling most people into believing I had.  — *Margaret Mead*"_
 
 ---
