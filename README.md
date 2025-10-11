@@ -7,6 +7,6 @@
 
 ---
 
-_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
+_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
 
 ---
