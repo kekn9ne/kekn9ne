@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
+_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
 
 ---
