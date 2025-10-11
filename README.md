@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more. — *Tony Robbins*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
