@@ -7,6 +7,6 @@
 
 ---
 
-_"A path is made by walking on it. — *Zhuangzi*"_
+_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
 
 ---
