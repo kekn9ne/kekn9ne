@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
+_"When one door closes another door opens.  — *Alexander Graham Bell*"_
 
 ---
