@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hüsran Hepsi** by *Şanışer* 🎶
 
 ---
 
-_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
+_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
 
 ---
