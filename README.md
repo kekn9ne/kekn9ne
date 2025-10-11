@@ -7,6 +7,6 @@
 
 ---
 
-_"The more one judges, the less one loves. — *Honore de Balzac*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
