@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is stupid. So are regrets. — *Marilyn Monroe*"_
+_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
 
 ---
