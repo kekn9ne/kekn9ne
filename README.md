@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul'da Doğmayan Güneş (feat. Kodes Kahra, Kayra & Vinyl Obscura)** by *Farazi* 🎶
+🎧 Currently Listening: **Tehlikeli Bölge** by *Derris* 🎶
 
 ---
 
-_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
+_"The saddest aspect of life is that there is no one on earth whose happiness is such that he won't sometimes wish he were dead rather than alive. — *Herodotus*"_
 
 ---
