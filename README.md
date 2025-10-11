@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
+_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
 
 ---
