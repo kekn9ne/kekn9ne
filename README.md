@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
+_"You are the only problem you will ever have and you are the only solution. — *Bob Proctor*"_
 
 ---
