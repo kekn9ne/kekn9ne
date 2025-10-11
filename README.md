@@ -7,6 +7,6 @@
 
 ---
 
-_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
+_"Knowing your own darkness is the best method for dealing with the darknesses of other people. — *Carl Jung*"_
 
 ---
