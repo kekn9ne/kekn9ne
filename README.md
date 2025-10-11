@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
+_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
 
 ---
