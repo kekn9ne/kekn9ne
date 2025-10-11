@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
