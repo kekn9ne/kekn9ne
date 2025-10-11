@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace. — *Earl Nightingale*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
