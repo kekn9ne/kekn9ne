@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest treasures are those invisible to the eye but found by the heart. — *Judy Garland*"_
+_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
 
 ---
