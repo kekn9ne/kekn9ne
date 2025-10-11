@@ -7,6 +7,6 @@
 
 ---
 
-_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
+_"The more one judges, the less one loves. — *Honore de Balzac*"_
 
 ---
