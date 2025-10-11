@@ -7,6 +7,6 @@
 
 ---
 
-_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
+_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
 
 ---
