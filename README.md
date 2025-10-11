@@ -7,6 +7,6 @@
 
 ---
 
-_"Out of your vulnerabilities will come your strength. — *Sigmund Freud*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
