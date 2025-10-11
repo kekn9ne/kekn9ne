@@ -7,6 +7,6 @@
 
 ---
 
-_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
+_"Never do things others can do and will do if there are things others cannot do or will not do. — *Amelia Earhart*"_
 
 ---
