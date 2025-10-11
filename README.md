@@ -7,6 +7,6 @@
 
 ---
 
-_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
+_"All life is an experiment. The more experiments you make, the better. — *Ralph Waldo Emerson*"_
 
 ---
