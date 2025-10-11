@@ -7,6 +7,6 @@
 
 ---
 
-_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
+_"Fear is stupid. So are regrets. — *Marilyn Monroe*"_
 
 ---
