@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
+_"Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams. — *Robert Greene*"_
 
 ---
