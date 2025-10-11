@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it. — *James Matthew Barrie*"_
+_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
 
 ---
