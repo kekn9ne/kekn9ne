@@ -7,6 +7,6 @@
 
 ---
 
-_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
+_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
 
 ---
