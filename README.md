@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Tekel Mavisi** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
+_"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled. — *Andrew Carnegie*"_
 
 ---
