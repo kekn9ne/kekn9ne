@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — *A.A. Milne*"_
+_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
 
 ---
