@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is sometimes the best answer. — *Dalai Lama*"_
+_"Fear is stupid. So are regrets. — *Marilyn Monroe*"_
 
 ---
