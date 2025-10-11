@@ -7,6 +7,6 @@
 
 ---
 
-_"For all evils there are two remedies - time and silence. — *Alexandre Dumas*"_
+_"What you resist, persists. — *Carl Jung*"_
 
 ---
