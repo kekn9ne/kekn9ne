@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
+_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
 
 ---
