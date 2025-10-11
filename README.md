@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tatlı Tecrübe** by *Narkoz Ex* 🎶
 
 ---
 
-_"It is well known that those who do not trust themselves never trust others. — *Alfred Adler*"_
+_"Memory is the scribe of the soul. — *Aristotle*"_
 
 ---
