@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 11 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Müşkül** by *Gazapizm* 🎶
+🎧 Currently Listening: **Tekel Mavisi** by *No.1* 🎶
 
 ---
 
-_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
+_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
 
 ---
