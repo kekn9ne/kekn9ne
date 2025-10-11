@@ -7,6 +7,6 @@
 
 ---
 
-_"When one door closes another door opens.  — *Alexander Graham Bell*"_
+_"My guiding principle is this: Guilt is never to be doubted.  — *Franz Kafka*"_
 
 ---
