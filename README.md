@@ -7,6 +7,6 @@
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
 
 ---
