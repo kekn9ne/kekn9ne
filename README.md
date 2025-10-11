@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the only problem you will ever have and you are the only solution. — *Bob Proctor*"_
+_"All problems are illusions of the mind. — *Eckhart Tolle*"_
 
 ---
