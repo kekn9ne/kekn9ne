@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are far from the enemy, make him believe you are near. — *Sun Tzu*"_
+_"Confidence breeds beauty.   — *Estee Lauder*"_
 
 ---
