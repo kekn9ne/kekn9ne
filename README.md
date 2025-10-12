@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
+_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
 
 ---
