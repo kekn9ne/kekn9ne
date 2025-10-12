@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
+_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
 
 ---
