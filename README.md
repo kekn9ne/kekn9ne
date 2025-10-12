@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
 
 ---
