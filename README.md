@@ -7,6 +7,6 @@
 
 ---
 
-_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
+_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
 
 ---
