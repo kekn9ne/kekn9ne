@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
+_"If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. — *Theodore Roosevelt*"_
 
 ---
