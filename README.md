@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
+_"It's better to stand by someone's side than by yourself. — *Jack London*"_
 
 ---
