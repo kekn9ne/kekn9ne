@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
+_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
 
 ---
