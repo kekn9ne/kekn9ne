@@ -7,6 +7,6 @@
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
 
 ---
