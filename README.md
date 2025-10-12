@@ -7,6 +7,6 @@
 
 ---
 
-_"A single dream is more powerful than a thousand realities. — *J.R.R. Tolkien*"_
+_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
 
 ---
