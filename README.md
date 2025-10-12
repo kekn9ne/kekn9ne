@@ -7,6 +7,6 @@
 
 ---
 
-_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
+_"Remember the entrance to the sanctuary is inside you. — *Rumi*"_
 
 ---
