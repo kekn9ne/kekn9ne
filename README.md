@@ -7,6 +7,6 @@
 
 ---
 
-_"Debt is the slavery of the free. — *Publilius Syrus*"_
+_"Character is destiny. — *Heraclitus*"_
 
 ---
