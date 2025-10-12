@@ -7,6 +7,6 @@
 
 ---
 
-_"Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results. — *James Allen*"_
+_"If there is a book that you want to read, but it hasn't been written yet, then you must write it. — *Toni Morrison*"_
 
 ---
