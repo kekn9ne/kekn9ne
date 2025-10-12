@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"Remember that sometimes not getting what you want is a wonderful stroke of luck. — *Dalai Lama*"_
+_"I would rather be hated for who I am than loved for who I'm not.   — *Wayne Dyer*"_
 
 ---
