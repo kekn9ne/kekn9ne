@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Mani** by *Ceg* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Better to live until you die. — *Dan Millman*"_
+_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
 
 ---
