@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
+🎧 Currently Listening: **16-24** by *Wegh* 🎶
 
 ---
 
-_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
+_"A pessimist sees the difficulty in every opportunity; an optimist sees the opportunity in every difficulty. — *Winston Churchill*"_
 
 ---
