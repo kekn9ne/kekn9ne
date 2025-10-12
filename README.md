@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
+_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
 
 ---
