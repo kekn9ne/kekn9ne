@@ -7,6 +7,6 @@
 
 ---
 
-_"Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control. — *Maxime Lagace*"_
+_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
 
 ---
