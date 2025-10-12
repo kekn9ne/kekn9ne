@@ -7,6 +7,6 @@
 
 ---
 
-_"When you have a dream, you've got to grab it and never let go. — *Carol Burnett*"_
+_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
 
 ---
