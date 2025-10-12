@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest of empires, is the empire over one's self. — *Publilius Syrus*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
