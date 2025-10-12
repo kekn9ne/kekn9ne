@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"Only to the extent that we expose ourselves over and over to annihilation can that which is indestructible in us be found. — *Pema Chodron*"_
 
 ---
