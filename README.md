@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
 
 ---
