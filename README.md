@@ -7,6 +7,6 @@
 
 ---
 
-_"It is up to each of us to sing as we feel moved by the overall song of life. — *Ming-Dao Deng*"_
+_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
 
 ---
