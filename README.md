@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"The measure of wisdom is how calm you are when facing any given situation. — *Naval Ravikant*"_
 
 ---
