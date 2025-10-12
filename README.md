@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul Mafya** by *Chiko* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
+_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
 
 ---
