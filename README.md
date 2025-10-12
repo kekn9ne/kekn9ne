@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
