@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you can imagine is real. — *Pablo Picasso*"_
+_"You are what you believe yourself to be. — *Paulo Coelho*"_
 
 ---
