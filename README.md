@@ -7,6 +7,6 @@
 
 ---
 
-_"The measure of wisdom is how calm you are when facing any given situation. — *Naval Ravikant*"_
+_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
 
 ---
