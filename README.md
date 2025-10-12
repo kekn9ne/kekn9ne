@@ -7,6 +7,6 @@
 
 ---
 
-_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
+_"Work joyfully and peacefully, knowing that right thoughts and right efforts inevitably bring about right results. — *James Allen*"_
 
 ---
