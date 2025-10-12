@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
+_"If your happiness depends on what somebody else does, I guess you do have a problem. — *Richard Bach*"_
 
 ---
