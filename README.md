@@ -7,6 +7,6 @@
 
 ---
 
-_"I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves. — *Steve Maraboli*"_
+_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
 
 ---
