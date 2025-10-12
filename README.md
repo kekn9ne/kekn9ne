@@ -7,6 +7,6 @@
 
 ---
 
-_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
+_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
 
 ---
