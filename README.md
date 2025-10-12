@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
+_"What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from. — *T.S. Eliot*"_
 
 ---
