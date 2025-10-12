@@ -7,6 +7,6 @@
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
