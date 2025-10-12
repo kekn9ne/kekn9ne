@@ -7,6 +7,6 @@
 
 ---
 
-_"Your problem isn't the problem. Your reaction is the problem. — *Unknown*"_
+_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
 
 ---
