@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is no more uncertain than the present. — *Walt Whitman*"_
+_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
 
 ---
