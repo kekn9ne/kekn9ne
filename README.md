@@ -7,6 +7,6 @@
 
 ---
 
-_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
+_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
 
 ---
