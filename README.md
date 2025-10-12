@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to stand by someone's side than by yourself. — *Jack London*"_
+_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
 
 ---
