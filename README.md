@@ -7,6 +7,6 @@
 
 ---
 
-_"Laziness may appear attractive, but work gives satisfaction. — *Anne Frank*"_
+_"Numbing the pain for a while will make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
