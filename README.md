@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
+_"When it hurts - observe. Life is trying to teach you something. — *Anita Krizzan*"_
 
 ---
