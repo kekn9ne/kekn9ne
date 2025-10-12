@@ -7,6 +7,6 @@
 
 ---
 
-_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
+_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
 
 ---
