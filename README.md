@@ -7,6 +7,6 @@
 
 ---
 
-_"What we call the beginning is often the end. And to make an end is to make a beginning. The end is where we start from. — *T.S. Eliot*"_
+_"Dreams provide nourishment for the soul, just as a meal does for the body. — *Paulo Coelho*"_
 
 ---
