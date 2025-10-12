@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is patience. — *Isaac Newton*"_
+_"When you have a dream, you've got to grab it and never let go. — *Carol Burnett*"_
 
 ---
