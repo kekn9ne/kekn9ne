@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
+_"I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves. — *Steve Maraboli*"_
 
 ---
