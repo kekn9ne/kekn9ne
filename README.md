@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all here for some special reason. — *Robin Sharma*"_
+_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
 
 ---
