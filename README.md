@@ -7,6 +7,6 @@
 
 ---
 
-_"Night is a more quiet time to work. It aids thought. — *Alexander Graham Bell*"_
+_"What gets measured gets improved. — *Robin Sharma*"_
 
 ---
