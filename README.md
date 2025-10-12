@@ -7,6 +7,6 @@
 
 ---
 
-_"What gets measured gets improved. — *Robin Sharma*"_
+_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
 
 ---
