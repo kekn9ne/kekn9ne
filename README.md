@@ -7,6 +7,6 @@
 
 ---
 
-_"Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. — *Dale Carnegie*"_
+_"Show kindness but never expect it. Show authenticity but never expect it. Only the wise are indifferent to things they can't control. — *Maxime Lagace*"_
 
 ---
