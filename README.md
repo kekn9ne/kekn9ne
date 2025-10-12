@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 12 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +17°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
 
 ---
 
-_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
+_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
 
 ---
