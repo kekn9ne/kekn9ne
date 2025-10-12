@@ -7,6 +7,6 @@
 
 ---
 
-_"Numbing the pain for a while will make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
