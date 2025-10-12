@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
+_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
 
 ---
