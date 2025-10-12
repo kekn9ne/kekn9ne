@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
+_"Everything you can imagine is real. — *Pablo Picasso*"_
 
 ---
