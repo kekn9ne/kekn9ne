@@ -7,6 +7,6 @@
 
 ---
 
-_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
+_"To seek is to suffer. To seek nothing is bliss. — *Bodhidharma*"_
 
 ---
