@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
+_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
 
 ---
