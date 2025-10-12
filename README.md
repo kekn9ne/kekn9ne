@@ -7,6 +7,6 @@
 
 ---
 
-_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
+_"It is up to each of us to sing as we feel moved by the overall song of life. — *Ming-Dao Deng*"_
 
 ---
