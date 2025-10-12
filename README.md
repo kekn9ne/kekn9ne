@@ -7,6 +7,6 @@
 
 ---
 
-_"Today I begin a new life. I will greet this day with love in my heart. — *Og Mandino*"_
+_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
 
 ---
