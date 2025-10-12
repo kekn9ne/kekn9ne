@@ -7,6 +7,6 @@
 
 ---
 
-_"Definiteness of purpose is the starting point of all achievement.  — *W. Clement Stone*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
