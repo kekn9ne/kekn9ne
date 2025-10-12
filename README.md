@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
+_"Listen to what you know instead of what you fear. — *Richard Bach*"_
 
 ---
