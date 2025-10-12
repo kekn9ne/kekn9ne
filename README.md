@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
+_"Laziness may appear attractive, but work gives satisfaction. — *Anne Frank*"_
 
 ---
