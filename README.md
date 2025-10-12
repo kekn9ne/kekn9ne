@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek is to suffer. To seek nothing is bliss. — *Bodhidharma*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
