@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
+_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
 
 ---
