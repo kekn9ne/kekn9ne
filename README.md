@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"I would rather be hated for who I am than loved for who I'm not.   — *Wayne Dyer*"_
+_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
 
 ---
