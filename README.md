@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you believe yourself to be. — *Paulo Coelho*"_
+_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
 
 ---
