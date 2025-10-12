@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
+_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
 
 ---
