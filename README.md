@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
+_"All leaders are readers. — *Jim Rohn*"_
 
 ---
