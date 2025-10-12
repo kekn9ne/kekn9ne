@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 12 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **A.A.K** by *Cato* 🎶
+🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
 
 ---
 
-_"Change yourself and you have done your part in changing the world. — *Paramahansa Yogananda*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
