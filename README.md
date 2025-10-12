@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
+_"Genius is patience. — *Isaac Newton*"_
 
 ---
