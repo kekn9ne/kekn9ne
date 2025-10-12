@@ -7,6 +7,6 @@
 
 ---
 
-_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
