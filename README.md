@@ -7,6 +7,6 @@
 
 ---
 
-_"All leaders are readers. — *Jim Rohn*"_
+_"Your problem isn't the problem. Your reaction is the problem. — *Unknown*"_
 
 ---
