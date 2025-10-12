@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
 
 ---
