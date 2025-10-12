@@ -7,6 +7,6 @@
 
 ---
 
-_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
+_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
 
 ---
