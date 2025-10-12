@@ -7,6 +7,6 @@
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
