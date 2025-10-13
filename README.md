@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **headway** by *morningtime* 🎶
+🎧 Currently Listening: **for norah** by *mellow days* 🎶
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
