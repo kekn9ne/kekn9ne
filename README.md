@@ -7,6 +7,6 @@
 
 ---
 
-_"Show up even when you don't want to show up. — *Steve Harvey*"_
+_"What would you do if you weren't afraid? — *Spencer Johnson*"_
 
 ---
