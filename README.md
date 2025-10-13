@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is built and maintained by many small actions over time. — *Lolly Daskal*"_
+_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
 
 ---
