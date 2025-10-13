@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Isular** by *lorleaf* 🎶
+🎧 Currently Listening: **forest nights** by *nightnotes* 🎶
 
 ---
 
-_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
+_"You can't get to a place that you don't believe exists. — *Unknown*"_
 
 ---
