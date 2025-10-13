@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
+_"Courage is knowing what not to fear. — *Plato*"_
 
 ---
