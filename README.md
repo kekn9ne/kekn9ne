@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what happens to you, but how you react to it that matters. — *Epictetus*"_
+_"It is those who concentrate on but one thing at a time who advance in this world. — *Gary Keller*"_
 
 ---
