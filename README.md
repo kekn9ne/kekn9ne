@@ -7,6 +7,6 @@
 
 ---
 
-_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"What people need and what they want may be very different. — *Elbert Hubbard*"_
 
 ---
