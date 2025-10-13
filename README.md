@@ -7,6 +7,6 @@
 
 ---
 
-_"Live as if you were to die tomorrow. Learn as if you were to live forever. — *Mahatma Gandhi*"_
+_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
 
 ---
