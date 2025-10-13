@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
 
 ---
