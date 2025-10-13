@@ -7,6 +7,6 @@
 
 ---
 
-_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
+_"People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
