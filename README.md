@@ -7,6 +7,6 @@
 
 ---
 
-_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
+_"The future belongs to those who learn more skills and combine them in creative ways. — *Robert Greene*"_
 
 ---
