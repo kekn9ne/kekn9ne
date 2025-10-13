@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
+_"It's possible in ways both large or small to make a difference in someone's life. — *Yanni*"_
 
 ---
