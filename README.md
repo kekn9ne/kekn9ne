@@ -7,6 +7,6 @@
 
 ---
 
-_"What people need and what they want may be very different. — *Elbert Hubbard*"_
+_"Show up even when you don't want to show up. — *Steve Harvey*"_
 
 ---
