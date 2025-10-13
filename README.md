@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
+_"Great acts are made up of small deeds. — *Lao Tzu*"_
 
 ---
