@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BALMAIN** by *Organize* 🎶
+🎧 Currently Listening: **DOĞUŞTAN BERİ HAKLIYIM (tmm)** by *Lvbel C5* 🎶
 
 ---
 
-_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
+_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
 
 ---
