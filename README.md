@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
+_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
