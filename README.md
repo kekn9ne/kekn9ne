@@ -7,6 +7,6 @@
 
 ---
 
-_"All I can do is be me, whoever that is. — *Bob Dylan*"_
+_"One's best success comes after their greatest disappointments. — *Henry Ward Beecher*"_
 
 ---
