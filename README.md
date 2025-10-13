@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm not afraid of death, but I'm in no hurry to die. — *Stephen Hawking*"_
+_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
 
 ---
