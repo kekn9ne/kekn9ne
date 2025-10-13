@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BALMAIN** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There can be no deep disappointment where there is not deep love. — *Martin Luther King, Jr.*"_
+_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
 
 ---
