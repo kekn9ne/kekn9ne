@@ -7,6 +7,6 @@
 
 ---
 
-_"What would you do if you weren't afraid? — *Spencer Johnson*"_
+_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
 
 ---
