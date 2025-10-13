@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise men speak because they have something to say; Fools because they have to say something. — *Plato*"_
+_"We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves. — *Kamal Ravikant*"_
 
 ---
