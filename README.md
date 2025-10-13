@@ -7,6 +7,6 @@
 
 ---
 
-_"The very essence of instinct is that it's followed independently of reason. — *Charles Darwin*"_
+_"It's not what happens to you, but how you react to it that matters. — *Epictetus*"_
 
 ---
