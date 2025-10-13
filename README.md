@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
+_"A wise person should have money in their head, but not in their heart. — *Jonathan Swift*"_
 
 ---
