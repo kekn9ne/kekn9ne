@@ -7,6 +7,6 @@
 
 ---
 
-_"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot. — *Wayne Gretzky*"_
+_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
 
 ---
