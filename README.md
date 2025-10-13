@@ -7,6 +7,6 @@
 
 ---
 
-_"It is those who concentrate on but one thing at a time who advance in this world. — *Gary Keller*"_
+_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
 
 ---
