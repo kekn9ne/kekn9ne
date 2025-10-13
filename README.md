@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
+_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
