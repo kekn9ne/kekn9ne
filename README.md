@@ -7,6 +7,6 @@
 
 ---
 
-_"It's possible in ways both large or small to make a difference in someone's life. — *Yanni*"_
+_"Wise men speak because they have something to say; Fools because they have to say something. — *Plato*"_
 
 ---
