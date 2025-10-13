@@ -7,6 +7,6 @@
 
 ---
 
-_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
+_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
 
 ---
