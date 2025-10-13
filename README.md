@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
+🎧 Currently Listening: **Laissez-Faire** by *Cloudroom* 🎶
 
 ---
 
-_"A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — *Ming-Dao Deng*"_
+_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
 
 ---
