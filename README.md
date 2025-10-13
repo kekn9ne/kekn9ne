@@ -7,6 +7,6 @@
 
 ---
 
-_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
