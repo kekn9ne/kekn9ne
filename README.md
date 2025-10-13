@@ -7,6 +7,6 @@
 
 ---
 
-_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"Nothing you do is going to matter that much in the long run. Don't take yourself so seriously. — *Naval Ravikant*"_
 
 ---
