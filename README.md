@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul Mafya** by *Chiko* 🎶
+🎧 Currently Listening: **YAŞANMADI SAY** by *Chiko* 🎶
 
 ---
 
-_"Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness. — *Eckhart Tolle*"_
+_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
 
 ---
