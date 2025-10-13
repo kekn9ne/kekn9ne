@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Shades of Grey** by *Karen Alice* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Much learning does not teach understanding. — *Heraclitus*"_
+_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
 
 ---
