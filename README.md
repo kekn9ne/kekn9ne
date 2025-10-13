@@ -7,6 +7,6 @@
 
 ---
 
-_"You change the world by being yourself. — *Yoko Ono*"_
+_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
 
 ---
