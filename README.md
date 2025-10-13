@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
+_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
 
 ---
