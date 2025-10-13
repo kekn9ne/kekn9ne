@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **forest nights** by *nightnotes* 🎶
+🎧 Currently Listening: **headway** by *morningtime* 🎶
 
 ---
 
-_"You can't get to a place that you don't believe exists. — *Unknown*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
