@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 14 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kuşlar da Şaşkın** by *Nikbinler* 🎶
+🎧 Currently Listening: **Nimet** by *Didomido* 🎶
 
 ---
 
-_"I live by letting things happen. — *Dogen*"_
+_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
 
 ---
