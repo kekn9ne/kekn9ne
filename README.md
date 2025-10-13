@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
+_"The very essence of instinct is that it's followed independently of reason. — *Charles Darwin*"_
 
 ---
