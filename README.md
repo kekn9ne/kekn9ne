@@ -7,6 +7,6 @@
 
 ---
 
-_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
+_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
 
 ---
