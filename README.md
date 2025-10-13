@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ah Yalan Dünya** by *BATUBOW* 🎶
+🎧 Currently Listening: **BALMAIN** by *Organize* 🎶
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
 
 ---
