@@ -7,6 +7,6 @@
 
 ---
 
-_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
+_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
 
 ---
