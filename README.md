@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 13 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Laissez-Faire** by *Cloudroom* 🎶
+🎧 Currently Listening: **Isular** by *lorleaf* 🎶
 
 ---
 
-_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
+_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
 
 ---
