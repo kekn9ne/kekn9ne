@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 14 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kirpiğin Kaşına Değdiği Zaman** by *Postmodern Anadolu* 🎶
 
 ---
 
-_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
+_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
 
 ---
