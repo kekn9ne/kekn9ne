@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
+_"The season of failure is the best time for sowing the seeds of success.  — *Paramahansa Yogananda*"_
 
 ---
