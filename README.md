@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"There can be no deep disappointment where there is not deep love. — *Martin Luther King, Jr.*"_
 
 ---
