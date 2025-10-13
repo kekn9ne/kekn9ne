@@ -7,6 +7,6 @@
 
 ---
 
-_"We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves. — *Kamal Ravikant*"_
+_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
 
 ---
