@@ -7,6 +7,6 @@
 
 ---
 
-_"We tend to live up to our expectations. — *Earl Nightingale*"_
+_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
 
 ---
