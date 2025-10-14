@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
+_"Who you are is always right. — *Ming-Dao Deng*"_
 
 ---
