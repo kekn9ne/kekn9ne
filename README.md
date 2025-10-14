@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
+_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
 
 ---
