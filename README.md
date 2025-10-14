@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"Normality is a paved road: It's comfortable to walk, but no flowers grow on it. — *Vincent van Gogh*"_
 
 ---
