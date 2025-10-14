@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
+_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
 
 ---
