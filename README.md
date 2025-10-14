@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 14 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +19°C**  
+🌤️ Weather in Istanbul: **Unknown location; please try ~41.03508,28.98331**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kirpiğin Kaşına Değdiği Zaman** by *Postmodern Anadolu* 🎶
+🎧 Currently Listening: **Tanıdık Biri** by *Nikbinler* 🎶
 
 ---
 
-_"Champions keep playing until they get it right. — *Billie Jean King*"_
+_"When the root is strong, the fruit is sweet. — *Bob Marley*"_
 
 ---
