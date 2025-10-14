@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
+_"To be yourself in a world that is constantly trying to make you something else is the greatest accomplishment. — *Ralph Waldo Emerson*"_
 
 ---
