@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
 
 ---
