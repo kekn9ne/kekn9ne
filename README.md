@@ -7,6 +7,6 @@
 
 ---
 
-_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
+_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
 
 ---
