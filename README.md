@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
+_"Numbing the pain for a while will make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
