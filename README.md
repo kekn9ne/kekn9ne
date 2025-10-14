@@ -7,6 +7,6 @@
 
 ---
 
-_"Would you rather live your life according to the approval of others or aligned with your truth and your dreams? — *Robin Sharma*"_
+_"There is a difference between giving directions and giving direction. — *Simon Sinek*"_
 
 ---
