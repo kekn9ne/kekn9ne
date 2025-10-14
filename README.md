@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness is the absence of light. — *Kamal Ravikant*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
