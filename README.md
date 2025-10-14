@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 14 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
+_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
 
 ---
