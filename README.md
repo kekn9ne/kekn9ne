@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
 
 ---
