@@ -7,6 +7,6 @@
 
 ---
 
-_"Numbing the pain for a while will make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"Would you rather live your life according to the approval of others or aligned with your truth and your dreams? — *Robin Sharma*"_
 
 ---
