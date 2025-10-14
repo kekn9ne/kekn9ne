@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
+_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
 
 ---
