@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
