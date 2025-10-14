@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cannot be a good follower cannot be a good leader. — *Aristotle*"_
+_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
 
 ---
