@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 15 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Mermer 2.5** by *jausea* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never let your memories be greater than your dreams. — *Doug Ivester*"_
+_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
 
 ---
