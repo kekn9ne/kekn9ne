@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — *Ming-Dao Deng*"_
 
 ---
