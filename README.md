@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else. — *Simon Sinek*"_
+_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
 
 ---
