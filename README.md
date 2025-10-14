@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost. — *Franz Kafka*"_
+_"The time is always right to do what is right. — *Martin Luther King, Jr.*"_
 
 ---
