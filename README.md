@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 14 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tanıdık Biri** by *Nikbinler* 🎶
 
 ---
 
-_"Never settle for the crumbs of life. — *Og Mandino*"_
+_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
 
 ---
