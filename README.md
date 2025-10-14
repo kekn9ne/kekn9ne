@@ -7,6 +7,6 @@
 
 ---
 
-_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
+_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
 
 ---
