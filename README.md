@@ -7,6 +7,6 @@
 
 ---
 
-_"You can suffer the pain of change or suffer remaining the way you are. — *Joyce Meyer*"_
+_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
 
 ---
