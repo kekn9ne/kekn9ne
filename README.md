@@ -7,6 +7,6 @@
 
 ---
 
-_"Do all things with love. — *Og Mandino*"_
+_"Never settle for the crumbs of life. — *Og Mandino*"_
 
 ---
