@@ -7,6 +7,6 @@
 
 ---
 
-_"Be like a postage stamp. Stick to it until you get there. — *Bob Proctor*"_
+_"If you want to feel happy, do something for yourself. If you want to feel fulfilled, do something for someone else. — *Simon Sinek*"_
 
 ---
