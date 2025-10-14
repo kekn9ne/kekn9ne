@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
+_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
 
 ---
