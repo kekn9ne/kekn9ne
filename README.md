@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 14 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kirpiğin Kaşına Değdiği Zaman** by *Postmodern Anadolu* 🎶
 
 ---
 
-_"Nothing is easier than fault finding. — *Og Mandino*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
