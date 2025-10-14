@@ -7,6 +7,6 @@
 
 ---
 
-_"You are never too old to become younger. — *Mae West*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
