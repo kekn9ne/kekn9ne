@@ -7,6 +7,6 @@
 
 ---
 
-_"When it hurts - observe. Life is trying to teach you something. — *Anita Krizzan*"_
+_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
 
 ---
