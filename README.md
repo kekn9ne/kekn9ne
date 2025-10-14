@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
 
 ---
