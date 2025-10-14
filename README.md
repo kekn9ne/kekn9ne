@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"The friend is the man who knows all about you, and still likes you. — *Elbert Hubbard*"_
 
 ---
