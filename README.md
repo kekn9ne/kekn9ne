@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a difference between giving directions and giving direction. — *Simon Sinek*"_
+_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
 
 ---
