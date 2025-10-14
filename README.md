@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
