@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody has talent, but ability takes hard work. — *Michael Jordan*"_
+_"Each day your life grows a day shorter. Make every move count. — *Ming-Dao Deng*"_
 
 ---
