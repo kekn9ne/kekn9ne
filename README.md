@@ -7,6 +7,6 @@
 
 ---
 
-_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
+_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
 
 ---
