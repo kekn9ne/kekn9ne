@@ -7,6 +7,6 @@
 
 ---
 
-_"The friend is the man who knows all about you, and still likes you. — *Elbert Hubbard*"_
+_"You can tell more about a person by what he says about others than you can by what others say about him. — *Audrey Hepburn*"_
 
 ---
