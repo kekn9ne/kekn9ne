@@ -7,6 +7,6 @@
 
 ---
 
-_"The least deviation from truth will be multiplied later. — *Aristotle*"_
+_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
 
 ---
