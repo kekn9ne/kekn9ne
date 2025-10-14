@@ -7,6 +7,6 @@
 
 ---
 
-_"At the center of your being you have the answer; you know who you are and you know what you want. — *Lao Tzu*"_
+_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
 
 ---
