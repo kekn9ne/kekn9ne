@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
+_"Do all things with love. — *Og Mandino*"_
 
 ---
