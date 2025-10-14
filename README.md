@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
