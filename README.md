@@ -7,6 +7,6 @@
 
 ---
 
-_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
+_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
 
 ---
