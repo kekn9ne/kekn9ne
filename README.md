@@ -7,6 +7,6 @@
 
 ---
 
-_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
+_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
 
 ---
