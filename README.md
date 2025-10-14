@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is always right. — *Ming-Dao Deng*"_
+_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
 
 ---
