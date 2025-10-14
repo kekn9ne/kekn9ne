@@ -7,6 +7,6 @@
 
 ---
 
-_"A good teacher opens the door for you, but you must enter the room by yourself. — *Zen Proverb*"_
+_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
 
 ---
