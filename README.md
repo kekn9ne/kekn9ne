@@ -7,6 +7,6 @@
 
 ---
 
-_"You can tell more about a person by what he says about others than you can by what others say about him. — *Audrey Hepburn*"_
+_"Nothing is easier than fault finding. — *Og Mandino*"_
 
 ---
