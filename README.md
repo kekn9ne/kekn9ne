@@ -7,6 +7,6 @@
 
 ---
 
-_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
+_"You are free, and that is why you are lost. — *Franz Kafka*"_
 
 ---
