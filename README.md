@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
+_"It doesn't matter what you do, only how well you do it. — *Dan Millman*"_
 
 ---
