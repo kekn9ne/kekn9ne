@@ -7,6 +7,6 @@
 
 ---
 
-_"If ever you feel like an animal among men, be a lion. — *Criss Jami*"_
+_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
 
 ---
