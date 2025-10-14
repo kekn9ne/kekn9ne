@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
+_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
 
 ---
