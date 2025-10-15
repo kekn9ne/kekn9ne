@@ -7,6 +7,6 @@
 
 ---
 
-_"Wit is educated insolence. — *Aristotle*"_
+_"The first step toward getting somewhere is to decide that you are not going to stay where you are. — *Unknown*"_
 
 ---
