@@ -7,6 +7,6 @@
 
 ---
 
-_"Action is the foundational key to all success. — *Pablo Picasso*"_
+_"Children are our greatest natural resource. — *Herbert Hoover*"_
 
 ---
