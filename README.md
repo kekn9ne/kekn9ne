@@ -7,6 +7,6 @@
 
 ---
 
-_"To forgive means pardoning the unpardonable. — *Gilbert Chesterton*"_
+_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
 
 ---
