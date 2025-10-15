@@ -7,6 +7,6 @@
 
 ---
 
-_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
