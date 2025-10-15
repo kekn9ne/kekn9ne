@@ -7,6 +7,6 @@
 
 ---
 
-_"Ability is a poor man's wealth. — *John Wooden*"_
+_"Expect the best of yourself, and then do what is necessary to make it a reality. — *Ralph Marston*"_
 
 ---
