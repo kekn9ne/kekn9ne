@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
+_"To do great work one must be very idle as well as very industrious. — *Samuel Butler*"_
 
 ---
