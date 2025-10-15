@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Eylülzede** by *Nikbinler* 🎶
 
 ---
 
-_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
+_"Do the difficult things while they are easy and do the great things while they are small. — *Lao Tzu*"_
 
 ---
