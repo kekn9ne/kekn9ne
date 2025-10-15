@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 15 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
 
 ---
 
-_"It is never too late to be what you might have been. — *George Eliot*"_
+_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
 
 ---
