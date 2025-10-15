@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
+_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
 
 ---
