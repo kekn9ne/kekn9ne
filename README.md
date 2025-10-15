@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 15 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Bir Ömür Yetmez** by *Müslüm Gürses* 🎶
+🎧 Currently Listening: **Bak Bana** by *Sena Şener* 🎶
 
 ---
 
-_"Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. — *Thich Nhat Hanh*"_
+_"Think and wonder, wonder and think. — *Dr. Seuss*"_
 
 ---
