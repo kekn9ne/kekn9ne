@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
 
 ---
