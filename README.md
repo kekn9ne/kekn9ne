@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a poor teacher. — *Robert Kiyosaki*"_
+_"Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight. — *Benjamin Franklin*"_
 
 ---
