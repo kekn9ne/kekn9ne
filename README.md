@@ -7,6 +7,6 @@
 
 ---
 
-_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
+_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
 
 ---
