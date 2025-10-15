@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
+_"We are all born ignorant, but one must work hard to remain stupid. — *Benjamin Franklin*"_
 
 ---
