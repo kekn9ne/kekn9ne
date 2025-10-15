@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 15 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kirpiğin Kaşına Değdiği Zaman** by *Postmodern Anadolu* 🎶
+🎧 Currently Listening: **Bir Ömür Yetmez** by *Müslüm Gürses* 🎶
 
 ---
 
-_"Never spend your money before you have earned it. — *Thomas Jefferson*"_
+_"Sometimes your joy is the source of your smile, but sometimes your smile can be the source of your joy. — *Thich Nhat Hanh*"_
 
 ---
