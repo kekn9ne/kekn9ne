@@ -7,6 +7,6 @@
 
 ---
 
-_"The only time you run out of chances is when you stop taking them. — *Unknown*"_
+_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
 
 ---
