@@ -7,6 +7,6 @@
 
 ---
 
-_"Expect the best of yourself, and then do what is necessary to make it a reality. — *Ralph Marston*"_
+_"Action is the foundational key to all success. — *Pablo Picasso*"_
 
 ---
