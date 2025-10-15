@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Eylülzede** by *Nikbinler* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies. — *Emily Dickinson*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
