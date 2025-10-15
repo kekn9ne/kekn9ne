@@ -7,6 +7,6 @@
 
 ---
 
-_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
