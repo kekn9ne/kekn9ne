@@ -7,6 +7,6 @@
 
 ---
 
-_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
+_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
 
 ---
