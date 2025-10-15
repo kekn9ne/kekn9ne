@@ -7,6 +7,6 @@
 
 ---
 
-_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
+_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
 
 ---
