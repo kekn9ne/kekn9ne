@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
+_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
 
 ---
