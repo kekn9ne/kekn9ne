@@ -7,6 +7,6 @@
 
 ---
 
-_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
+_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
 
 ---
