@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't set your own goals by what other people make important. — *Lolly Daskal*"_
+_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
 
 ---
