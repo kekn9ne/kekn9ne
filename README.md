@@ -7,6 +7,6 @@
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"It is never too late to be what you might have been. — *George Eliot*"_
 
 ---
