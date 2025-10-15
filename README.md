@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
+_"Make peace with your inner turmoil. — *Unknown*"_
 
 ---
