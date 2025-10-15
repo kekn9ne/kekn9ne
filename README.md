@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
+_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
 
 ---
