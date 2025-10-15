@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
+_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
 
 ---
