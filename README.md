@@ -7,6 +7,6 @@
 
 ---
 
-_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
