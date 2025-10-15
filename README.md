@@ -7,6 +7,6 @@
 
 ---
 
-_"To do great work one must be very idle as well as very industrious. — *Samuel Butler*"_
+_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
 
 ---
