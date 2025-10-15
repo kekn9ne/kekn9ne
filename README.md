@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 15 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kirpiğin Kaşına Değdiği Zaman** by *Postmodern Anadolu* 🎶
 
 ---
 
-_"The first step toward getting somewhere is to decide that you are not going to stay where you are. — *Unknown*"_
+_"Never spend your money before you have earned it. — *Thomas Jefferson*"_
 
 ---
