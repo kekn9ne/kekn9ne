@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
+_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
 
 ---
