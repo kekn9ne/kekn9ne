@@ -7,6 +7,6 @@
 
 ---
 
-_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
+_"All our dreams can come true, if we have the courage to pursue them. — *Walt Disney*"_
 
 ---
