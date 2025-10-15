@@ -7,6 +7,6 @@
 
 ---
 
-_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
+_"People should pursue what they're passionate about. That will make them happier than pretty much anything else. — *Elon Musk*"_
 
 ---
