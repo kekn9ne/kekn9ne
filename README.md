@@ -7,6 +7,6 @@
 
 ---
 
-_"People should pursue what they're passionate about. That will make them happier than pretty much anything else. — *Elon Musk*"_
+_"To forgive means pardoning the unpardonable. — *Gilbert Chesterton*"_
 
 ---
