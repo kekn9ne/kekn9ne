@@ -7,6 +7,6 @@
 
 ---
 
-_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
+_"If the plan doesn't work, change the plan, but never the goal. — *Unknown*"_
 
 ---
