@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kirpiğin Kaşına Değdiği Zaman** by *Postmodern Anadolu* 🎶
+🎧 Currently Listening: **Eylülzede** by *Nikbinler* 🎶
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"We never know how high we are till we are called to rise. Then if we are true to form our statures touch the skies. — *Emily Dickinson*"_
 
 ---
