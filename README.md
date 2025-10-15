@@ -7,6 +7,6 @@
 
 ---
 
-_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
+_"We are like islands in the sea, separate on the surface but connected in the deep. — *William James*"_
 
 ---
