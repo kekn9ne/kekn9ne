@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 15 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Otobanda Polizei** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day! — *Og Mandino*"_
+_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
 
 ---
