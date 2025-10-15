@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
+_"If you don't like something change it. If you can't change it, change your attitude about it. Don't complain. — *Maya Angelou*"_
 
 ---
