@@ -7,6 +7,6 @@
 
 ---
 
-_"Each day your life grows a day shorter. Make every move count. — *Ming-Dao Deng*"_
+_"The sun is new each day. — *Heraclitus*"_
 
 ---
