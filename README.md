@@ -7,6 +7,6 @@
 
 ---
 
-_"Charms strike the sight, but merit wins the soul. — *Alexander Pope*"_
+_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
 
 ---
