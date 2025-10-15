@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"There is always risk, so learn to manage risk instead of avoiding it. — *Robert Kiyosaki*"_
 
 ---
