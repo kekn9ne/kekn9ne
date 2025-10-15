@@ -7,6 +7,6 @@
 
 ---
 
-_"Wit is educated insolence. — *Aristotle*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
