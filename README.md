@@ -7,6 +7,6 @@
 
 ---
 
-_"Children are our greatest natural resource. — *Herbert Hoover*"_
+_"You can suffer the pain of change or suffer remaining the way you are. — *Joyce Meyer*"_
 
 ---
