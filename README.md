@@ -7,6 +7,6 @@
 
 ---
 
-_"All our dreams can come true, if we have the courage to pursue them. — *Walt Disney*"_
+_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
 
 ---
