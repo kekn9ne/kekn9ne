@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
+_"He who hesitates is a damned fool. — *Mae West*"_
 
 ---
