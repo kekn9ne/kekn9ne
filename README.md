@@ -7,6 +7,6 @@
 
 ---
 
-_"To wish you were someone else is to waste the person you are. — *Unknown*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
