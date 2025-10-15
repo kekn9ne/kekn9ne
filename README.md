@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
 
 ---
