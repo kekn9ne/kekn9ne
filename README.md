@@ -7,6 +7,6 @@
 
 ---
 
-_"If the plan doesn't work, change the plan, but never the goal. — *Unknown*"_
+_"Wit is educated insolence. — *Aristotle*"_
 
 ---
