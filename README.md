@@ -7,6 +7,6 @@
 
 ---
 
-_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
+_"To wish you were someone else is to waste the person you are. — *Unknown*"_
 
 ---
