@@ -7,6 +7,6 @@
 
 ---
 
-_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
