@@ -7,6 +7,6 @@
 
 ---
 
-_"There is always risk, so learn to manage risk instead of avoiding it. — *Robert Kiyosaki*"_
+_"Success is a poor teacher. — *Robert Kiyosaki*"_
 
 ---
