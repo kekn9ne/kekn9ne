@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
+_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
 
 ---
