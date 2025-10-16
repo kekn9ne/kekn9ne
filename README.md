@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **S2M UP** by *Şam* 🎶
 
 ---
 
-_"You need to be doing fewer things for more effect instead of doing more things with side effects. — *Gary Keller*"_
+_"No one can compete with you on being you. Most of life is a search for who and what needs you the most. — *Naval Ravikant*"_
 
 ---
