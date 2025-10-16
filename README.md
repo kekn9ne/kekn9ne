@@ -7,6 +7,6 @@
 
 ---
 
-_"A little impatience will spoil great plans. — *Chinese Proverb*"_
+_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
 
 ---
