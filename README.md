@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is a form of wisdom. It demonstrates that we understand and accept the fact that sometimes things must unfold in their own time. — *Jon Kabat-Zinn*"_
+_"Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right. — *Albus Dumbledore*"_
 
 ---
