@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind is infinite, it's your doubts that are limiting. — *Robert Kiyosaki*"_
+_"A little impatience will spoil great plans. — *Chinese Proverb*"_
 
 ---
