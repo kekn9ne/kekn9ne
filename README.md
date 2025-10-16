@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all born ignorant, but one must work hard to remain stupid. — *Benjamin Franklin*"_
+_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
 
 ---
