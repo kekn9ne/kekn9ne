@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest test of courage on earth is to bear defeat without losing heart. — *Robert Greene*"_
+_"Life can be the scariest and most beautiful thing simultaneously. — *Maxime Lagace*"_
 
 ---
