@@ -7,6 +7,6 @@
 
 ---
 
-_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
+_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
 
 ---
