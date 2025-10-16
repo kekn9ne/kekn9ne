@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **BIA** by *KAVAK* 🎶
+🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
 
 ---
 
-_"Always forgive your enemies - nothing annoys them so much.  — *Oscar Wilde*"_
+_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
 
 ---
