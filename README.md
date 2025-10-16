@@ -7,6 +7,6 @@
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"Nothing ever goes away until it has taught us what we need to know. — *Pema Chodron*"_
 
 ---
