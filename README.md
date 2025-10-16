@@ -7,6 +7,6 @@
 
 ---
 
-_"Quality means doing it right when no one is looking. — *Henry Ford*"_
+_"Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday. — *Brian Tracy*"_
 
 ---
