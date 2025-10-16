@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 17 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ölmedim Ben** by *Organize* 🎶
 
 ---
 
-_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
+_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
 
 ---
