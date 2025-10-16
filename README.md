@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
+_"Love is merely the name for the desire and pursuit of the whole. — *Aristophanes*"_
 
 ---
