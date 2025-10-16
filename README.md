@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SHOT** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The older you get, the better you get. Unless you're a banana. — *Betty White*"_
+_"He who leaves the game wins it. — *Nicolas Chamfort*"_
 
 ---
