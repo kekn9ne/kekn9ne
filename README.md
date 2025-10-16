@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is merely the name for the desire and pursuit of the whole. — *Aristophanes*"_
+_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
 
 ---
