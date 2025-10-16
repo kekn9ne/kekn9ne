@@ -7,6 +7,6 @@
 
 ---
 
-_"Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don't have to have it all figured out to move forward. — *Roy T. Bennett*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
