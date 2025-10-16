@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
+_"Instead of being intimidated by the limitations, be inspired to find new ways around them. — *Ralph Marston*"_
 
 ---
