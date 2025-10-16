@@ -7,6 +7,6 @@
 
 ---
 
-_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
+_"Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know. — *Colin Powell*"_
 
 ---
