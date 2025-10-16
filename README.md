@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
+_"We suffer more often in imagination than in reality.   — *Seneca*"_
 
 ---
