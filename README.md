@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is only real when shared. — *Christopher McCandless*"_
+_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
 
 ---
