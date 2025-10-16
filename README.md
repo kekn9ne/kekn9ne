@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of being intimidated by the limitations, be inspired to find new ways around them. — *Ralph Marston*"_
+_"Imagination means nothing without doing.   — *Charlie Chaplin*"_
 
 ---
