@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to learn late than never. — *Publilius Syrus*"_
+_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
 
 ---
