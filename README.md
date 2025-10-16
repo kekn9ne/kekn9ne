@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled. — *Andrew Carnegie*"_
+_"Whether you have a problem in your life or not depends upon your own attitude, your own understanding. — *Shunryu Suzuki*"_
 
 ---
