@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
+_"It is not titles that honour men, but men that honour titles. — *Niccolo Machiavelli*"_
 
 ---
