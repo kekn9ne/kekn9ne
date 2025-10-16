@@ -7,6 +7,6 @@
 
 ---
 
-_"Be where your enemy is not. — *Sun Tzu*"_
+_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
 
 ---
