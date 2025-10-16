@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ELJF** by *Jefe* 🎶
+🎧 Currently Listening: **V.I.P.** by *Tuğrul Bektaş* 🎶
 
 ---
 
-_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
+_"Genius is patience. — *Isaac Newton*"_
 
 ---
