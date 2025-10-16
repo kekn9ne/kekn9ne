@@ -7,6 +7,6 @@
 
 ---
 
-_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
