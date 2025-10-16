@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
 
 ---
