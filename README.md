@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing ever goes away until it has taught us what we need to know. — *Pema Chodron*"_
+_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
 
 ---
