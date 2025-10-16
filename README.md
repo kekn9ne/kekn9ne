@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your life; you don't need someone's permission to live the life you want. Be brave to live from your heart. — *Roy T. Bennett*"_
+_"You get paid in direct proportion to the difficulty of problems you solve. — *Elon Musk*"_
 
 ---
