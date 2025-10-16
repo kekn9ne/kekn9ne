@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
+_"We should not look back unless it is to derive useful lessons from past errors. — *George Washington*"_
 
 ---
