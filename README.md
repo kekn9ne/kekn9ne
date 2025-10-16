@@ -7,6 +7,6 @@
 
 ---
 
-_"Being entirely honest with oneself is a good exercise. — *Sigmund Freud*"_
+_"Quality means doing it right when no one is looking. — *Henry Ford*"_
 
 ---
