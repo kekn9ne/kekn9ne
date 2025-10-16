@@ -7,6 +7,6 @@
 
 ---
 
-_"Make peace within, and there will be no one who can overcome you. And no one you will wish to overcome. — *Dan Millman*"_
+_"Happiness is only real when shared. — *Christopher McCandless*"_
 
 ---
