@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Double B** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
+_"It is in your moments of decision that your destiny is shaped. — *Tony Robbins*"_
 
 ---
