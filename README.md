@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BIA** by *KAVAK* 🎶
 
 ---
 
-_"Because a thing seems difficult for you, do not think it impossible. — *Marcus Aurelius*"_
+_"Always forgive your enemies - nothing annoys them so much.  — *Oscar Wilde*"_
 
 ---
