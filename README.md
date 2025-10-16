@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 16 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **V.I.P.** by *Tuğrul Bektaş* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Genius is patience. — *Isaac Newton*"_
+_"Leadership is solving problems — *Colin Powell*"_
 
 ---
