@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in your moments of decision that your destiny is shaped. — *Tony Robbins*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
