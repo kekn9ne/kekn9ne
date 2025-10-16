@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
+_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
 
 ---
