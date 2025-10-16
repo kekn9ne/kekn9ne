@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not titles that honour men, but men that honour titles. — *Niccolo Machiavelli*"_
+_"The beautiful journey of today can only begin when we learn to let go of yesterday. — *Steve Maraboli*"_
 
 ---
