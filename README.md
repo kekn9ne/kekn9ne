@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
+_"It is better to learn late than never. — *Publilius Syrus*"_
 
 ---
