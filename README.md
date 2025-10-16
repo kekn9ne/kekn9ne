@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy. — *Elon Musk*"_
+_"The shoe that fits one person pinches another; there is no recipe for living that suits all cases. — *Carl Jung*"_
 
 ---
