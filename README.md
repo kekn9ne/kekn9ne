@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
+_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
 
 ---
