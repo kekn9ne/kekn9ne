@@ -7,6 +7,6 @@
 
 ---
 
-_"Spend eighty percent of your time focusing on the opportunities of tomorrow rather than the problems of yesterday. — *Brian Tracy*"_
+_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
 
 ---
