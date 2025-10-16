@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 16 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SHEVCHENKO** by *Organize* 🎶
+🎧 Currently Listening: **ELJF** by *Jefe* 🎶
 
 ---
 
-_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
+_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
 
 ---
