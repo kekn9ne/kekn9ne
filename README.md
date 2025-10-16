@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
