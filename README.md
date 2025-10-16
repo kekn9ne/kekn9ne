@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose. — *Simon Sinek*"_
+_"You need to be doing fewer things for more effect instead of doing more things with side effects. — *Gary Keller*"_
 
 ---
