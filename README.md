@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 17 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ölmedim Ben** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
