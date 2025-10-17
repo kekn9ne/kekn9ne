@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no second chances in life, except to feel remorse. — *Carlos Ruiz Zafon*"_
+_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
 
 ---
