@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
+_"Success is like reaching an important birthday and finding you're exactly the same. — *Audrey Hepburn*"_
 
 ---
