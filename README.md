@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 18 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İki Yakan Bir Olmasın** by *Güllü* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means. — *Ronald Reagan*"_
+_"Life is love and love is life. — *Elvis Presley*"_
 
 ---
