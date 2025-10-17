@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"They say love is the best investment; the more you give, the more you get in return. — *Audrey Hepburn*"_
 
 ---
