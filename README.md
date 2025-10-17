@@ -7,6 +7,6 @@
 
 ---
 
-_"If you practiced for the day, then you have won. If you were lazy for the day, then you have lost. — *Ming-Dao Deng*"_
+_"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. — *Epictetus*"_
 
 ---
