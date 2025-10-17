@@ -7,6 +7,6 @@
 
 ---
 
-_"You are your best thing. — *Toni Morrison*"_
+_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
 
 ---
