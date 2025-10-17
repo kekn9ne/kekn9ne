@@ -7,6 +7,6 @@
 
 ---
 
-_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
+_"Nothing like a health problem to turn up the contrast dial for the rest of life. — *Naval Ravikant*"_
 
 ---
