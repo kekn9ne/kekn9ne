@@ -7,6 +7,6 @@
 
 ---
 
-_"Experience is simply the name we give our mistakes.  — *Oscar Wilde*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
