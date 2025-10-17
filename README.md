@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is more important than knowledge. — *Albert Einstein*"_
+_"You give but little when you give of your possessions. It is when you give of yourself that you truly give. — *Kahlil Gibran*"_
 
 ---
