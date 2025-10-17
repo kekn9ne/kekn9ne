@@ -7,6 +7,6 @@
 
 ---
 
-_"You give but little when you give of your possessions. It is when you give of yourself that you truly give. — *Kahlil Gibran*"_
+_"If you practiced for the day, then you have won. If you were lazy for the day, then you have lost. — *Ming-Dao Deng*"_
 
 ---
