@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest fears lie in anticipation. — *Honore de Balzac*"_
+_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
 
 ---
