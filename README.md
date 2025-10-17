@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way. — *Alan Watts*"_
+_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
 
 ---
