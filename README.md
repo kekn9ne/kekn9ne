@@ -7,6 +7,6 @@
 
 ---
 
-_"The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind. — *F. Scott Fitzgerald*"_
+_"We must not cease from exploration. And the end of all our exploring will be to arrive where we began and to know the place for the first time. — *T.S. Eliot*"_
 
 ---
