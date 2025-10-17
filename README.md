@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. — *Epictetus*"_
+_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
 
 ---
