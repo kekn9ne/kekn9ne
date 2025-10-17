@@ -7,6 +7,6 @@
 
 ---
 
-_"Be where your enemy is not. — *Sun Tzu*"_
+_"It is well known that those who do not trust themselves never trust others. — *Alfred Adler*"_
 
 ---
