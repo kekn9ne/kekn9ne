@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to give up the good to go for the great. — *John D. Rockefeller*"_
+_"Winning isn't everything, but wanting to win is. — *Vince Lombardi*"_
 
 ---
