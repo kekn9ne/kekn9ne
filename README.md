@@ -7,6 +7,6 @@
 
 ---
 
-_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
