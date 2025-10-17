@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 18 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Eylül Zamanı** by *Güllü* 🎶
 
 ---
 
-_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
+_"If we have no peace, it is because we have forgotten that we belong to each other. — *Mother Teresa*"_
 
 ---
