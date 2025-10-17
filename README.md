@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — *Herbert Hoover*"_
+_"There are no second chances in life, except to feel remorse. — *Carlos Ruiz Zafon*"_
 
 ---
