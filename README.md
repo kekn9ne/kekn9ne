@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
 
 ---
