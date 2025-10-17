@@ -7,6 +7,6 @@
 
 ---
 
-_"It is well known that those who do not trust themselves never trust others. — *Alfred Adler*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
