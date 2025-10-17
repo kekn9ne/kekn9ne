@@ -7,6 +7,6 @@
 
 ---
 
-_"People think about what they don't want and attract more of the same. — *Unknown*"_
+_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
 
 ---
