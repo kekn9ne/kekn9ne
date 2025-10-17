@@ -7,6 +7,6 @@
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"You can do two things at once, but you can't focus effectively on two things at once. — *Gary Keller*"_
 
 ---
