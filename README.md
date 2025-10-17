@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present. — *Roy T. Bennett*"_
+_"The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind. — *F. Scott Fitzgerald*"_
 
 ---
