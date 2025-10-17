@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
 
 ---
