@@ -7,6 +7,6 @@
 
 ---
 
-_"While some of us act without thinking, too many of us think without acting. — *Dan Millman*"_
+_"I am thankful to all those who said no. It's because of them, I did it myself.   — *Wayne Dyer*"_
 
 ---
