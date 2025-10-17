@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
+_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
 
 ---
