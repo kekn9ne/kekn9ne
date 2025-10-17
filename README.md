@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not think you will necessarily be aware of your own enlightenment. — *Dogen*"_
+_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
 
 ---
