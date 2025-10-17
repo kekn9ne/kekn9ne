@@ -7,6 +7,6 @@
 
 ---
 
-_"Be who you are and say what you feel because those who mind don't matter and those who matter don't mind. — *Dr. Seuss*"_
+_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
 
 ---
