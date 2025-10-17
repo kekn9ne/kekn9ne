@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
+_"When you reach the end of your rope, tie a knot in it and hang on. — *Franklin D. Roosevelt*"_
 
 ---
