@@ -7,6 +7,6 @@
 
 ---
 
-_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
