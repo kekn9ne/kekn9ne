@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
 
 ---
