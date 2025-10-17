@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the potential for greatness. — *Steve Harvey*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
