@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can, does. — *George Bernard Shaw*"_
+_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
 
 ---
