@@ -7,6 +7,6 @@
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
 
 ---
