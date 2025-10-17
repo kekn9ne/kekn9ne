@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
+_"You can suffer the pain of change or suffer remaining the way you are. — *Joyce Meyer*"_
 
 ---
