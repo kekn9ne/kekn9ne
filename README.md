@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing like a health problem to turn up the contrast dial for the rest of life. — *Naval Ravikant*"_
+_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
 
 ---
