@@ -7,6 +7,6 @@
 
 ---
 
-_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
+_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
 
 ---
