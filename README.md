@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
+_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
 
 ---
