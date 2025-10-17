@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
+_"Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT. — *Deepak Chopra*"_
 
 ---
