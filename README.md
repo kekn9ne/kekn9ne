@@ -7,6 +7,6 @@
 
 ---
 
-_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
+_"Our greatest fears lie in anticipation. — *Honore de Balzac*"_
 
 ---
