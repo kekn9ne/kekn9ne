@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"If you want to be happy, do not dwell in the past, do not worry about the future, focus on living fully in the present. — *Roy T. Bennett*"_
 
 ---
