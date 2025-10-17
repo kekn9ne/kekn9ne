@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is not outside man; it is within. — *George Eliot*"_
+_"It's much better to do good in a way that no one knows anything about it. — *Leo Tolstoy*"_
 
 ---
