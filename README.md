@@ -7,6 +7,6 @@
 
 ---
 
-_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
+_"You have the potential for greatness. — *Steve Harvey*"_
 
 ---
