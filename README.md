@@ -7,6 +7,6 @@
 
 ---
 
-_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
+_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
 
 ---
