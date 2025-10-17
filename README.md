@@ -7,6 +7,6 @@
 
 ---
 
-_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
+_"People think about what they don't want and attract more of the same. — *Unknown*"_
 
 ---
