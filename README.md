@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
+_"Surround yourself only with people who are going to take you higher. — *Oprah Winfrey*"_
 
 ---
