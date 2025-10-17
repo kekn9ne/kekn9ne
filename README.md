@@ -7,6 +7,6 @@
 
 ---
 
-_"I am thankful to all those who said no. It's because of them, I did it myself.   — *Wayne Dyer*"_
+_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
 
 ---
