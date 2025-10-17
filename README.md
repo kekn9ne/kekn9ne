@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer more often in imagination than in reality.   — *Seneca*"_
+_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
 
 ---
