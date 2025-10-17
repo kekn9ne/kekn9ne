@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
+_"Experience is simply the name we give our mistakes.  — *Oscar Wilde*"_
 
 ---
