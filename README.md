@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
+_"You give but little when you give of your possessions. It is when you give of yourself that you truly give. — *Kahlil Gibran*"_
 
 ---
