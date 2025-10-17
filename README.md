@@ -7,6 +7,6 @@
 
 ---
 
-_"Winning isn't everything, but wanting to win is. — *Vince Lombardi*"_
+_"Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — *Herbert Hoover*"_
 
 ---
