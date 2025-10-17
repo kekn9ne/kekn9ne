@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 17 October 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
 
 ---
