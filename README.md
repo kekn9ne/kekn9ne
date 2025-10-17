@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
+_"Do not think you will necessarily be aware of your own enlightenment. — *Dogen*"_
 
 ---
