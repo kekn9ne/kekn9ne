@@ -7,6 +7,6 @@
 
 ---
 
-_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
+_"Be where your enemy is not. — *Sun Tzu*"_
 
 ---
