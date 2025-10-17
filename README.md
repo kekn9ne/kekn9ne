@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
+_"Who wishes to fight must first count the cost. — *Sun Tzu*"_
 
 ---
