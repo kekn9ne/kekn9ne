@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"What is planted in each person's soul will sprout.   — *Rumi*"_
 
 ---
