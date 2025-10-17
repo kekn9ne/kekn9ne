@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"If you aim at nothing, you will hit it every time.   — *Zig Ziglar*"_
 
 ---
