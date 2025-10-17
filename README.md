@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 18 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **O Yar Gelir** by *Aynur Haşhaş* 🎶
 
 ---
 
-_"You can do two things at once, but you can't focus effectively on two things at once. — *Gary Keller*"_
+_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
 
 ---
