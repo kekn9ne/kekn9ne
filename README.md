@@ -7,6 +7,6 @@
 
 ---
 
-_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
+_"Life happens in the river, not the shore. — *Maxime Lagace*"_
 
 ---
