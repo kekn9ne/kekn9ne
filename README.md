@@ -7,6 +7,6 @@
 
 ---
 
-_"In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better. — *Spencer Johnson*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
