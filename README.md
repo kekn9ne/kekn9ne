@@ -7,6 +7,6 @@
 
 ---
 
-_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
+_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
 
 ---
