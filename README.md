@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
+_"Never take your position for granted and never let any favors you receive go to your head. — *Robert Greene*"_
 
 ---
