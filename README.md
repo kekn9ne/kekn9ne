@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
+_"The sun is new each day. — *Heraclitus*"_
 
 ---
