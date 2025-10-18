@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 18 October 2025**  
-🌤️ Weather in Istanbul: **🌦   +17°C**  
+🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
+_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
 
 ---
