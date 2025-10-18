@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it. — *Richard Bach*"_
+_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
 
 ---
