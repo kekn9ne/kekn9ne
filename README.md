@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is love and love is life. — *Elvis Presley*"_
+_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
 
 ---
