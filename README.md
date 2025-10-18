@@ -7,6 +7,6 @@
 
 ---
 
-_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
+_"Nothing makes a man broad-minded like adversity. — *Will Rogers*"_
 
 ---
