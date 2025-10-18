@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 18 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
 
 ---
 
-_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
+_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
 
 ---
