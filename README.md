@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not titles that honour men, but men that honour titles. — *Niccolo Machiavelli*"_
+_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
 
 ---
