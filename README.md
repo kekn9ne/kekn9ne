@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
