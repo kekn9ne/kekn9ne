@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
+_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
 
 ---
