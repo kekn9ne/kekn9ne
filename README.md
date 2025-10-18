@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can laugh, I can live. — *Christopher Reeve*"_
+_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
 
 ---
