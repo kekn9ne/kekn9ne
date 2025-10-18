@@ -7,6 +7,6 @@
 
 ---
 
-_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
+_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
 
 ---
