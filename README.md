@@ -7,6 +7,6 @@
 
 ---
 
-_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
+_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
 
 ---
