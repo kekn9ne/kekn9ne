@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no second chances in life, except to feel remorse. — *Carlos Ruiz Zafon*"_
+_"Heart is what separates the good from the great. — *Michael Jordan*"_
 
 ---
