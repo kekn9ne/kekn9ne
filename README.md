@@ -7,6 +7,6 @@
 
 ---
 
-_"It's much better to do good in a way that no one knows anything about it. — *Leo Tolstoy*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
