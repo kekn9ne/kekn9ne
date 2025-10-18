@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no shortcuts to any place worth going. — *Beverly Sills*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
