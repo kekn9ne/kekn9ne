@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
