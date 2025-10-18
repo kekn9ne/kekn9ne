@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 18 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Tmm 2.0** by *jausea* 🎶
+🎧 Currently Listening: **WOLKSWAGEN GT Inzaghi** by *Metukan* 🎶
 
 ---
 
-_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
+_"The nearer a man comes to a calm mind, the closer he is to strength. — *Marcus Aurelius*"_
 
 ---
