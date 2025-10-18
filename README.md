@@ -7,6 +7,6 @@
 
 ---
 
-_"Never take your position for granted and never let any favors you receive go to your head. — *Robert Greene*"_
+_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
 
 ---
