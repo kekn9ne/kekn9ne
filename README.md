@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
+_"You are free, and that is why you are lost. — *Franz Kafka*"_
 
 ---
