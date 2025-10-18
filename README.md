@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
+_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
 
 ---
