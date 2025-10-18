@@ -7,6 +7,6 @@
 
 ---
 
-_"Walking with a friend in the dark is better than walking alone in the light. — *Helen Keller*"_
+_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
 
 ---
