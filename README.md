@@ -7,6 +7,6 @@
 
 ---
 
-_"Life happens in the river, not the shore. — *Maxime Lagace*"_
+_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
 
 ---
