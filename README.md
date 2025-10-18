@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost. — *Franz Kafka*"_
+_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
 
 ---
