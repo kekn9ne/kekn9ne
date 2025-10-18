@@ -7,6 +7,6 @@
 
 ---
 
-_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
+_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
 
 ---
