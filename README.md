@@ -7,6 +7,6 @@
 
 ---
 
-_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
+_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
 
 ---
