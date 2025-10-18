@@ -7,6 +7,6 @@
 
 ---
 
-_"To be happy we need something to solve. Happiness is therefore a form of action. — *Mark Manson*"_
+_"Unless you're ashamed of yourself now and then, you're not honest. — *William Faulkner*"_
 
 ---
