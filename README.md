@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
+_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
 
 ---
