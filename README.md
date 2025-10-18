@@ -7,6 +7,6 @@
 
 ---
 
-_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
+_"Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before. — *Alexander Graham Bell*"_
 
 ---
