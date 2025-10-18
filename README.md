@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
