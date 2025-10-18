@@ -7,6 +7,6 @@
 
 ---
 
-_"The sun is new each day. — *Heraclitus*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
