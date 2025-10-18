@@ -7,6 +7,6 @@
 
 ---
 
-_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
