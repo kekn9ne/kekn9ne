@@ -7,6 +7,6 @@
 
 ---
 
-_"Focused, hard work is the real key to success. — *John Carmack*"_
+_"Walking with a friend in the dark is better than walking alone in the light. — *Helen Keller*"_
 
 ---
