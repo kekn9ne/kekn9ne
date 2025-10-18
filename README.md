@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
+_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
 
 ---
