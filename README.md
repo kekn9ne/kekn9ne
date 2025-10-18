@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure means you've now learned another valuable lesson that pushes you one step closer to success. — *Steve Harvey*"_
+_"Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on. — *Criss Jami*"_
 
 ---
