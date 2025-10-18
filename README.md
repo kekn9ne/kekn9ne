@@ -7,6 +7,6 @@
 
 ---
 
-_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
+_"You can tell more about a person by what he says about others than you can by what others say about him. — *Audrey Hepburn*"_
 
 ---
