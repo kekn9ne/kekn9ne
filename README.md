@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
