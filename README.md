@@ -7,6 +7,6 @@
 
 ---
 
-_"Anything becomes interesting if you look at it long enough.. — *Gustave Flaubert*"_
+_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
 
 ---
