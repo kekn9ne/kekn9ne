@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
+_"There are no second chances in life, except to feel remorse. — *Carlos Ruiz Zafon*"_
 
 ---
