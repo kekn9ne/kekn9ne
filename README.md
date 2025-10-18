@@ -7,6 +7,6 @@
 
 ---
 
-_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
+_"Anything becomes interesting if you look at it long enough.. — *Gustave Flaubert*"_
 
 ---
