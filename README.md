@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you. — *Criss Jami*"_
+_"The most important things are the hardest to say. — *Stephen King*"_
 
 ---
