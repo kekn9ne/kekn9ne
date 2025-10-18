@@ -7,6 +7,6 @@
 
 ---
 
-_"Ability is a poor man's wealth. — *John Wooden*"_
+_"Dance first. Think later. It's the natural order. — *Samuel Beckett*"_
 
 ---
