@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"It is not titles that honour men, but men that honour titles. — *Niccolo Machiavelli*"_
 
 ---
