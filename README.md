@@ -7,6 +7,6 @@
 
 ---
 
-_"Life begins where fear ends. — *Osho*"_
+_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
 
 ---
