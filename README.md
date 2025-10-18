@@ -7,6 +7,6 @@
 
 ---
 
-_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
+_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
 
 ---
