@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 18 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: **Tmm 2.0** by *jausea* 🎶
 
 ---
 
-_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
+_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
 
 ---
