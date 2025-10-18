@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
+_"The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you. — *Criss Jami*"_
 
 ---
