@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing makes a man broad-minded like adversity. — *Will Rogers*"_
+_"There are no shortcuts to any place worth going. — *Beverly Sills*"_
 
 ---
