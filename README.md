@@ -7,6 +7,6 @@
 
 ---
 
-_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
+_"Reading should be a pleasure, not a chore. — *Joan Rivers*"_
 
 ---
