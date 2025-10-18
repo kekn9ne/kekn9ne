@@ -7,6 +7,6 @@
 
 ---
 
-_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
+_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
 
 ---
