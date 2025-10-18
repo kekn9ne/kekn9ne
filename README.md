@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding failure is to avoid progress. — *Unknown*"_
+_"Ability is a poor man's wealth. — *John Wooden*"_
 
 ---
