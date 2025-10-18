@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
 
 ---
