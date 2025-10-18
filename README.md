@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
+_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
 
 ---
