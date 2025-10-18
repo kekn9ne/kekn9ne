@@ -7,6 +7,6 @@
 
 ---
 
-_"I must also have a dark side if I am to be whole. — *Carl Jung*"_
+_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
 
 ---
