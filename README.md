@@ -7,6 +7,6 @@
 
 ---
 
-_"One is never afraid of the unknown; one is afraid of the known coming to an end. — *Jiddu Krishnamurti*"_
+_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
 
 ---
