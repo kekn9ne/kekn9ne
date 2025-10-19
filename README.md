@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"Where does a thought go when it's forgotten? — *Sigmund Freud*"_
 
 ---
