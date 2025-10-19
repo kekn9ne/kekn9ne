@@ -7,6 +7,6 @@
 
 ---
 
-_"Good judgment comes from experience, and experience comes from bad judgment. — *Rita Mae Brown*"_
+_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
 
 ---
