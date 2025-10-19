@@ -7,6 +7,6 @@
 
 ---
 
-_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
+_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
 
 ---
