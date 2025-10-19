@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
+_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
 
 ---
