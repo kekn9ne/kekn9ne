@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't set your own goals by what other people make important. — *Lolly Daskal*"_
+_"Never settle for the crumbs of life. — *Og Mandino*"_
 
 ---
