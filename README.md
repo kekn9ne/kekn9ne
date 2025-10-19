@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
+_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
 
 ---
