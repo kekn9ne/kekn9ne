@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
 
 ---
