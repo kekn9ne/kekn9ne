@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 19 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mor Salkımlı Sokak - Akustik** by *Bengü* 🎶
 
 ---
 
-_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
+_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
 
 ---
