@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
+_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
 
 ---
