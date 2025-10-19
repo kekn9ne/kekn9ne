@@ -7,6 +7,6 @@
 
 ---
 
-_"The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune.  — *Charles Swindoll*"_
+_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
 
 ---
