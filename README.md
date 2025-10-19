@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
+_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
 
 ---
