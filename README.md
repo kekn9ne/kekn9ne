@@ -7,6 +7,6 @@
 
 ---
 
-_"If you truly expect something to be difficult, it will be. — *Peter A. Cohen*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
