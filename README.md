@@ -7,6 +7,6 @@
 
 ---
 
-_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
+_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
 
 ---
