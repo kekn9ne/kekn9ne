@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
