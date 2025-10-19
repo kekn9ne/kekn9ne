@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is always right. — *Ming-Dao Deng*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
