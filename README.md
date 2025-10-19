@@ -7,6 +7,6 @@
 
 ---
 
-_"Fortunate are those who take the first steps. — *Paulo Coelho*"_
+_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
 
 ---
