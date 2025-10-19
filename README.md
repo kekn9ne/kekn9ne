@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
+_"To forget the whole world is easy; to make the whole world forget you is hard. — *Zhuangzi*"_
 
 ---
