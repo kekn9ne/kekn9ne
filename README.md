@@ -7,6 +7,6 @@
 
 ---
 
-_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
+_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
 
 ---
