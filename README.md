@@ -7,6 +7,6 @@
 
 ---
 
-_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
+_"Who you are is always right. — *Ming-Dao Deng*"_
 
 ---
