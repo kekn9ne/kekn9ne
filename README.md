@@ -7,6 +7,6 @@
 
 ---
 
-_"Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot. — *D. H. Lawrence*"_
+_"I must also have a dark side if I am to be whole. — *Carl Jung*"_
 
 ---
