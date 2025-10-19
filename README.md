@@ -7,6 +7,6 @@
 
 ---
 
-_"Never settle for the crumbs of life. — *Og Mandino*"_
+_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
 
 ---
