@@ -7,6 +7,6 @@
 
 ---
 
-_"Debt is the slavery of the free. — *Publilius Syrus*"_
+_"We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities. — *Josh Waitzkin*"_
 
 ---
