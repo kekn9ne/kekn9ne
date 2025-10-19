@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
+_"No experience is a cause of success or failure. We do not suffer from the shock of our experiences, so-called trauma - but we make out of them just what suits our purposes. — *Alfred Adler*"_
 
 ---
