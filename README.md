@@ -7,6 +7,6 @@
 
 ---
 
-_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
+_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
 
 ---
