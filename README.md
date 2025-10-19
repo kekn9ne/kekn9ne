@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 19 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
+_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
 
 ---
