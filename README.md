@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
+_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
 
 ---
