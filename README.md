@@ -7,6 +7,6 @@
 
 ---
 
-_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
