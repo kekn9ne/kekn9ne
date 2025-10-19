@@ -7,6 +7,6 @@
 
 ---
 
-_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
+_"Surround yourself with people who take their work seriously, but not themselves, those who work hard and play hard. — *Colin Powell*"_
 
 ---
