@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
+_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
 
 ---
