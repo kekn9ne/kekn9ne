@@ -7,6 +7,6 @@
 
 ---
 
-_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
+_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
 
 ---
