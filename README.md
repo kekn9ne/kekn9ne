@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
+_"The quality of your life is determined by the quality of your thoughts. — *Unknown*"_
 
 ---
