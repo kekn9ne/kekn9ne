@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead the people, walk behind them. — *Lao Tzu*"_
+_"Don't be afraid to see what you see. — *Ronald Reagan*"_
 
 ---
