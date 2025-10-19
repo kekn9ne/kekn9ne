@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
+_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
 
 ---
