@@ -7,6 +7,6 @@
 
 ---
 
-_"Never do to others what you would not like them to do to you.  — *Confucius*"_
+_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
 
 ---
