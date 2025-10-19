@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no fear for one whose mind is not filled with desires. — *Buddha*"_
+_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
 
 ---
