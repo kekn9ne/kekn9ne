@@ -7,6 +7,6 @@
 
 ---
 
-_"Life must be rich and full of loving-it's no good otherwise, no good at all, for anyone.   — *Jack Kerouac*"_
+_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
 
 ---
