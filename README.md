@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to see what you see. — *Ronald Reagan*"_
+_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
 
 ---
