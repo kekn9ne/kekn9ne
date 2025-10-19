@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
+_"My definition of success is control. — *Kenneth Branagh*"_
 
 ---
