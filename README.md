@@ -7,6 +7,6 @@
 
 ---
 
-_"Belief creates the actual fact. — *William James*"_
+_"When you have a dream, you've got to grab it and never let go. — *Carol Burnett*"_
 
 ---
