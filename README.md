@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are grateful for what you have the more you will have to be grateful for.   — *Zig Ziglar*"_
+_"Opportunity comes when you continually push forward. — *Sonia Ricotti*"_
 
 ---
