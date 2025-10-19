@@ -7,6 +7,6 @@
 
 ---
 
-_"Being in a good frame of mind helps keep one in the picture of health. — *Unknown*"_
+_"He is not a lover who does not love forever. — *Euripides*"_
 
 ---
