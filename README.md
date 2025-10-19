@@ -7,6 +7,6 @@
 
 ---
 
-_"The first rule of handling conflict is don't hang around people who are constantly engaging in conflict. — *Naval Ravikant*"_
+_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
 
 ---
