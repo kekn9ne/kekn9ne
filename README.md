@@ -7,6 +7,6 @@
 
 ---
 
-_"Duty makes us do things well, but love makes us do them beautifully.   — *Zig Ziglar*"_
+_"Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. — *Steve Jobs*"_
 
 ---
