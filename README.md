@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
+_"To lead the people, walk behind them. — *Lao Tzu*"_
 
 ---
