@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
+_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
 
 ---
