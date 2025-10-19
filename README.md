@@ -7,6 +7,6 @@
 
 ---
 
-_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
+_"If you want to know what God thinks about money just look at the people He gives it to. — *Alexander Pope*"_
 
 ---
