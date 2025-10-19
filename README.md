@@ -7,6 +7,6 @@
 
 ---
 
-_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
+_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
 
 ---
