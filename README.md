@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
+_"Duty makes us do things well, but love makes us do them beautifully.   — *Zig Ziglar*"_
 
 ---
