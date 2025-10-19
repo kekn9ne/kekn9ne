@@ -7,6 +7,6 @@
 
 ---
 
-_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
+_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
 
 ---
