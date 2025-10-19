@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
+_"The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune.  — *Charles Swindoll*"_
 
 ---
