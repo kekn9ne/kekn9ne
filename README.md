@@ -7,6 +7,6 @@
 
 ---
 
-_"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — *Alfred Adler*"_
+_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
 
 ---
