@@ -7,6 +7,6 @@
 
 ---
 
-_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
+_"Meanings are not determined by situations, but we determine ourselves by the meanings we give to situations. — *Alfred Adler*"_
 
 ---
