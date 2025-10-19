@@ -7,6 +7,6 @@
 
 ---
 
-_"He is not a lover who does not love forever. — *Euripides*"_
+_"Difficult roads often lead to beautiful destinations. — *Unknown*"_
 
 ---
