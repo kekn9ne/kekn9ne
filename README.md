@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
 
 ---
