@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 20 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **118 80** by *KAVAK* 🎶
 
 ---
 
-_"Expect the best of yourself, and then do what is necessary to make it a reality. — *Ralph Marston*"_
+_"No great discovery was ever made without a bold guess.  — *Isaac Newton*"_
 
 ---
