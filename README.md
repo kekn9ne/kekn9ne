@@ -7,6 +7,6 @@
 
 ---
 
-_"Wrong turns are as important as right turns. More important, sometimes. — *Richard Bach*"_
+_"The river that flows in you also flows in me. — *Kabir*"_
 
 ---
