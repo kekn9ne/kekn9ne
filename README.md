@@ -7,6 +7,6 @@
 
 ---
 
-_"At the end of the day, let there be no excuses, no explanations, no regrets. — *Steve Maraboli*"_
+_"Time is a game played beautifully by children. — *Heraclitus*"_
 
 ---
