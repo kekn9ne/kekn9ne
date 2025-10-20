@@ -7,6 +7,6 @@
 
 ---
 
-_"The hard path is often the right one. The river teaches more than the shore. — *Maxime Lagace*"_
+_"Never stand begging for that which you have the power to earn. — *Miguel de Cervantes*"_
 
 ---
