@@ -7,6 +7,6 @@
 
 ---
 
-_"The river that flows in you also flows in me. — *Kabir*"_
+_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
 
 ---
