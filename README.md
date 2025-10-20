@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 20 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RASTAFARAY** by *ERU* 🎶
 
 ---
 
-_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
+_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
 
 ---
