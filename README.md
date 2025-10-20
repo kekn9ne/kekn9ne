@@ -7,6 +7,6 @@
 
 ---
 
-_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
+_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
 
 ---
