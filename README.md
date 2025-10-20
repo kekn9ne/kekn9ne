@@ -7,6 +7,6 @@
 
 ---
 
-_"The only real mistake is the one from which we learn nothing.  — *Henry Ford*"_
+_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
 
 ---
