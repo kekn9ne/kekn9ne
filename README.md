@@ -7,6 +7,6 @@
 
 ---
 
-_"Big people don't make people feel small. — *Robin Sharma*"_
+_"The only time you run out of chances is when you stop taking them. — *Unknown*"_
 
 ---
