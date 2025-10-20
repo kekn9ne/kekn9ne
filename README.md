@@ -7,6 +7,6 @@
 
 ---
 
-_"Dream big and dare to fail. — *Norman Vaughan*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
