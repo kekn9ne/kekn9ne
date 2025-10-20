@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't talk about what you have done or what you are going to do. — *Thomas Jefferson*"_
+_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
 
 ---
