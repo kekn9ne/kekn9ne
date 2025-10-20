@@ -7,6 +7,6 @@
 
 ---
 
-_"Plants grow weak without wind. — *Maxime Lagace*"_
+_"Expect the best of yourself, and then do what is necessary to make it a reality. — *Ralph Marston*"_
 
 ---
