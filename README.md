@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"Progress lies not in enhancing what is, but in advancing toward what will be. — *Kahlil Gibran*"_
 
 ---
