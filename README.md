@@ -7,6 +7,6 @@
 
 ---
 
-_"An ounce of performance is worth pounds of promises. — *Mae West*"_
+_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
 
 ---
