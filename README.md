@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
 
 ---
