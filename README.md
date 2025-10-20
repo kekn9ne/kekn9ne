@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
+_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
 
 ---
