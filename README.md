@@ -7,6 +7,6 @@
 
 ---
 
-_"People are not disturbed by things, but by the views they take of them. — *Epictetus*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
