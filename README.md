@@ -7,6 +7,6 @@
 
 ---
 
-_"You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead? — *Seneca*"_
+_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
 
 ---
