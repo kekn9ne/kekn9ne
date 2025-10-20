@@ -7,6 +7,6 @@
 
 ---
 
-_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
+_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
 
 ---
