@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
+_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
 
 ---
