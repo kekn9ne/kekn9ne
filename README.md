@@ -7,6 +7,6 @@
 
 ---
 
-_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
+_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
 
 ---
