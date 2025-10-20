@@ -7,6 +7,6 @@
 
 ---
 
-_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
+_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
 
 ---
