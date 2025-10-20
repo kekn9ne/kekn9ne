@@ -7,6 +7,6 @@
 
 ---
 
-_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
+_"Big people don't make people feel small. — *Robin Sharma*"_
 
 ---
