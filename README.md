@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people want it to happen, some wish it would happen, others make it happen. — *Michael Jordan*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
