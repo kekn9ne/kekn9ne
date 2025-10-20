@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools resist. The wise embrace. — *Maxime Lagace*"_
+_"An ounce of performance is worth pounds of promises. — *Mae West*"_
 
 ---
