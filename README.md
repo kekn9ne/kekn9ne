@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 20 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +19°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"Wrong turns are as important as right turns. More important, sometimes. — *Richard Bach*"_
 
 ---
