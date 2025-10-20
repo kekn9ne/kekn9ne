@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools resist. The wise embrace. — *Maxime Lagace*"_
+_"At the end of the day, let there be no excuses, no explanations, no regrets. — *Steve Maraboli*"_
 
 ---
