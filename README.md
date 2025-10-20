@@ -7,6 +7,6 @@
 
 ---
 
-_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
+_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
 
 ---
