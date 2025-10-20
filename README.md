@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 20 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **RASTAFARAY** by *ERU* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
+_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
 
 ---
