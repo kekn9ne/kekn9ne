@@ -7,6 +7,6 @@
 
 ---
 
-_"To wish you were someone else is to waste the person you are. — *Unknown*"_
+_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
 
 ---
