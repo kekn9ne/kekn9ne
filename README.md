@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a poor teacher. — *Robert Kiyosaki*"_
+_"People are not disturbed by things, but by the views they take of them. — *Epictetus*"_
 
 ---
