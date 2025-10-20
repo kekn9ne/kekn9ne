@@ -7,6 +7,6 @@
 
 ---
 
-_"The only time you run out of chances is when you stop taking them. — *Unknown*"_
+_"Fools resist. The wise embrace. — *Maxime Lagace*"_
 
 ---
