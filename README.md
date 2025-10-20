@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being. — *Anita Krizzan*"_
+_"First learn the meaning of what you say, and then speak. — *Epictetus*"_
 
 ---
