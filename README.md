@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 21 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
 
 ---
 
-_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
+_"Fear is a natural reaction to moving closer to the truth. — *Pema Chodron*"_
 
 ---
