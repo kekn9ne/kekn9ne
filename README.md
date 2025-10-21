@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is letting it be. Letting life flow, letting emotions flow through you. — *Kamal Ravikant*"_
+_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
 
 ---
