@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
+_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
 
 ---
