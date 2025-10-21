@@ -7,6 +7,6 @@
 
 ---
 
-_"Your purpose will be clear only when you listen to your heart. — *Lolly Daskal*"_
+_"Life is love and love is life. — *Elvis Presley*"_
 
 ---
