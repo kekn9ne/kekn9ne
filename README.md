@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners never quit and quitters never win. — *Vince Lombardi*"_
+_"Peace is letting it be. Letting life flow, letting emotions flow through you. — *Kamal Ravikant*"_
 
 ---
