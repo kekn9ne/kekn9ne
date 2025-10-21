@@ -7,6 +7,6 @@
 
 ---
 
-_"Be fascinated instead of frustrated. — *Jim Rohn*"_
+_"Success is getting what you want... Happiness is wanting what you get. — *Dale Carnegie*"_
 
 ---
