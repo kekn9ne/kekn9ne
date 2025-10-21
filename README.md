@@ -7,6 +7,6 @@
 
 ---
 
-_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
+_"Do something worth remembering. — *Elvis Presley*"_
 
 ---
