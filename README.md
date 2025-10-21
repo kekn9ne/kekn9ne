@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 21 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **MASERATI** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
+_"There are two ways of seeing: with the body and with the soul. The body's sight can sometimes forget, but the soul remembers forever. — *Alexandre Dumas*"_
 
 ---
