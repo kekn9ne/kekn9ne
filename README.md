@@ -7,6 +7,6 @@
 
 ---
 
-_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
+_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
 
 ---
