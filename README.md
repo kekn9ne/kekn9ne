@@ -7,6 +7,6 @@
 
 ---
 
-_"The two most important days in your life are the day you are born and the day you find out why. — *Mark Twain*"_
+_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
 
 ---
