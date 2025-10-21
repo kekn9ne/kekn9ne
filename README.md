@@ -7,6 +7,6 @@
 
 ---
 
-_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
+_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
 
 ---
