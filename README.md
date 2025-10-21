@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts. — *George Bernard Shaw*"_
+_"Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people. — *Roy T. Bennett*"_
 
 ---
