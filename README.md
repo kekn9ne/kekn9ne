@@ -7,6 +7,6 @@
 
 ---
 
-_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
+_"Forgive those who have hurt you. — *Les Brown*"_
 
 ---
