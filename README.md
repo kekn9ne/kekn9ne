@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is open for play, everything and everybody is mockable in a wonderful way. — *Robin Williams*"_
+_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
 
 ---
