@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — *Benjamin Mays*"_
+_"Whenever people agree with me I always feel I must be wrong. — *Oscar Wilde*"_
 
 ---
