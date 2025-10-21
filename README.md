@@ -7,6 +7,6 @@
 
 ---
 
-_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
+_"He suffers more than necessary, who suffers before it is necessary.   — *Seneca*"_
 
 ---
