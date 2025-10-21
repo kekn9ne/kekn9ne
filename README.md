@@ -7,6 +7,6 @@
 
 ---
 
-_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
+_"Your purpose will be clear only when you listen to your heart. — *Lolly Daskal*"_
 
 ---
