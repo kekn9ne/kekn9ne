@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
+_"Whatever happens always happens on time. — *Zen Proverb*"_
 
 ---
