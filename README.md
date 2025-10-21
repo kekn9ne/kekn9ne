@@ -7,6 +7,6 @@
 
 ---
 
-_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
+_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
 
 ---
