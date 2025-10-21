@@ -7,6 +7,6 @@
 
 ---
 
-_"Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.  — *Oprah Winfrey*"_
+_"A very little key will open a very heavy door. — *Charles Dickens*"_
 
 ---
