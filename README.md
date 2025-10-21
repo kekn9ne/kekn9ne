@@ -7,6 +7,6 @@
 
 ---
 
-_"The farther backward you can look, the farther forward you are likely to see. — *Winston Churchill*"_
+_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
 
 ---
