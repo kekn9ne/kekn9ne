@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
+_"If you're afraid to die, you're afraid to live. You can't have one without the other. — *Rita Mae Brown*"_
 
 ---
