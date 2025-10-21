@@ -7,6 +7,6 @@
 
 ---
 
-_"The essence of the Way is detachment. — *Bodhidharma*"_
+_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
 
 ---
