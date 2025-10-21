@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't gain the world and lose your soul. Wisdom is better than silver and gold. — *Bob Marley*"_
+_"The great use of life is to spend it for something that will outlast it. — *William James*"_
 
 ---
