@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen. — *Wayne Dyer*"_
+_"Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.  — *Oprah Winfrey*"_
 
 ---
