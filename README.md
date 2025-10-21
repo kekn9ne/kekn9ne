@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is in your own heart. — *Thich Nhat Hanh*"_
+_"The world is open for play, everything and everybody is mockable in a wonderful way. — *Robin Williams*"_
 
 ---
