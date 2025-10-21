@@ -7,6 +7,6 @@
 
 ---
 
-_"Dream big. Start small. But most of all, start. — *Simon Sinek*"_
+_"Supreme excellence consists of breaking the enemy's resistance without fighting. — *Sun Tzu*"_
 
 ---
