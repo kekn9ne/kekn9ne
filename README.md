@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 21 October 2025**  
 🌤️ Weather in Istanbul: **☁️   +11°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Sanki Bir Halkın** by *Gazapizm* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What have you done today to make someone else happy? — *Deepam Chaterjee*"_
+_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
 
 ---
