@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 21 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"No idea, no matter how good, will work if it doesn't get used. — *Peter A. Cohen*"_
+_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
 
 ---
