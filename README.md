@@ -7,6 +7,6 @@
 
 ---
 
-_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
+_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
 
 ---
