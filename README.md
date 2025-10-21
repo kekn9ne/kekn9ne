@@ -7,6 +7,6 @@
 
 ---
 
-_"He suffers more than necessary, who suffers before it is necessary.   — *Seneca*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
