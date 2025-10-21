@@ -7,6 +7,6 @@
 
 ---
 
-_"Never close your lips to those whom you have already opened your heart. — *Charles Dickens*"_
+_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
 
 ---
