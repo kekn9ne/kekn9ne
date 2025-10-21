@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
 
 ---
