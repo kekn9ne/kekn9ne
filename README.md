@@ -7,6 +7,6 @@
 
 ---
 
-_"The great use of life is to spend it for something that will outlast it. — *William James*"_
+_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
 
 ---
