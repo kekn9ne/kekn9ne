@@ -7,6 +7,6 @@
 
 ---
 
-_"To the world you may be one person; but to one person you may be the world. — *Dr. Seuss*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
