@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure can be supported by an illusion; but happiness rests upon truth.  — *Nicolas Chamfort*"_
+_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
 
 ---
