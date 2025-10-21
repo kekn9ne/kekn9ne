@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 21 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +20°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"The great use of life is to spend it for something that will outlast it. — *William James*"_
+_"No idea, no matter how good, will work if it doesn't get used. — *Peter A. Cohen*"_
 
 ---
