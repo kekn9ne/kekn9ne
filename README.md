@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is love and love is life. — *Elvis Presley*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
