@@ -7,6 +7,6 @@
 
 ---
 
-_"Watch what you say, and whatever you say, practice it. — *Soyen Shaku*"_
+_"There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen. — *Wayne Dyer*"_
 
 ---
