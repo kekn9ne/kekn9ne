@@ -7,6 +7,6 @@
 
 ---
 
-_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
+_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
 
 ---
