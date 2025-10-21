@@ -7,6 +7,6 @@
 
 ---
 
-_"A self that goes on changing is a self that goes on living. — *Virginia Woolf*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
