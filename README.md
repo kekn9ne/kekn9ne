@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever people agree with me I always feel I must be wrong. — *Oscar Wilde*"_
+_"The scariest moment is always just before you start. After that, things can only get better. — *Stephen King*"_
 
 ---
