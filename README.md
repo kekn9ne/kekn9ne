@@ -7,6 +7,6 @@
 
 ---
 
-_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
+_"Imagination is everything. It is the preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
