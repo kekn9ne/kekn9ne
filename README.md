@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
 
 ---
