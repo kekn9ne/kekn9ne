@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something worth remembering. — *Elvis Presley*"_
+_"Everything is in your own heart. — *Thich Nhat Hanh*"_
 
 ---
