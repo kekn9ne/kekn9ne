@@ -7,6 +7,6 @@
 
 ---
 
-_"Forgive those who have hurt you. — *Les Brown*"_
+_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
 
 ---
