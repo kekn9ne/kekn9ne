@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for if not to make life less difficult for each other? — *T.S. Eliot*"_
+_"Through discipline comes freedom. — *Aristotle*"_
 
 ---
