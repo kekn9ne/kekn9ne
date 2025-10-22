@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are easily shocked should be shocked more often. — *Mae West*"_
+_"You know the more one does the more one can do. — *Amelia Earhart*"_
 
 ---
