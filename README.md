@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 22 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Today you are you, that is truer than true. There is no one alive who is you-er than you. — *Dr. Seuss*"_
+_"I do not seek. I find. — *Pablo Picasso*"_
 
 ---
