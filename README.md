@@ -7,6 +7,6 @@
 
 ---
 
-_"Closing your eyes and listening to silence is self-care. — *Maxime Lagace*"_
+_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
 
 ---
