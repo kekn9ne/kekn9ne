@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
 
 ---
