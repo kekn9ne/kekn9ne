@@ -7,6 +7,6 @@
 
 ---
 
-_"All animals except man know that the principal business of life is to enjoy it. — *Samuel Butler*"_
+_"Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today. — *Thich Nhat Hanh*"_
 
 ---
