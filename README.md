@@ -7,6 +7,6 @@
 
 ---
 
-_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
+_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
 
 ---
