@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
+_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
 
 ---
