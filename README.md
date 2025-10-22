@@ -7,6 +7,6 @@
 
 ---
 
-_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
+_"Love is not about possession. Love is about appreciation. — *Osho*"_
 
 ---
