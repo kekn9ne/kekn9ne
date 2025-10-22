@@ -7,6 +7,6 @@
 
 ---
 
-_"For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter. — *Celestine Chua*"_
+_"Closing your eyes and listening to silence is self-care. — *Maxime Lagace*"_
 
 ---
