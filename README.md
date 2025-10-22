@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is from the inside out. When you shift on the inside, life shifts on the outside. — *Kamal Ravikant*"_
+_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
 
 ---
