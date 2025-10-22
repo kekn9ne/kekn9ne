@@ -7,6 +7,6 @@
 
 ---
 
-_"Normality is a paved road: It's comfortable to walk, but no flowers grow on it. — *Vincent van Gogh*"_
+_"Whenever people agree with me I always feel I must be wrong. — *Oscar Wilde*"_
 
 ---
