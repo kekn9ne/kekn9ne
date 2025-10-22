@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is not about possession. Love is about appreciation. — *Osho*"_
+_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
 
 ---
