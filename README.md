@@ -7,6 +7,6 @@
 
 ---
 
-_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
+_"Nothing will work unless you do. — *Maya Angelou*"_
 
 ---
