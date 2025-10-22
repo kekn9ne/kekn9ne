@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Dark Paradise** by *Lana Del Rey* 🎶
+🎧 Currently Listening: **PAHALI ve KALİTELİ** by *Organize* 🎶
 
 ---
 
-_"A zen master's life is one continuous mistake. — *Dogen*"_
+_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
 
 ---
