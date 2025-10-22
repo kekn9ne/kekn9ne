@@ -7,6 +7,6 @@
 
 ---
 
-_"Ability is a poor man's wealth. — *John Wooden*"_
+_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
 
 ---
