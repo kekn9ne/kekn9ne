@@ -7,6 +7,6 @@
 
 ---
 
-_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
+_"If you're brave enough to say goodbye, life will reward you with a new hello. — *Paulo Coelho*"_
 
 ---
