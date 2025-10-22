@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your dreams, you never know when you might need them. — *Carlos Ruiz Zafon*"_
+_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
 
 ---
