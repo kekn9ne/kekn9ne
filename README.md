@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing will work unless you do. — *Maya Angelou*"_
+_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
 
 ---
