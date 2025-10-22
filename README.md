@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're brave enough to say goodbye, life will reward you with a new hello. — *Paulo Coelho*"_
+_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
 
 ---
