@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect was invented to cover the empty place where love should be. — *Leo Tolstoy*"_
+_"High thoughts must have high language. — *Aristophanes*"_
 
 ---
