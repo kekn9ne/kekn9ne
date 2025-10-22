@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever people agree with me I always feel I must be wrong. — *Oscar Wilde*"_
+_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
 
 ---
