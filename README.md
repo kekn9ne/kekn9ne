@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 22 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **PEKİ PEKİ** by *Lvbel C5* 🎶
 
 ---
 
-_"The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now! — *Tony Robbins*"_
+_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
 
 ---
