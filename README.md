@@ -7,6 +7,6 @@
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"Normality is a paved road: It's comfortable to walk, but no flowers grow on it. — *Vincent van Gogh*"_
 
 ---
