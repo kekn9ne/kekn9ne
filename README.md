@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. — *Albus Dumbledore*"_
+_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
 
 ---
