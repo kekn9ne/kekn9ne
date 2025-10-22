@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Dark Paradise** by *Lana Del Rey* 🎶
 
 ---
 
-_"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. — *Steve Maraboli*"_
+_"A zen master's life is one continuous mistake. — *Dogen*"_
 
 ---
