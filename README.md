@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no coming to consciousness without pain — *Carl Jung*"_
+_"It takes a very long time to become young. — *Pablo Picasso*"_
 
 ---
