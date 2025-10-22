@@ -7,6 +7,6 @@
 
 ---
 
-_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
+_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
 
 ---
