@@ -7,6 +7,6 @@
 
 ---
 
-_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
+_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
 
 ---
