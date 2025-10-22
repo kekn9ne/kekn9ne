@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken  — *Oscar Wilde*"_
+_"The great use of life is to spend it for something that will outlast it. — *William James*"_
 
 ---
