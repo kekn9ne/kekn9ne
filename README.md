@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
+_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
 
 ---
