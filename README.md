@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 22 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **MERMER** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
