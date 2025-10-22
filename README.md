@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"All animals except man know that the principal business of life is to enjoy it. — *Samuel Butler*"_
 
 ---
