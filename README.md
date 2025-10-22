@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who do nothing at all make no mistakes. — *Unknown*"_
+_"Respect was invented to cover the empty place where love should be. — *Leo Tolstoy*"_
 
 ---
