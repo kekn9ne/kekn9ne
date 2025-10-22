@@ -7,6 +7,6 @@
 
 ---
 
-_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
+_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
 
 ---
