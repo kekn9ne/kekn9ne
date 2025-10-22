@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
 
 ---
