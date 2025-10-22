@@ -7,6 +7,6 @@
 
 ---
 
-_"Through discipline comes freedom. — *Aristotle*"_
+_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
 
 ---
