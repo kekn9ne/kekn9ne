@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 22 October 2025**  
-🌤️ Weather in Istanbul: **🌦   +18°C**  
+🌤️ Weather in Istanbul: **⛈   +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. — *Epictetus*"_
+_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
 
 ---
