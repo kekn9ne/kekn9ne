@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
+_"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. — *Albus Dumbledore*"_
 
 ---
