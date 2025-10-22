@@ -7,6 +7,6 @@
 
 ---
 
-_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
+_"The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now! — *Tony Robbins*"_
 
 ---
