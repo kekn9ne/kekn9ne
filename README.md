@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
+_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
 
 ---
