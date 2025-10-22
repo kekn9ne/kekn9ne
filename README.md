@@ -7,6 +7,6 @@
 
 ---
 
-_"A minute's success pays the failure of years. — *Robert Browning*"_
+_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
 
 ---
