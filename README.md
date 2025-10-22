@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 22 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"Today you are you, that is truer than true. There is no one alive who is you-er than you. — *Dr. Seuss*"_
 
 ---
