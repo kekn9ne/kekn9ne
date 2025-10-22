@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
+_"For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter. — *Celestine Chua*"_
 
 ---
