@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope is important because it can make the present moment less difficult to bear. If we believe that tomorrow will be better, we can bear a hardship today. — *Thich Nhat Hanh*"_
+_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
 
 ---
