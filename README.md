@@ -7,6 +7,6 @@
 
 ---
 
-_"The glow of one warm thought is to me worth more than money. — *Thomas Jefferson*"_
+_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
 
 ---
