@@ -7,6 +7,6 @@
 
 ---
 
-_"My sun sets to rise again. — *Robert Browning*"_
+_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
 
 ---
