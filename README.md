@@ -7,6 +7,6 @@
 
 ---
 
-_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
+_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
 
 ---
