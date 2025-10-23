@@ -7,6 +7,6 @@
 
 ---
 
-_"I pay attention to every minute of the day. — *Steve Harvey*"_
+_"I have lost friends, some by death...others by sheer inability to cross the street. — *Virginia Woolf*"_
 
 ---
