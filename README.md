@@ -7,6 +7,6 @@
 
 ---
 
-_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
+_"Someday death will take us to another star. — *Vincent van Gogh*"_
 
 ---
