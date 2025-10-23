@@ -7,6 +7,6 @@
 
 ---
 
-_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
+_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
 
 ---
