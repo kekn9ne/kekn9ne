@@ -7,6 +7,6 @@
 
 ---
 
-_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
+_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
 
 ---
