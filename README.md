@@ -7,6 +7,6 @@
 
 ---
 
-_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
