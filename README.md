@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 23 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Maskeli Balo** by *Sagopa Kajmer* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are today where your thoughts have brought you. — *James Allen*"_
+_"Do one thing every day that scares you. — *Eleanor Roosevelt*"_
 
 ---
