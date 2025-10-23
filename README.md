@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't have time to do it right, when will you have time to do it over? — *John Wooden*"_
+_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
 
 ---
