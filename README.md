@@ -7,6 +7,6 @@
 
 ---
 
-_"It is well known that those who do not trust themselves never trust others. — *Alfred Adler*"_
+_"The glow of one warm thought is to me worth more than money. — *Thomas Jefferson*"_
 
 ---
