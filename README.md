@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a vision. Be demanding. — *Colin Powell*"_
+_"Don't be afraid to see what you see. — *Ronald Reagan*"_
 
 ---
