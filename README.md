@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **19** by *Organize* 🎶
 
 ---
 
-_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
+_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
 
 ---
