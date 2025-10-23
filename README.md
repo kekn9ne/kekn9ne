@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you think the world is withholding from you, you are withholding from the world. — *Eckhart Tolle*"_
+_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
 
 ---
