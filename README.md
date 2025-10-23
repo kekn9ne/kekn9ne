@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 24 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"Enlightenment is intimacy with all things. — *Dogen*"_
+_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
 
 ---
