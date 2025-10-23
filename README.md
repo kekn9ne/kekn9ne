@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
+_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
 
 ---
