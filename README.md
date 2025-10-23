@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 24 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — *Charles Dickens*"_
+_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
 
 ---
