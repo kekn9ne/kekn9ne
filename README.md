@@ -7,6 +7,6 @@
 
 ---
 
-_"At every moment where language can't go, that's your mind. — *Bodhidharma*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
