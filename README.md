@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 24 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
+🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
 
 ---
 
-_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
+_"Family not only needs to consist of merely those whom we share blood, but also of those whom we'd give blood. — *Charles Dickens*"_
 
 ---
