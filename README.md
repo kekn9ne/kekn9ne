@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
