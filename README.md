@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **19** by *Organize* 🎶
+🎧 Currently Listening: **Benim Aklımdan Zorum Var** by *Şanışer* 🎶
 
 ---
 
-_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
+_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
 
 ---
