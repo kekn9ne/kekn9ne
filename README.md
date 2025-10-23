@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
+_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
 
 ---
