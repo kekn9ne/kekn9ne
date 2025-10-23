@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let what you cannot do interfere with what you can do. — *John Wooden*"_
+_"Happiness is the absence of the striving for happiness. — *Zhuangzi*"_
 
 ---
