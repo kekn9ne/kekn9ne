@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.   — *Seneca*"_
+_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
 
 ---
