@@ -7,6 +7,6 @@
 
 ---
 
-_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
