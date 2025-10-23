@@ -7,6 +7,6 @@
 
 ---
 
-_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
