@@ -7,6 +7,6 @@
 
 ---
 
-_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
+_"If you don't have time to do it right, when will you have time to do it over? — *John Wooden*"_
 
 ---
