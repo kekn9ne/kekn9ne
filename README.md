@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Maskeli Balo** by *Sagopa Kajmer* 🎶
 
 ---
 
-_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
+_"You are today where your thoughts have brought you. — *James Allen*"_
 
 ---
