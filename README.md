@@ -7,6 +7,6 @@
 
 ---
 
-_"Reversing your treatment of the man you have wronged is better than asking his forgiveness. — *Elbert Hubbard*"_
+_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
 
 ---
