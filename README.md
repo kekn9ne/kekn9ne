@@ -7,6 +7,6 @@
 
 ---
 
-_"Someday death will take us to another star. — *Vincent van Gogh*"_
+_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
 
 ---
