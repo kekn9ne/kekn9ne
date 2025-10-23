@@ -7,6 +7,6 @@
 
 ---
 
-_"In any moment of decision, the best thing you can do is the right thing. The worst thing you can do is nothing. — *Theodore Roosevelt*"_
+_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
 
 ---
