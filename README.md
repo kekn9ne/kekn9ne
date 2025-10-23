@@ -7,6 +7,6 @@
 
 ---
 
-_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
+_"At every moment where language can't go, that's your mind. — *Bodhidharma*"_
 
 ---
