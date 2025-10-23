@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
+_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
 
 ---
