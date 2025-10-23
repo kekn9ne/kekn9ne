@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
+_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
 
 ---
