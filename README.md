@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Benim Aklımdan Zorum Var** by *Şanışer* 🎶
+🎧 Currently Listening: **Tekel Mavisi** by *No.1* 🎶
 
 ---
 
-_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
+_"When you are able to employ your will always for constructive purposes, you become the controller of your destiny. — *Paramahansa Yogananda*"_
 
 ---
