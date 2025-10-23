@@ -7,6 +7,6 @@
 
 ---
 
-_"No one can confidently say that he will still be living tomorrow. — *Euripides*"_
+_"Far and away the best prize that life has to offer is the chance to work hard at work worth doing. — *Theodore Roosevelt*"_
 
 ---
