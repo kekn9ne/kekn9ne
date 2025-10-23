@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"No one can confidently say that he will still be living tomorrow. — *Euripides*"_
 
 ---
