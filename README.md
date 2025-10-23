@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 23 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"People think you're crazy if you talk about things they don't understand. — *Elvis Presley*"_
 
 ---
