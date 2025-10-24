@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 24 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PAHALI ve KALİTELİ** by *Organize* 🎶
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
+_"When things go wrong, don't go with them. — *Elvis Presley*"_
 
 ---
