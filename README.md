@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
+_"Don't set your own goals by what other people make important. — *Lolly Daskal*"_
 
 ---
