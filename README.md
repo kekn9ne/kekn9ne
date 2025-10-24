@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 24 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +20°C**  
+🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"What is planted in each person's soul will sprout.   — *Rumi*"_
+_"The wisest men follow their own direction. — *Euripides*"_
 
 ---
