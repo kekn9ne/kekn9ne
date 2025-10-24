@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
 
 ---
