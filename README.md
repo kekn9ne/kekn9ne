@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no value in anything until it is finished.  — *Genghis Khan*"_
+_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
 
 ---
