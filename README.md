@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
+_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
 
 ---
