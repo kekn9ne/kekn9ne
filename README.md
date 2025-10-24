@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 24 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +21°C**  
+🌤️ Weather in Istanbul: **🌦   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
+_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
 
 ---
