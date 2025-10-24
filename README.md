@@ -7,6 +7,6 @@
 
 ---
 
-_"You know the more one does the more one can do. — *Amelia Earhart*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
