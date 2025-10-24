@@ -7,6 +7,6 @@
 
 ---
 
-_"He who violates another's honor loses his own. — *Publilius Syrus*"_
+_"Those who realize their folly are not true fools. — *Zhuangzi*"_
 
 ---
