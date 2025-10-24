@@ -7,6 +7,6 @@
 
 ---
 
-_"If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin. — *Charles Darwin*"_
+_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
 
 ---
