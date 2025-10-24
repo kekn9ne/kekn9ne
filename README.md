@@ -7,6 +7,6 @@
 
 ---
 
-_"Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff. — *Kamal Ravikant*"_
+_"Watch what you say, and whatever you say, practice it. — *Soyen Shaku*"_
 
 ---
