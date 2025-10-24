@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
+_"Begin now to be what you will be hereafter. — *St. Jerome*"_
 
 ---
