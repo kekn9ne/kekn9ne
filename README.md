@@ -7,6 +7,6 @@
 
 ---
 
-_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
+_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
 
 ---
