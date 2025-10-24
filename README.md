@@ -7,6 +7,6 @@
 
 ---
 
-_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
+_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
 
 ---
