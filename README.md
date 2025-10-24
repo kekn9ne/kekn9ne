@@ -7,6 +7,6 @@
 
 ---
 
-_"The most effective way to do it, is to do it. — *Amelia Earhart*"_
+_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
 
 ---
