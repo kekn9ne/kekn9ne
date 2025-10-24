@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are is the entry point. — *Kabir*"_
+_"If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. — *Simon Sinek*"_
 
 ---
