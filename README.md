@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
 
 ---
