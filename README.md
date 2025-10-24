@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop comparing yourself to others and focus on your own improvement. — *Lolly Daskal*"_
+_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
 
 ---
