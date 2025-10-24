@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"Success is not how high you have climbed, but how you make a positive difference to the world. — *Roy T. Bennett*"_
 
 ---
