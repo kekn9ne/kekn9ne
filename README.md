@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
+_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
 
 ---
