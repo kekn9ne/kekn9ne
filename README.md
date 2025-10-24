@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who realize their folly are not true fools. — *Zhuangzi*"_
+_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
 
 ---
