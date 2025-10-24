@@ -7,6 +7,6 @@
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine. — *Brian Tracy*"_
 
 ---
