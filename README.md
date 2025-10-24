@@ -7,6 +7,6 @@
 
 ---
 
-_"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine. — *Brian Tracy*"_
+_"Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff. — *Kamal Ravikant*"_
 
 ---
