@@ -7,6 +7,6 @@
 
 ---
 
-_"What's the point in being smart enough to read, if everything you read makes you dumb? — *C. Sean McGee*"_
+_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
 
 ---
