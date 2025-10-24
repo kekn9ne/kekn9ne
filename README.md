@@ -7,6 +7,6 @@
 
 ---
 
-_"The educated differ from the uneducated as much as the living differ from the dead. — *Aristotle*"_
+_"Fallacies do not cease to be fallacies because they become fashions. — *Gilbert Chesterton*"_
 
 ---
