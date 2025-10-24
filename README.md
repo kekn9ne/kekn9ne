@@ -7,6 +7,6 @@
 
 ---
 
-_"A Penny Saved is a Penny Earned — *Benjamin Franklin*"_
+_"What is planted in each person's soul will sprout.   — *Rumi*"_
 
 ---
