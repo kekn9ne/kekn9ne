@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 24 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +23°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"Don't set your own goals by what other people make important. — *Lolly Daskal*"_
+_"If the misery of the poor be caused not by the laws of nature, but by our institutions, great is our sin. — *Charles Darwin*"_
 
 ---
