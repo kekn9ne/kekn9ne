@@ -7,6 +7,6 @@
 
 ---
 
-_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
