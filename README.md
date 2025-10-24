@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"Take responsibility of your own happiness, never put it in other people's hands. — *Roy T. Bennett*"_
 
 ---
