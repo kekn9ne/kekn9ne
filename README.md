@@ -7,6 +7,6 @@
 
 ---
 
-_"Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it. — *Robert Frost*"_
+_"Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day! — *Og Mandino*"_
 
 ---
