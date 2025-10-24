@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is pretty simple: someone to love, something to do, something to look forward to. — *Rita Mae Brown*"_
+_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
 
 ---
