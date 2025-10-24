@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
+_"There is no value in anything until it is finished.  — *Genghis Khan*"_
 
 ---
