@@ -7,6 +7,6 @@
 
 ---
 
-_"Motivation is what gets you started. Habit is what keeps you going. — *Jim Rohn*"_
+_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
 
 ---
