@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
+_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
 
 ---
