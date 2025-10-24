@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. — *Simon Sinek*"_
+_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
 
 ---
