@@ -7,6 +7,6 @@
 
 ---
 
-_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
+_"Motivation is what gets you started. Habit is what keeps you going. — *Jim Rohn*"_
 
 ---
