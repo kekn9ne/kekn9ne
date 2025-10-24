@@ -7,6 +7,6 @@
 
 ---
 
-_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
+_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
 
 ---
