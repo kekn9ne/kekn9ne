@@ -7,6 +7,6 @@
 
 ---
 
-_"The universe doesn't give you what you ask for with your thoughts - it gives you what you demand with your actions. — *Steve Maraboli*"_
+_"Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy. — *Roy T. Bennett*"_
 
 ---
