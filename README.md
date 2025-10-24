@@ -7,6 +7,6 @@
 
 ---
 
-_"Show me a hero, and I'll write you a tragedy. — *F. Scott Fitzgerald*"_
+_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
 
 ---
