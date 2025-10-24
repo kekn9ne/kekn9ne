@@ -7,6 +7,6 @@
 
 ---
 
-_"Begin now to be what you will be hereafter. — *St. Jerome*"_
+_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
 
 ---
