@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
+_"A Penny Saved is a Penny Earned — *Benjamin Franklin*"_
 
 ---
