@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
+_"Happiness is pretty simple: someone to love, something to do, something to look forward to. — *Rita Mae Brown*"_
 
 ---
