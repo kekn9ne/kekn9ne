@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy unless he believes he is. — *Publilius Syrus*"_
+_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
 
 ---
