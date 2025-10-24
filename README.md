@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
+_"Wisdom is doing now what you are going to be happy with later on. — *Joyce Meyer*"_
 
 ---
