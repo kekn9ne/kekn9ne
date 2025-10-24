@@ -7,6 +7,6 @@
 
 ---
 
-_"When you say yes to change, you are choosing to navigate that path peacefully and happily and see where it takes you. — *Sonia Ricotti*"_
+_"What's the point in being smart enough to read, if everything you read makes you dumb? — *C. Sean McGee*"_
 
 ---
