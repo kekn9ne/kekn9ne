@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
+_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
 
 ---
