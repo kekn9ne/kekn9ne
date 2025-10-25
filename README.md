@@ -7,6 +7,6 @@
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
 
 ---
