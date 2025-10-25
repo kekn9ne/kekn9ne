@@ -7,6 +7,6 @@
 
 ---
 
-_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
+_"Every strike brings me closer to the next home run.  — *Babe Ruth*"_
 
 ---
