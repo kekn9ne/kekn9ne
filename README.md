@@ -7,6 +7,6 @@
 
 ---
 
-_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
+_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
 
 ---
