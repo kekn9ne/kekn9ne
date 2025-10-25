@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything eaten is killed. Every meal is a sacrifice. — *Adi Da Samraj*"_
+_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
 
 ---
