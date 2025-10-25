@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who does not value himself, cannot value anything or anyone. — *Ayn Rand*"_
+_"Walk slowly but never walk backward. — *Unknown*"_
 
 ---
