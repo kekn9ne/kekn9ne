@@ -7,6 +7,6 @@
 
 ---
 
-_"The foolish reject what they see, not what they think; the wise reject what they think, not what they see. — *Huang Po*"_
+_"To lead the people, walk behind them. — *Lao Tzu*"_
 
 ---
