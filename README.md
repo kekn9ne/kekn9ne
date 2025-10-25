@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the oldest human needs is having someone to wonder where you are when you don't come home at night.  — *Margaret Mead*"_
+_"It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — *Steve Maraboli*"_
 
 ---
