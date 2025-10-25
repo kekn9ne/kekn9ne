@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom. — *Sonia Ricotti*"_
+_"An intelligence test sometimes shows a man how smart he would have been not to have taken it. — *Laurence J. Peter*"_
 
 ---
