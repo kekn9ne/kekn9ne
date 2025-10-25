@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
+_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
 
 ---
