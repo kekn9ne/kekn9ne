@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing worse than being blind is having sight but no vision. — *Helen Keller*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
