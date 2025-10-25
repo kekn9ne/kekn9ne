@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 25 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Favela** by *UZI* 🎶
 
 ---
 
-_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
+_"If you're not failing every now and again, it's a sign you're not doing anything very innovative. — *Woody Allen*"_
 
 ---
