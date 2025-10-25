@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead the people, walk behind them. — *Lao Tzu*"_
+_"No valid plans for the future can be made by those who have no capacity for living now. — *Alan Watts*"_
 
 ---
