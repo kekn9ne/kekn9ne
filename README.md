@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
