@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
+_"Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with. — *Woody Allen*"_
 
 ---
