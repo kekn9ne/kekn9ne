@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more real than nothing. — *Samuel Beckett*"_
+_"It is what we make out of what we have, not what we are given, that separates one person from another. — *Nelson Mandela*"_
 
 ---
