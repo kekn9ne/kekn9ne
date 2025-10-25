@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
+_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
 
 ---
