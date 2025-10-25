@@ -7,6 +7,6 @@
 
 ---
 
-_"It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — *Steve Maraboli*"_
+_"You cannot change your destination overnight but you can change your direction overnight. — *Jim Rohn*"_
 
 ---
