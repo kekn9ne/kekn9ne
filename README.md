@@ -7,6 +7,6 @@
 
 ---
 
-_"Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — *Norman Vincent Peale*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
