@@ -7,6 +7,6 @@
 
 ---
 
-_"He who violates another's honor loses his own. — *Publilius Syrus*"_
+_"The man who does not value himself, cannot value anything or anyone. — *Ayn Rand*"_
 
 ---
