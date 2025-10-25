@@ -7,6 +7,6 @@
 
 ---
 
-_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
+_"If the grass is greener on the other side, maybe that's because you're not taking good care of your grass. — *Unknown*"_
 
 ---
