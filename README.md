@@ -7,6 +7,6 @@
 
 ---
 
-_"Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new. — *Brian Tracy*"_
+_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
 
 ---
