@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people appreciate where they have come from, but they don't let their past set the tone for their future. — *Steve Harvey*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
