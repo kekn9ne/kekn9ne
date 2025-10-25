@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen King*"_
+_"Begin now to be what you will be hereafter. — *St. Jerome*"_
 
 ---
