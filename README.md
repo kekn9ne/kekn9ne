@@ -7,6 +7,6 @@
 
 ---
 
-_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
+_"Quiet people have the loudest minds. — *Stephen King*"_
 
 ---
