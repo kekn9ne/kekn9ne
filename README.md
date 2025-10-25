@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"Never do to others what you would not like them to do to you.  — *Confucius*"_
 
 ---
