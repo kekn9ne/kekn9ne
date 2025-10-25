@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 25 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +18°C**  
+🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Favela** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you're not failing every now and again, it's a sign you're not doing anything very innovative. — *Woody Allen*"_
+_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
 
 ---
