@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
+_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
 
 ---
