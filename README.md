@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to light a candle than to curse the darkness.  — *Chinese Proverb*"_
+_"The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence. — *Josh Waitzkin*"_
 
 ---
