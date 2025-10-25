@@ -7,6 +7,6 @@
 
 ---
 
-_"If the grass is greener on the other side, maybe that's because you're not taking good care of your grass. — *Unknown*"_
+_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
 
 ---
