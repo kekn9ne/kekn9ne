@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
+_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
 
 ---
