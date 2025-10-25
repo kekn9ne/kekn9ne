@@ -7,6 +7,6 @@
 
 ---
 
-_"The health of nations is more important than the wealth of nations. — *Will Rogers*"_
+_"Everything eaten is killed. Every meal is a sacrifice. — *Adi Da Samraj*"_
 
 ---
