@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 25 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +15°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Men learn to love the woman they are attracted to. Women learn to become attracted to the man they fall in love with. — *Woody Allen*"_
+_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
 
 ---
