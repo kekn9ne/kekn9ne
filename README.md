@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
+_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
 
 ---
