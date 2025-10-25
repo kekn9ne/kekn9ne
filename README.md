@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
+_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
 
 ---
