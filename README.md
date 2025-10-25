@@ -7,6 +7,6 @@
 
 ---
 
-_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
+_"Darkness is the absence of light. — *Kamal Ravikant*"_
 
 ---
