@@ -7,6 +7,6 @@
 
 ---
 
-_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
+_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
 
 ---
