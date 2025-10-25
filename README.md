@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds are always feared by lesser minds. — *Dan Brown*"_
+_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
 
 ---
