@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
+_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
 
 ---
