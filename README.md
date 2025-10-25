@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 25 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **LOLO** by *Ezhel* 🎶
 
 ---
 
-_"The real art in learning takes place as we move beyond proficiency, when our work becomes an expression of our essence. — *Josh Waitzkin*"_
+_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
 
 ---
