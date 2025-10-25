@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 25 October 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🗓️ Today is: **Sunday, 26 October 2025**  
+🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
+_"It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated. — *Albus Dumbledore*"_
 
 ---
