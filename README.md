@@ -7,6 +7,6 @@
 
 ---
 
-_"It is what we make out of what we have, not what we are given, that separates one person from another. — *Nelson Mandela*"_
+_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
 
 ---
