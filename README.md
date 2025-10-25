@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
+_"There will always be suffering. But we must not suffer over the suffering. — *Alan Watts*"_
 
 ---
