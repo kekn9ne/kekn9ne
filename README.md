@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 25 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
+_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
 
 ---
