@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
 
 ---
