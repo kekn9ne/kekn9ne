@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
+_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
 
 ---
