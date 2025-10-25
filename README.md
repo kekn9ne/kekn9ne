@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are talented you do it whatever it is until your fingers bleed or your eyes are ready to fall out of your head. — *Stephen King*"_
+_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
 
 ---
