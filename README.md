@@ -7,6 +7,6 @@
 
 ---
 
-_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
+_"People become attached to their burdens sometimes more than the burdens are attached to them. — *George Bernard Shaw*"_
 
 ---
