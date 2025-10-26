@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
+_"Leadership starts at the top. — *Morgan Wootten*"_
 
 ---
