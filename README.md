@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of your greatest lessons come from your darkest moments. — *Roger Lee*"_
+_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
 
 ---
