@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
+_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
 
 ---
