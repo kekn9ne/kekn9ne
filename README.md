@@ -7,6 +7,6 @@
 
 ---
 
-_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
+_"When you have to make a choice and don't make it, that is in itself a choice. — *William James*"_
 
 ---
