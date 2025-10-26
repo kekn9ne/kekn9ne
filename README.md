@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — *Henry Ward Beecher*"_
+_"Stop acting so small. You are the universe in ecstatic motion. — *Rumi*"_
 
 ---
