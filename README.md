@@ -7,6 +7,6 @@
 
 ---
 
-_"Deeds will not be less valiant because they are upraised. — *J.R.R. Tolkien*"_
+_"The only place where success comes before work is in the dictionary. — *Vidal Sassoon*"_
 
 ---
