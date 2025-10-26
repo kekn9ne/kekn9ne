@@ -7,6 +7,6 @@
 
 ---
 
-_"If you truly love Nature, you will find beauty everywhere.  — *Vincent van Gogh*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
