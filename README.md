@@ -7,6 +7,6 @@
 
 ---
 
-_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
+_"Nothing is more real than nothing. — *Samuel Beckett*"_
 
 ---
