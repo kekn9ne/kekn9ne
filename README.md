@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form. — *Paramahansa Yogananda*"_
+_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
 
 ---
