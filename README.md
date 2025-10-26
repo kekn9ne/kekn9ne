@@ -7,6 +7,6 @@
 
 ---
 
-_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
+_"Be curious, not judgmental. — *Walt Whitman*"_
 
 ---
