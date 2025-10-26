@@ -7,6 +7,6 @@
 
 ---
 
-_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
+_"Never give way to laziness. — *Bhagavad Gita*"_
 
 ---
