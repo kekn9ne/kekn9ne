@@ -7,6 +7,6 @@
 
 ---
 
-_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
+_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
 
 ---
