@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
+_"Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know. — *Colin Powell*"_
 
 ---
