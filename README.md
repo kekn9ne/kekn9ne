@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to give up the good to go for the great. — *John D. Rockefeller*"_
+_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
 
 ---
