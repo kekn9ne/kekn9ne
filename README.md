@@ -7,6 +7,6 @@
 
 ---
 
-_"Even when a friend does something you do not like, he continues to be your friend.  — *Genghis Khan*"_
+_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
 
 ---
