@@ -7,6 +7,6 @@
 
 ---
 
-_"I alone cannot change the world, but I can cast a stone across the waters to create many ripples. — *Mother Teresa*"_
+_"Happiness is pretty simple: someone to love, something to do, something to look forward to. — *Rita Mae Brown*"_
 
 ---
