@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles begins with a single step. — *Lao Tzu*"_
+_"There is no way to happiness - happiness is the way. — *Thich Nhat Hanh*"_
 
 ---
