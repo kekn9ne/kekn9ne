@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 27 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **aklına ben gelicem** by *BLOK3* 🎶
 
 ---
 
-_"All that we see or seem is but a dream within a dream. — *Edgar Allan Poe*"_
+_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
 
 ---
