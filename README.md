@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop acting so small. You are the universe in ecstatic motion. — *Rumi*"_
+_"Better late than never. — *Spencer Johnson*"_
 
 ---
