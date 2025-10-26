@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
+_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
 
 ---
