@@ -7,6 +7,6 @@
 
 ---
 
-_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
+_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
 
 ---
