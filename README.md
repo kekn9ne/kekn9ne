@@ -7,6 +7,6 @@
 
 ---
 
-_"Better late than never. — *Spencer Johnson*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
