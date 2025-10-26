@@ -7,6 +7,6 @@
 
 ---
 
-_"He suffers more than necessary, who suffers before it is necessary.   — *Seneca*"_
+_"The final mystery is oneself. — *Oscar Wilde*"_
 
 ---
