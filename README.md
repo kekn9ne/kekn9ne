@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more real than nothing. — *Samuel Beckett*"_
+_"Don't be afraid to give up the good to go for the great. — *John D. Rockefeller*"_
 
 ---
