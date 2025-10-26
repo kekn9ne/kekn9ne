@@ -7,6 +7,6 @@
 
 ---
 
-_"Be curious, not judgmental. — *Walt Whitman*"_
+_"If you truly love Nature, you will find beauty everywhere.  — *Vincent van Gogh*"_
 
 ---
