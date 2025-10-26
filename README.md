@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
+_"All that we see or seem is but a dream within a dream. — *Edgar Allan Poe*"_
 
 ---
