@@ -7,6 +7,6 @@
 
 ---
 
-_"The score never interested me, only the game. — *Mae West*"_
+_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
 
 ---
