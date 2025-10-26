@@ -7,6 +7,6 @@
 
 ---
 
-_"Before you embark on a journey of revenge, dig two graves.  — *Confucius*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
