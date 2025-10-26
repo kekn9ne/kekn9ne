@@ -7,6 +7,6 @@
 
 ---
 
-_"I will love the light for it shows me the way, yet I will endure the darkness because it shows me the stars. — *Og Mandino*"_
+_"Some changes look negative on the surface but you will soon realize that space is being created in your life for something new to emerge. — *Eckhart Tolle*"_
 
 ---
