@@ -7,6 +7,6 @@
 
 ---
 
-_"The foolish reject what they see, not what they think; the wise reject what they think, not what they see. — *Huang Po*"_
+_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
 
 ---
