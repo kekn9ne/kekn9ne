@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
+_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
 
 ---
