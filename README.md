@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
+_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
 
 ---
