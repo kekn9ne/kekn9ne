@@ -7,6 +7,6 @@
 
 ---
 
-_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
+_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
 
 ---
