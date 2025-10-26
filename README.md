@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is letting it be. Letting life flow, letting emotions flow through you. — *Kamal Ravikant*"_
+_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
 
 ---
