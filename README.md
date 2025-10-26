@@ -7,6 +7,6 @@
 
 ---
 
-_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
