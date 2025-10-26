@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 26 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +21°C**  
+🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zaman Yok** by *Son Feci Bisiklet* 🎶
 
 ---
 
-_"The final mystery is oneself. — *Oscar Wilde*"_
+_"To know even one life has breathed easier because you have lived. This is to have succeeded. — *Ralph Waldo Emerson*"_
 
 ---
