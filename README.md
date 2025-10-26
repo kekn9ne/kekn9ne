@@ -7,6 +7,6 @@
 
 ---
 
-_"Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know. — *Colin Powell*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
