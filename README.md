@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress comes to those who train and train; reliance on secret techniques will get you nowhere. — *Morihei Ueshiba*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
