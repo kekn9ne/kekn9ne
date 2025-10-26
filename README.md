@@ -7,6 +7,6 @@
 
 ---
 
-_"All animals except man know that the principal business of life is to enjoy it. — *Samuel Butler*"_
+_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
 
 ---
