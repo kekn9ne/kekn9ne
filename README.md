@@ -7,6 +7,6 @@
 
 ---
 
-_"People become attached to their burdens sometimes more than the burdens are attached to them. — *George Bernard Shaw*"_
+_"Some of your greatest lessons come from your darkest moments. — *Roger Lee*"_
 
 ---
