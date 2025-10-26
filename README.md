@@ -7,6 +7,6 @@
 
 ---
 
-_"Paths are made by walking. — *Franz Kafka*"_
+_"Peace is letting it be. Letting life flow, letting emotions flow through you. — *Kamal Ravikant*"_
 
 ---
