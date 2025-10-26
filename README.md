@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 26 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sebastian** by *Hande Yener* 🎶
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"Be mindful. Be grateful. Be positive. Be true. Be kind. — *Roy T. Bennett*"_
 
 ---
