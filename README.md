@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place where success comes before work is in the dictionary. — *Vidal Sassoon*"_
+_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
 
 ---
