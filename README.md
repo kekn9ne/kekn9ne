@@ -7,6 +7,6 @@
 
 ---
 
-_"Music is like creating an emotional painting. The sounds are the colors. — *Yanni*"_
+_"We suffer more often in imagination than in reality. — *Seneca*"_
 
 ---
