@@ -7,6 +7,6 @@
 
 ---
 
-_"Seek not the good in external things;seek it in yourselves. — *Epictetus*"_
+_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
 
 ---
