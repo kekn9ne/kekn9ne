@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
+_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
 
 ---
