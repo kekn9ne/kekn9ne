@@ -7,6 +7,6 @@
 
 ---
 
-_"The great use of life is to spend it for something that will outlast it. — *William James*"_
+_"As you think, you travel, and as you love, you attract. — *James Allen*"_
 
 ---
