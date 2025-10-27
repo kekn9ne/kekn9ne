@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot find peace by avoiding life. — *Virginia Woolf*"_
+_"Conscience is a man's compass.  — *Vincent van Gogh*"_
 
 ---
