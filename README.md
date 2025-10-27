@@ -7,6 +7,6 @@
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
 
 ---
