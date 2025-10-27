@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
+_"Wishing to be friends is quick work, but friendship is a slow ripening fruit. — *Aristotle*"_
 
 ---
