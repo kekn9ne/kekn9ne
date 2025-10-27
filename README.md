@@ -7,6 +7,6 @@
 
 ---
 
-_"Every drop in the ocean counts.  — *Yoko Ono*"_
+_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
 
 ---
