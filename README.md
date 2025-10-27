@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
+_"The great use of life is to spend it for something that will outlast it. — *William James*"_
 
 ---
