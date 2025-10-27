@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you give, the more comes back to you. — *Napoleon Hill*"_
+_"Action may not always bring happiness, but there is no happiness without action. — *William James*"_
 
 ---
