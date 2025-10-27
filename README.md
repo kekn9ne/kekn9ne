@@ -7,6 +7,6 @@
 
 ---
 
-_"It is well known that those who do not trust themselves never trust others. — *Alfred Adler*"_
+_"If you can't, you must. If you must, you can. — *Tony Robbins*"_
 
 ---
