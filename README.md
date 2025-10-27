@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
+_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
 
 ---
