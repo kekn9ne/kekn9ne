@@ -7,6 +7,6 @@
 
 ---
 
-_"When you judge another, you do not define them, you define yourself — *Wayne Dyer*"_
+_"Learn from the mistakes of others. You can't live long enough to make them all yourself. — *Eleanor Roosevelt*"_
 
 ---
