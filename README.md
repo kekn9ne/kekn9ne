@@ -7,6 +7,6 @@
 
 ---
 
-_"Someday death will take us to another star. — *Vincent van Gogh*"_
+_"We can either add to our character each day, or we can fritter away our energies in distractions. — *Ming-Dao Deng*"_
 
 ---
