@@ -7,6 +7,6 @@
 
 ---
 
-_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
+_"The outer conditions of a person's life will always be found to reflect their inner beliefs. — *James Allen*"_
 
 ---
