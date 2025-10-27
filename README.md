@@ -7,6 +7,6 @@
 
 ---
 
-_"Start each day with a positive thought and a grateful heart. — *Roy T. Bennett*"_
+_"Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.  — *Oprah Winfrey*"_
 
 ---
