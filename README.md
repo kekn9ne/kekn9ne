@@ -7,6 +7,6 @@
 
 ---
 
-_"A golden cage is still just a cage. — *Anita Krizzan*"_
+_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
 
 ---
