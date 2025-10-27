@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
+_"The more you give, the more comes back to you. — *Napoleon Hill*"_
 
 ---
