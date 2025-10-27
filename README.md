@@ -7,6 +7,6 @@
 
 ---
 
-_"The great use of life is to spend it for something that will outlast it. — *William James*"_
+_"Persistence is very important. You should not give up unless you are forced to give up. — *Elon Musk*"_
 
 ---
