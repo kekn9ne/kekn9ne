@@ -7,6 +7,6 @@
 
 ---
 
-_"We can either add to our character each day, or we can fritter away our energies in distractions. — *Ming-Dao Deng*"_
+_"When you change what you believe, you change what you do. — *Spencer Johnson*"_
 
 ---
