@@ -7,6 +7,6 @@
 
 ---
 
-_"People who say it cannot be done should not interrupt those who are doing it. — *George Bernard Shaw*"_
+_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
 
 ---
