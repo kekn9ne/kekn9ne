@@ -7,6 +7,6 @@
 
 ---
 
-_"Conscience is a man's compass.  — *Vincent van Gogh*"_
+_"People who say it cannot be done should not interrupt those who are doing it. — *George Bernard Shaw*"_
 
 ---
