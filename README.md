@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, you travel, and as you love, you attract. — *James Allen*"_
+_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
 
 ---
