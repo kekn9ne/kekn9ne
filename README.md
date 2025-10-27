@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
+_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
 
 ---
