@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
+_"The more you are grateful for what you have the more you will have to be grateful for.   — *Zig Ziglar*"_
 
 ---
