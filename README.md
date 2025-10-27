@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 28 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Thrift Shop (feat. Wanz)** by *Macklemore & Ryan Lewis* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
+_"Time and health are two precious assets that we don't recognize and appreciate until they have been depleted.  — *Denis Waitley*"_
 
 ---
