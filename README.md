@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 27 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **OHA** by *ASLAR* 🎶
 
 ---
 
-_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
+_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
 
 ---
