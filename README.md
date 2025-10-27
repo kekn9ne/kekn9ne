@@ -7,6 +7,6 @@
 
 ---
 
-_"Every great change is preceded by chaos. — *Deepak Chopra*"_
+_"There are no mistakes in life, only lessons. — *Robin Sharma*"_
 
 ---
