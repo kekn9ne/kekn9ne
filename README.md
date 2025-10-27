@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn from the mistakes of others. You can't live long enough to make them all yourself. — *Eleanor Roosevelt*"_
+_"People are weird. When we find someone with weirdness that is compatible with ours, we team up and call it love. — *Dr. Seuss*"_
 
 ---
