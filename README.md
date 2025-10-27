@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want work well done, select a busy man; the other kind has no time. — *Elbert Hubbard*"_
+_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
 
 ---
