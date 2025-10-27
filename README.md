@@ -7,6 +7,6 @@
 
 ---
 
-_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
+_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
 
 ---
