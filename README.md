@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is simple. If it was complicated, everyone would understand it. — *Walt Whitman*"_
+_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
 
 ---
