@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 27 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +20°C**  
+🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
+_"Start each day with a positive thought and a grateful heart. — *Roy T. Bennett*"_
 
 ---
