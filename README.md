@@ -7,6 +7,6 @@
 
 ---
 
-_"If you chase two rabbits, you catch none. — *Confucius*"_
+_"it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds. — *Barack Obama*"_
 
 ---
