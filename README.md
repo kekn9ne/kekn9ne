@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence is very important. You should not give up unless you are forced to give up. — *Elon Musk*"_
+_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
 
 ---
