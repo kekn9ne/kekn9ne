@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
 
 ---
