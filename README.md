@@ -7,6 +7,6 @@
 
 ---
 
-_"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.   — *Ray Bradbury*"_
+_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
 
 ---
