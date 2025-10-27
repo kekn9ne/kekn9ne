@@ -7,6 +7,6 @@
 
 ---
 
-_"You become stronger with every problem you face and every obstacle you overcome. — *Celestine Chua*"_
+_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
 
 ---
