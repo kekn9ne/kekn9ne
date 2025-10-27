@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 28 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Thrift Shop (feat. Wanz)** by *Macklemore & Ryan Lewis* 🎶
 
 ---
 
-_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
+_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
 
 ---
