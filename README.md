@@ -7,6 +7,6 @@
 
 ---
 
-_"Be not glad at the misfortune of another, though he may be your enemy.  — *George Washington*"_
+_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
 
 ---
