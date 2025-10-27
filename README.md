@@ -7,6 +7,6 @@
 
 ---
 
-_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
+_"Whatever you decide to do, make sure it makes you happy. — *Paulo Coelho*"_
 
 ---
