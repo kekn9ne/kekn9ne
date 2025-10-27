@@ -7,6 +7,6 @@
 
 ---
 
-_"Because of your smile, you make life more beautiful. — *Thich Nhat Hanh*"_
+_"Do not take life too seriously. You will never get out of it alive. — *Elbert Hubbard*"_
 
 ---
