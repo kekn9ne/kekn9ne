@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 27 October 2025**  
-🌤️ Weather in Istanbul: **⛅️  +21°C**  
+🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"There is no excuse for not trying. — *Barack Obama*"_
+_"Rivers know this: there is no hurry. We shall get there some day. — *A.A. Milne*"_
 
 ---
