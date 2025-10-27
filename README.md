@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 27 October 2025**  
 🌤️ Weather in Istanbul: **🌦   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
