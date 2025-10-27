@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 27 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +22°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Rivers know this: there is no hurry. We shall get there some day. — *A.A. Milne*"_
+_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
 
 ---
