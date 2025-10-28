@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter how slow you go, as long as you don't stop. — *Confucius*"_
+_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
 
 ---
