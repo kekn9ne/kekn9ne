@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom lies in being bold. — *Robert Frost*"_
+_"It is not enough to win a war; it is more important to organize the peace. — *Aristotle*"_
 
 ---
