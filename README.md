@@ -7,6 +7,6 @@
 
 ---
 
-_"If we are honest with ourselves, most of us will have to admit that we live out our lives in an ocean of fear. — *Jon Kabat-Zinn*"_
+_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
 
 ---
