@@ -7,6 +7,6 @@
 
 ---
 
-_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
+_"In matters of style, swim with the current; in matters of principle, stand like a rock. — *Thomas Jefferson*"_
 
 ---
