@@ -7,6 +7,6 @@
 
 ---
 
-_"The real measure of your wealth is how much you'd be worth if you lost all your money. — *Unknown*"_
+_"No man will make a great leader who wants to do it all himself or to get all the credit for doing it. — *Andrew Carnegie*"_
 
 ---
