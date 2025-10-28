@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 28 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **777** by *Güneş* 🎶
+🎧 Currently Listening: **Bana Birseyler Soyle** by *Kartax* 🎶
 
 ---
 
-_"FOCUS - Follow One Course Until Successful — *Robert Kiyosaki*"_
+_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
 
 ---
