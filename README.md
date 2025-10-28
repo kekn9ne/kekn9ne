@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
