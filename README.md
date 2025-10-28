@@ -7,6 +7,6 @@
 
 ---
 
-_"The weak can never forgive. Forgiveness is the attribute of the strong. — *Mahatma Gandhi*"_
+_"Shoot for the moon, because even if you miss, you'll land among the stars. — *Les Brown*"_
 
 ---
