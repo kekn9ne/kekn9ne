@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
+_"Life is one long process of getting tired. — *Samuel Butler*"_
 
 ---
