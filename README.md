@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 28 October 2025**  
-🌤️ Weather in Istanbul: **🌦   +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
+_"It is in changing that we find purpose. — *Heraclitus*"_
 
 ---
