@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 28 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
+_"We become brave by doing brave acts. — *Aristotle*"_
 
 ---
