@@ -7,6 +7,6 @@
 
 ---
 
-_"Shoot for the moon, because even if you miss, you'll land among the stars. — *Les Brown*"_
+_"You will succeed because most people are lazy. — *Shahir Zag*"_
 
 ---
