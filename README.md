@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all. — *Miguel de Cervantes*"_
 
 ---
