@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
 
 ---
