@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not people who never fail, but people who never quit. — *Arnold Schwarzenegger*"_
+_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
 
 ---
