@@ -7,6 +7,6 @@
 
 ---
 
-_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
+_"Change yourself and you have done your part in changing the world. — *Paramahansa Yogananda*"_
 
 ---
