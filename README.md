@@ -7,6 +7,6 @@
 
 ---
 
-_"A minute's success pays the failure of years. — *Robert Browning*"_
+_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
 
 ---
