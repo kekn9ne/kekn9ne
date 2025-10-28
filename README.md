@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 28 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yokluğuna Dair** by *Sokrat St* 🎶
 
 ---
 
-_"You will succeed because most people are lazy. — *Shahir Zag*"_
+_"Be fascinated instead of frustrated. — *Jim Rohn*"_
 
 ---
