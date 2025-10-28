@@ -7,6 +7,6 @@
 
 ---
 
-_"No man will make a great leader who wants to do it all himself or to get all the credit for doing it. — *Andrew Carnegie*"_
+_"Show up even when you don't want to show up. — *Steve Harvey*"_
 
 ---
