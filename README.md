@@ -7,6 +7,6 @@
 
 ---
 
-_"Change yourself and you have done your part in changing the world. — *Paramahansa Yogananda*"_
+_"Victims recite problems, leaders provide solutions. — *Robin Sharma*"_
 
 ---
