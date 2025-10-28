@@ -7,6 +7,6 @@
 
 ---
 
-_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
+_"Mastering others is strength, mastering yourself is true power. — *Lao Tzu*"_
 
 ---
