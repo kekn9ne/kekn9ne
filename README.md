@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
+_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
 
 ---
