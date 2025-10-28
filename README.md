@@ -7,6 +7,6 @@
 
 ---
 
-_"In matters of style, swim with the current; in matters of principle, stand like a rock. — *Thomas Jefferson*"_
+_"The harder the conflict, the greater the triumph.  — *George Washington*"_
 
 ---
