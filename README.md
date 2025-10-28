@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
+_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
 
 ---
