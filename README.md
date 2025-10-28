@@ -7,6 +7,6 @@
 
 ---
 
-_"We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities. — *Josh Waitzkin*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
