@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your life a mission - not an intermission. — *Unknown*"_
+_"Fools resist. The wise embrace. — *Maxime Lagace*"_
 
 ---
