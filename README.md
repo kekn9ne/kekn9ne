@@ -7,6 +7,6 @@
 
 ---
 
-_"Mastering others is strength, mastering yourself is true power. — *Lao Tzu*"_
+_"Learn from the rejection and turn it into an opportunity! — *Mary Engelbreit*"_
 
 ---
