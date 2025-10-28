@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 28 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We become brave by doing brave acts. — *Aristotle*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
