@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
