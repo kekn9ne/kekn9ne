@@ -7,6 +7,6 @@
 
 ---
 
-_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
+_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
 
 ---
