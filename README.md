@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people dream of success, while others wake up and work hard at it. — *Napoleon Hill*"_
+_"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting. — *Zig Ziglar*"_
 
 ---
