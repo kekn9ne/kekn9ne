@@ -7,6 +7,6 @@
 
 ---
 
-_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
+_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
 
 ---
