@@ -7,6 +7,6 @@
 
 ---
 
-_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
+_"It doesn't matter how slow you go, as long as you don't stop. — *Confucius*"_
 
 ---
