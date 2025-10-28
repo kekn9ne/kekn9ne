@@ -7,6 +7,6 @@
 
 ---
 
-_"He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all. — *Miguel de Cervantes*"_
+_"We learn by pushing ourselves and finding what really lies at the outer reaches of our abilities. — *Josh Waitzkin*"_
 
 ---
