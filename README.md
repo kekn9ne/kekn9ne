@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not enough to win a war; it is more important to organize the peace. — *Aristotle*"_
+_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
 
 ---
