@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot push anyone up a ladder unless he is willing to climb a little himself. — *Andrew Carnegie*"_
+_"Freedom lies in being bold. — *Robert Frost*"_
 
 ---
