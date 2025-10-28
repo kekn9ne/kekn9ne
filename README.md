@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"People inspire you, or they drain you. Pick them wisely. — *Les Brown*"_
 
 ---
