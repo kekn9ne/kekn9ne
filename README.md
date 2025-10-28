@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools resist. The wise embrace. — *Maxime Lagace*"_
+_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
 
 ---
