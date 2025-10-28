@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself. — *Robert Kiyosaki*"_
 
 ---
