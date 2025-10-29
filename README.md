@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 29 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
+_"Life happens in the river, not the shore. — *Maxime Lagace*"_
 
 ---
