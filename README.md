@@ -7,6 +7,6 @@
 
 ---
 
-_"Ideas do not reach perfection in a day, no matter how much study is put upon them. — *Alexander Graham Bell*"_
+_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
 
 ---
