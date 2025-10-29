@@ -7,6 +7,6 @@
 
 ---
 
-_"Only the hand that erases can write the true thing. — *Meister Eckhart*"_
+_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
 
 ---
