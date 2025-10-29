@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
+_"We love the things we love for what they are. — *Robert Frost*"_
 
 ---
