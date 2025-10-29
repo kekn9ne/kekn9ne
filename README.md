@@ -7,6 +7,6 @@
 
 ---
 
-_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
+_"Ideas do not reach perfection in a day, no matter how much study is put upon them. — *Alexander Graham Bell*"_
 
 ---
