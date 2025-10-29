@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
+_"For fast-acting relief try slowing down. — *Lily Tomlin*"_
 
 ---
