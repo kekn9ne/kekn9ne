@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
+_"Confidence is not a guarantee of success, but a pattern of thinking that will improve your likelihood of success, a tenacious search for ways to make things work. — *John Eliot*"_
 
 ---
