@@ -7,6 +7,6 @@
 
 ---
 
-_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
+_"Our life is what our thoughts make it. A man will find that as he alters his thoughts toward things and other people, things and other people will alter towards him. — *James Allen*"_
 
 ---
