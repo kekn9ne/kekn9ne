@@ -7,6 +7,6 @@
 
 ---
 
-_"Fishing is much more than fish. — *Herbert Hoover*"_
+_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
 
 ---
