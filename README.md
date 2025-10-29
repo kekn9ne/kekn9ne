@@ -7,6 +7,6 @@
 
 ---
 
-_"Even in the grave, all is not lost. — *Edgar Allan Poe*"_
+_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
 
 ---
