@@ -7,6 +7,6 @@
 
 ---
 
-_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
+_"Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. — *Arnold Schwarzenegger*"_
 
 ---
