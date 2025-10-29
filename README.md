@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
+_"The wisdom of life consists in the elimination of the nonessentials. — *Lin Yutang*"_
 
 ---
