@@ -7,6 +7,6 @@
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"If I can stop one heart from breaking, I shall not live in vain. — *Emily Dickinson*"_
 
 ---
