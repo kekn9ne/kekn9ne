@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.   — *Seneca*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
