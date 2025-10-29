@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.   — *Seneca*"_
 
 ---
