@@ -7,6 +7,6 @@
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"Do every act of your life as if it were your last. — *Marcus Aurelius*"_
 
 ---
