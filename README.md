@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
+_"Fishing is much more than fish. — *Herbert Hoover*"_
 
 ---
