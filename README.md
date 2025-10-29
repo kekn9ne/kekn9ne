@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
+_"The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now! — *Tony Robbins*"_
 
 ---
