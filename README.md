@@ -7,6 +7,6 @@
 
 ---
 
-_"Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.  — *Paramahansa Yogananda*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
