@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
+_"Only the hand that erases can write the true thing. — *Meister Eckhart*"_
 
 ---
