@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
 
 ---
