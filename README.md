@@ -7,6 +7,6 @@
 
 ---
 
-_"Behind every beautiful thing, there's some kind of pain. — *Bob Dylan*"_
+_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
 
 ---
