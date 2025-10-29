@@ -7,6 +7,6 @@
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity. — *Charles Spurgeon*"_
 
 ---
