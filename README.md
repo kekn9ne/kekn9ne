@@ -7,6 +7,6 @@
 
 ---
 
-_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
+_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
 
 ---
