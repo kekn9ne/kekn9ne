@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not regret the past. Look to the future. — *Soyen Shaku*"_
+_"We are all here for some special reason. — *Robin Sharma*"_
 
 ---
