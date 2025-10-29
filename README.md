@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all here for some special reason. — *Robin Sharma*"_
+_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
 
 ---
