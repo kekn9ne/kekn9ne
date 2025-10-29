@@ -7,6 +7,6 @@
 
 ---
 
-_"The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace. — *Ming-Dao Deng*"_
+_"Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.  — *Paramahansa Yogananda*"_
 
 ---
