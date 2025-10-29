@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything will be ok in the end. If it's not ok, it's not the end. — *John Lennon*"_
+_"Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth. — *Henry David Thoreau*"_
 
 ---
