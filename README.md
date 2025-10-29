@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Happiness. Happiness is the path. — *Dan Millman*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
