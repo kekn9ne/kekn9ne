@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 29 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +14°C**  
+🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
+_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
 
 ---
