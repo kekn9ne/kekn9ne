@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
+_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
 
 ---
