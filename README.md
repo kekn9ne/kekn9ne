@@ -7,6 +7,6 @@
 
 ---
 
-_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
+_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
 
 ---
