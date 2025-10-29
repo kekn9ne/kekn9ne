@@ -7,6 +7,6 @@
 
 ---
 
-_"I have no methods; all I do is accept people as they are. — *Joan Rivers*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
