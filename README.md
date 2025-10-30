@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to value yourself, which means: fight for your happiness. — *Ayn Rand*"_
+_"One always begins to forgive a place as soon as it's left behind. — *Charles Dickens*"_
 
 ---
