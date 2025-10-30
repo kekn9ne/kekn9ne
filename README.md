@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
+_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
 
 ---
