@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who do nothing at all make no mistakes. — *Unknown*"_
+_"Enjoy life. There's plenty of time to be dead. — *Hans Christian Andersen*"_
 
 ---
