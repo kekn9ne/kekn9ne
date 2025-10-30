@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is a natural reaction to moving closer to the truth. — *Pema Chodron*"_
+_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
 
 ---
