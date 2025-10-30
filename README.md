@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 30 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Death is not sad; the sad thing is that most people don't really live at all. — *Dan Millman*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
