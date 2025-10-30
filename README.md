@@ -7,6 +7,6 @@
 
 ---
 
-_"Life isn't about finding yourself. Life is about creating yourself. — *George Bernard Shaw*"_
+_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
 
 ---
