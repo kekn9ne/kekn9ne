@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations. — *Wayne Gretzky*"_
+_"it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds. — *Barack Obama*"_
 
 ---
