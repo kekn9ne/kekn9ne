@@ -7,6 +7,6 @@
 
 ---
 
-_"There can be no greater gift than that of giving one's time and energy to help others without expecting anything in return. — *Nelson Mandela*"_
+_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
 
 ---
