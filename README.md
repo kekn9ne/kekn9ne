@@ -7,6 +7,6 @@
 
 ---
 
-_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
+_"You can, you should, and if you're brave enough to start, you will. — *Stephen King*"_
 
 ---
