@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
+_"Seek not the good in external things;seek it in yourselves. — *Epictetus*"_
 
 ---
