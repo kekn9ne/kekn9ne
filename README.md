@@ -7,6 +7,6 @@
 
 ---
 
-_"We tend to live up to our expectations. — *Earl Nightingale*"_
+_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
 
 ---
