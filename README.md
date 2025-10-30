@@ -7,6 +7,6 @@
 
 ---
 
-_"Comedy = tragedy + time. — *Carol Burnett*"_
+_"Difficult and meaningful will always bring more satisfaction than easy and meaningless. — *Maxime Lagace*"_
 
 ---
