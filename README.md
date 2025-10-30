@@ -7,6 +7,6 @@
 
 ---
 
-_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
+_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
 
 ---
