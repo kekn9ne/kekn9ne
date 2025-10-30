@@ -7,6 +7,6 @@
 
 ---
 
-_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
+_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
 
 ---
