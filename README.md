@@ -7,6 +7,6 @@
 
 ---
 
-_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
+_"Only those who do nothing at all make no mistakes. — *Unknown*"_
 
 ---
