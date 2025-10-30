@@ -7,6 +7,6 @@
 
 ---
 
-_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
+_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
 
 ---
