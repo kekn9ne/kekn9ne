@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
+_"Wit is educated insolence. — *Aristotle*"_
 
 ---
