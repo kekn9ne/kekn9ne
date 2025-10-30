@@ -7,6 +7,6 @@
 
 ---
 
-_"Wit is educated insolence. — *Aristotle*"_
+_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
 
 ---
