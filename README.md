@@ -7,6 +7,6 @@
 
 ---
 
-_"Rivers know this: there is no hurry. We shall get there some day. — *A.A. Milne*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
