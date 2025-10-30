@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"Presents are made for the pleasure of who gives them, not the merits of who receives them. — *Carlos Ruiz Zafon*"_
 
 ---
