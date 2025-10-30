@@ -7,6 +7,6 @@
 
 ---
 
-_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
+_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
 
 ---
