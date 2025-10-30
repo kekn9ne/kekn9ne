@@ -7,6 +7,6 @@
 
 ---
 
-_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
+_"Do not use life to give life to death. Do not use death to bring death to life. — *Zhuangzi*"_
 
 ---
