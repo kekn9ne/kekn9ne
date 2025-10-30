@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
+_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
 
 ---
