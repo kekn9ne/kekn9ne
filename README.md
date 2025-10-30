@@ -7,6 +7,6 @@
 
 ---
 
-_"The first step is to establish that something is possible; then probability will occur. — *Elon Musk*"_
+_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
 
 ---
