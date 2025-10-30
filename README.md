@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
+_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
 
 ---
