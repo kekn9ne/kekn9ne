@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 30 October 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"Seek not the good in external things;seek it in yourselves. — *Epictetus*"_
+_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
 
 ---
