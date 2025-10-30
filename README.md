@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 30 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RS6** by *Era7capone* 🎶
 
 ---
 
-_"Keep your friends close, and your enemies closer. — *Sun Tzu*"_
+_"Discontent is the first necessity of progress. — *Thomas Edison*"_
 
 ---
