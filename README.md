@@ -7,6 +7,6 @@
 
 ---
 
-_"You can, you should, and if you're brave enough to start, you will. — *Stephen King*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
