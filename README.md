@@ -7,6 +7,6 @@
 
 ---
 
-_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
+_"How much pain they have cost us, the evils which have never happened. — *Thomas Jefferson*"_
 
 ---
