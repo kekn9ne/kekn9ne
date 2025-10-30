@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
+_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
 
 ---
