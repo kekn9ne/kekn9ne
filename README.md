@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are totally at peace with yourself, nothing can shake you. — *Deepam Chaterjee*"_
+_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
 
 ---
