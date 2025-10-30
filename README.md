@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — *Joan Rivers*"_
+_"This is the real secret of life - to be completely engaged with what you are doing in the here and now. And instead of calling it work, realize it is play. — *Alan Watts*"_
 
 ---
