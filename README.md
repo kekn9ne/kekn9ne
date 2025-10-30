@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 30 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **OHA** by *ASLAR* 🎶
 
 ---
 
-_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
+_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
 
 ---
