@@ -7,6 +7,6 @@
 
 ---
 
-_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
+_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
 
 ---
