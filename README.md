@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 30 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **OHA** by *ASLAR* 🎶
+🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
 
 ---
 
-_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
+_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
 
 ---
