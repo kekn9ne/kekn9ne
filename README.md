@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is the signature of civilizations.  — *Beverly Sills*"_
+_"A single dream is more powerful than a thousand realities. — *J.R.R. Tolkien*"_
 
 ---
