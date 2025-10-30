@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy life. There's plenty of time to be dead. — *Hans Christian Andersen*"_
+_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
 
 ---
