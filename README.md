@@ -7,6 +7,6 @@
 
 ---
 
-_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
+_"Rivers know this: there is no hurry. We shall get there some day. — *A.A. Milne*"_
 
 ---
