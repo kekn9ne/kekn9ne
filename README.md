@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 30 October 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't stop when you're tired. Stop when you're done. — *Marilyn Monroe*"_
+_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
 
 ---
