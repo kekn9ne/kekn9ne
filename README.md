@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
