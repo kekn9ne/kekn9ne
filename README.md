@@ -7,6 +7,6 @@
 
 ---
 
-_"The primary cause of unhappiness is never the situation but your thoughts about it. — *Eckhart Tolle*"_
+_"We don't stop playing because we grow old; we grow old because we stop playing. — *George Bernard Shaw*"_
 
 ---
