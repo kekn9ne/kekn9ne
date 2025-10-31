@@ -7,6 +7,6 @@
 
 ---
 
-_"Question everything. Learn something. Answer nothing. — *Euripides*"_
+_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
 
 ---
