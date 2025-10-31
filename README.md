@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 31 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
