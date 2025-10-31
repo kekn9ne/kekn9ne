@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
 
 ---
