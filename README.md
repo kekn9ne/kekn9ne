@@ -7,6 +7,6 @@
 
 ---
 
-_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
+_"Your success and happiness lie in you. — *Helen Keller*"_
 
 ---
