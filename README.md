@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people don't like change, but you need to embrace change if the alternative is disaster. — *Elon Musk*"_
+_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
 
 ---
