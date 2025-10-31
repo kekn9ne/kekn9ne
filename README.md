@@ -7,6 +7,6 @@
 
 ---
 
-_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
+_"Time is a game played beautifully by children. — *Heraclitus*"_
 
 ---
