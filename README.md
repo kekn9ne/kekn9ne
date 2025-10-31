@@ -7,6 +7,6 @@
 
 ---
 
-_"Why compare yourself with others? No one in the entire world can do a better job of being you than you. — *Unknown*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
