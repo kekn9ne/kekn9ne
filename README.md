@@ -7,6 +7,6 @@
 
 ---
 
-_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
