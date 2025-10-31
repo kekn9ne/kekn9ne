@@ -7,6 +7,6 @@
 
 ---
 
-_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
+_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
 
 ---
