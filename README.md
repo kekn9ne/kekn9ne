@@ -7,6 +7,6 @@
 
 ---
 
-_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
+_"Some people don't like change, but you need to embrace change if the alternative is disaster. — *Elon Musk*"_
 
 ---
