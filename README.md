@@ -7,6 +7,6 @@
 
 ---
 
-_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
+_"Wise men speak because they have something to say; Fools because they have to say something. — *Plato*"_
 
 ---
