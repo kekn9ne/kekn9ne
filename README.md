@@ -7,6 +7,6 @@
 
 ---
 
-_"You may delay, but time will not. — *Benjamin Franklin*"_
+_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
 
 ---
