@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 31 October 2025**  
-🌤️ Weather in Istanbul: **☀️   +14°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The quality of your life is determined by the quality of your thoughts. — *Unknown*"_
+_"One must be poor to know the luxury of giving. — *George Eliot*"_
 
 ---
