@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not go where the path may lead, go instead where there is no path and leave a trail. — *Ralph Waldo Emerson*"_
+_"The primary cause of unhappiness is never the situation but your thoughts about it. — *Eckhart Tolle*"_
 
 ---
