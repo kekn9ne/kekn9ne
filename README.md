@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
+_"No man is free who is not master of himself. — *Epictetus*"_
 
 ---
