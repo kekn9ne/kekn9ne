@@ -7,6 +7,6 @@
 
 ---
 
-_"The great use of life is to spend it for something that will outlast it. — *William James*"_
+_"Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections. — *Bob Marley*"_
 
 ---
