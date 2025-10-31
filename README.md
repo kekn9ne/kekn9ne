@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
 
 ---
