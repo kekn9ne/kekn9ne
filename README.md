@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
+_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
 
 ---
