@@ -7,6 +7,6 @@
 
 ---
 
-_"One always begins to forgive a place as soon as it's left behind. — *Charles Dickens*"_
+_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
 
 ---
