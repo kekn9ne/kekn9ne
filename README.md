@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be one person in this world, but to one person you may mean the world. — *Unknown*"_
+_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
 
 ---
