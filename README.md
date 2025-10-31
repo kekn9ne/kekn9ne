@@ -7,6 +7,6 @@
 
 ---
 
-_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
+_"Even if you're sure you can win, be careful that you can live with what you lose. — *Gary Keller*"_
 
 ---
