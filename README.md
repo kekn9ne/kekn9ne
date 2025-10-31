@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you're sure you can win, be careful that you can live with what you lose. — *Gary Keller*"_
+_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
 
 ---
