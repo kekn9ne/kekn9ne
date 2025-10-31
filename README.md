@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 31 October 2025**  
-🌤️ Weather in Istanbul: **☁️   +18°C**  
+🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
+_"Conscience is a man's compass.  — *Vincent van Gogh*"_
 
 ---
