@@ -7,6 +7,6 @@
 
 ---
 
-_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
+_"One of the keys to happiness is a bad memory. — *Rita Mae Brown*"_
 
 ---
