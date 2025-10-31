@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what you can, with what you have, where you are. — *Theodore Roosevelt*"_
+_"One always begins to forgive a place as soon as it's left behind. — *Charles Dickens*"_
 
 ---
