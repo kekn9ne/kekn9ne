@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
+_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
 
 ---
