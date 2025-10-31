@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 31 October 2025**  
 🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Conscience is a man's compass.  — *Vincent van Gogh*"_
+_"It is literally true that you can succeed best and quickest by helping others succeed. — *Napoleon Hill*"_
 
 ---
