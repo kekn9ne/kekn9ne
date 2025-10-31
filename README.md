@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul is neither born, and nor does it die. — *Bhagavad Gita*"_
+_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
 
 ---
