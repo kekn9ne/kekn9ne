@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate; only love can do that. — *Martin Luther King, Jr.*"_
+_"We must not cease from exploration. And the end of all our exploring will be to arrive where we began and to know the place for the first time. — *T.S. Eliot*"_
 
 ---
