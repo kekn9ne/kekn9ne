@@ -7,6 +7,6 @@
 
 ---
 
-_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
+_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
 
 ---
