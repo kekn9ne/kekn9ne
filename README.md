@@ -7,6 +7,6 @@
 
 ---
 
-_"Your success and happiness lie in you. — *Helen Keller*"_
+_"Life moves on and so should we. — *Spencer Johnson*"_
 
 ---
