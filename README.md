@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
+_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
 
 ---
