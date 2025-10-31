@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
+_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
 
 ---
