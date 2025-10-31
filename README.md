@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 01 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Biliyom** by *Enes Batur* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
+_"Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate; only love can do that. — *Martin Luther King, Jr.*"_
 
 ---
