@@ -7,6 +7,6 @@
 
 ---
 
-_"One must be poor to know the luxury of giving. — *George Eliot*"_
+_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
 
 ---
