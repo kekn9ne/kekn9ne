@@ -7,6 +7,6 @@
 
 ---
 
-_"I am always doing that which I can not do, in order that I may learn how to do it. — *Pablo Picasso*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
