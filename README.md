@@ -7,6 +7,6 @@
 
 ---
 
-_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Alan Watts*"_
 
 ---
