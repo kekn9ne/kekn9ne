@@ -7,6 +7,6 @@
 
 ---
 
-_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
