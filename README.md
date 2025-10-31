@@ -7,6 +7,6 @@
 
 ---
 
-_"The primary point of this existence is to live, and all living things move and grow. — *Ming-Dao Deng*"_
+_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
 
 ---
