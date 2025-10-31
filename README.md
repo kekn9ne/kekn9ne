@@ -7,6 +7,6 @@
 
 ---
 
-_"Life doesn't get easier or more forgiving, we get stronger and more resilient. — *Steve Maraboli*"_
+_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
 
 ---
