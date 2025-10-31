@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 31 October 2025**  
-🌤️ Weather in Istanbul: **☁️   +15°C**  
+🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
+_"All men who have achieved great things have been great dreamers.  — *Orison Swett Marden*"_
 
 ---
