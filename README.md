@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to live until you die. — *Dan Millman*"_
+_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
 
 ---
