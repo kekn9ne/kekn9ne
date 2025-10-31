@@ -7,6 +7,6 @@
 
 ---
 
-_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
+_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
 
 ---
