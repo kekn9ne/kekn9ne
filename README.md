@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
 
 ---
