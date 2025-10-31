@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
