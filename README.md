@@ -7,6 +7,6 @@
 
 ---
 
-_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
+_"You may delay, but time will not. — *Benjamin Franklin*"_
 
 ---
