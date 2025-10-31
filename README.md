@@ -7,6 +7,6 @@
 
 ---
 
-_"All men who have achieved great things have been great dreamers.  — *Orison Swett Marden*"_
+_"Love is the absence of judgment. — *Dalai Lama*"_
 
 ---
