@@ -7,6 +7,6 @@
 
 ---
 
-_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
+_"Wisdom is doing now what you are going to be happy with later on. — *Joyce Meyer*"_
 
 ---
