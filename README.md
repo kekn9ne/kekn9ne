@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
+_"The fewer the words, the better the prayer. — *Martin Luther*"_
 
 ---
