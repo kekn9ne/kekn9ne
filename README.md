@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is not having the strength to go on; it is going on when you don't have the strength. — *Theodore Roosevelt*"_
+_"Many people will walk in and out of your life, but only true friends will leave footprints in your heart. — *Eleanor Roosevelt*"_
 
 ---
