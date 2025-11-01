@@ -7,6 +7,6 @@
 
 ---
 
-_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
+_"Be approximately right rather than exactly wrong. — *John Tukey*"_
 
 ---
