@@ -7,6 +7,6 @@
 
 ---
 
-_"Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have. — *Norman Vincent Peale*"_
+_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
 
 ---
