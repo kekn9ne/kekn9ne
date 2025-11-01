@@ -7,6 +7,6 @@
 
 ---
 
-_"The scariest moment is always just before you start. After that, things can only get better. — *Stephen King*"_
+_"If you don't like something change it; if you can't change it, change the way you think about it. — *Mary Engelbreit*"_
 
 ---
