@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
+_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
 
 ---
