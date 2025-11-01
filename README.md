@@ -7,6 +7,6 @@
 
 ---
 
-_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
+_"A self that goes on changing is a self that goes on living. — *Virginia Woolf*"_
 
 ---
