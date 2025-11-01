@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 01 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Before I Forget** by *Slipknot* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Rewards and punishment is the lowest form of education. — *Zhuangzi*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
