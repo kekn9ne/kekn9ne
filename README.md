@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop comparing yourself to others and focus on your own improvement. — *Lolly Daskal*"_
+_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
 
 ---
