@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 01 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **WOLKSWAGEN GT Inzaghi** by *Metukan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The future will be shaped by those willing to commit their minds and their bodies to the task. — *Robert F. Kennedy*"_
+_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
 
 ---
