@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are the touchstones of our characters. — *Henry David Thoreau*"_
+_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
 
 ---
