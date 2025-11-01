@@ -7,6 +7,6 @@
 
 ---
 
-_"All wealth is the product of labor. — *John Locke*"_
+_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
 
 ---
