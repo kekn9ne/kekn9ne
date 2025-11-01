@@ -7,6 +7,6 @@
 
 ---
 
-_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
+_"Don't set your own goals by what other people make important. — *Lolly Daskal*"_
 
 ---
