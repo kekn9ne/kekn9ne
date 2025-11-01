@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day your masterpiece. — *John Wooden*"_
+_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
 
 ---
