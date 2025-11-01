@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
 
 ---
