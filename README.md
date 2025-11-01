@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the expansion of happiness. — *Deepak Chopra*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
