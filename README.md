@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
 
 ---
