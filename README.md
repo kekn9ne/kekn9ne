@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't allow your mind to tell your heart what to do. The mind gives up easily. — *Paulo Coelho*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
