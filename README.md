@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
+_"Not everything that weighs you down is yours to carry. — *Unknown*"_
 
 ---
