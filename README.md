@@ -7,6 +7,6 @@
 
 ---
 
-_"Be approximately right rather than exactly wrong. — *John Tukey*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
