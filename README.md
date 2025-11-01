@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
 
 ---
