@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your friends close, and your enemies closer. — *Sun Tzu*"_
+_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
 
 ---
