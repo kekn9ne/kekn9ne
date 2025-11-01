@@ -7,6 +7,6 @@
 
 ---
 
-_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
+_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
 
 ---
