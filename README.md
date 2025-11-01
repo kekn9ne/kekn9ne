@@ -7,6 +7,6 @@
 
 ---
 
-_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
+_"The scariest moment is always just before you start. After that, things can only get better. — *Stephen King*"_
 
 ---
