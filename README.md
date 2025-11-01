@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
+_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
 
 ---
