@@ -7,6 +7,6 @@
 
 ---
 
-_"When the time is gone, you can never get it back. — *Stephen King*"_
+_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
 
 ---
