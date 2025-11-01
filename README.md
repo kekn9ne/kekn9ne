@@ -7,6 +7,6 @@
 
 ---
 
-_"We don't stop playing because we grow old; we grow old because we stop playing. — *George Bernard Shaw*"_
+_"If you can't fly, run. If you can't run, walk. If you can't walk, crawl, but by all means, keep moving. — *Martin Luther King, Jr.*"_
 
 ---
