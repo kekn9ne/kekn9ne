@@ -7,6 +7,6 @@
 
 ---
 
-_"Not everything that weighs you down is yours to carry. — *Unknown*"_
+_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
 
 ---
