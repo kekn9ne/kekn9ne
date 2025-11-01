@@ -7,6 +7,6 @@
 
 ---
 
-_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
+_"There's more to life than being a passenger. — *Amelia Earhart*"_
 
 ---
