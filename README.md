@@ -7,6 +7,6 @@
 
 ---
 
-_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
+_"The fewer the words, the better the prayer. — *Martin Luther*"_
 
 ---
