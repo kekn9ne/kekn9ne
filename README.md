@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let anyone define you. You define yourself. — *Billie Jean King*"_
+_"To forget the whole world is easy; to make the whole world forget you is hard. — *Zhuangzi*"_
 
 ---
