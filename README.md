@@ -7,6 +7,6 @@
 
 ---
 
-_"Paths are made by walking. — *Franz Kafka*"_
+_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
 
 ---
