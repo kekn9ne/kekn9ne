@@ -7,6 +7,6 @@
 
 ---
 
-_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
+_"Whoever is happy will make others happy too. — *Anne Frank*"_
 
 ---
