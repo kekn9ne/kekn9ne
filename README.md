@@ -7,6 +7,6 @@
 
 ---
 
-_"To forget the whole world is easy; to make the whole world forget you is hard. — *Zhuangzi*"_
+_"Don't allow your mind to tell your heart what to do. The mind gives up easily. — *Paulo Coelho*"_
 
 ---
