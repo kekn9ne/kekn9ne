@@ -7,6 +7,6 @@
 
 ---
 
-_"Always keep your eyes open. Keep watching. Because whatever you see can inspire you. — *Grace Coddington*"_
+_"A fear of weakness only strengthens weakness. — *Criss Jami*"_
 
 ---
