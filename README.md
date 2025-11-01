@@ -7,6 +7,6 @@
 
 ---
 
-_"You can suffer the pain of change or suffer remaining the way you are. — *Joyce Meyer*"_
+_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
 
 ---
