@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
