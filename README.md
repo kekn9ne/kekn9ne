@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 01 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"But better die than live mechanically a life that is a repetition of repetitions. — *D. H. Lawrence*"_
+_"Remain calm. Be kind. — *Colin Powell*"_
 
 ---
