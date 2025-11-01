@@ -7,6 +7,6 @@
 
 ---
 
-_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
+_"Adventure is not outside man; it is within. — *George Eliot*"_
 
 ---
