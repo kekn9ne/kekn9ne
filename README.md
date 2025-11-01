@@ -7,6 +7,6 @@
 
 ---
 
-_"Man should fear never beginning to live. — *Marcus Aurelius*"_
+_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
 
 ---
