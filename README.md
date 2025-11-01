@@ -7,6 +7,6 @@
 
 ---
 
-_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
+_"Most people spend more time and energy going around problems than in trying to solve them.  — *Henry Ford*"_
 
 ---
