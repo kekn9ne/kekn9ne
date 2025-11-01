@@ -7,6 +7,6 @@
 
 ---
 
-_"A self that goes on changing is a self that goes on living. — *Virginia Woolf*"_
+_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
 
 ---
