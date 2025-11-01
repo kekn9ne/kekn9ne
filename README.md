@@ -7,6 +7,6 @@
 
 ---
 
-_"A fear of weakness only strengthens weakness. — *Criss Jami*"_
+_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
 
 ---
