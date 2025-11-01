@@ -7,6 +7,6 @@
 
 ---
 
-_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
+_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
 
 ---
