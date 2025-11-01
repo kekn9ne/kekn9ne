@@ -7,6 +7,6 @@
 
 ---
 
-_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
+_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
 
 ---
