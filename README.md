@@ -7,6 +7,6 @@
 
 ---
 
-_"If you pick up a starving dog and make him prosperous he will not bite you. This is the principal difference between a dog and man. — *Mark Twain*"_
+_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
 
 ---
