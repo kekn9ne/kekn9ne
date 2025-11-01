@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
+_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
 
 ---
