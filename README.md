@@ -7,6 +7,6 @@
 
 ---
 
-_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
+_"When you lose your desire for things that do not matter, you will be free. — *Morihei Ueshiba*"_
 
 ---
