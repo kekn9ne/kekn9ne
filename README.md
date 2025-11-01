@@ -7,6 +7,6 @@
 
 ---
 
-_"Remain calm. Be kind. — *Colin Powell*"_
+_"All things come into being by conflict of opposites. — *Heraclitus*"_
 
 ---
