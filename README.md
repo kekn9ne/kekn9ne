@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
+_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
 
 ---
