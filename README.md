@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 01 November 2025**  
-🌤️ Weather in Istanbul: **🌫  +13°C**  
+🌤️ Weather in Istanbul: **🌫  +16°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Whoever is happy will make others happy too. — *Anne Frank*"_
+_"Courage is not having the strength to go on; it is going on when you don't have the strength. — *Theodore Roosevelt*"_
 
 ---
