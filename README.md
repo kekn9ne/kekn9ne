@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
+_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
 
 ---
