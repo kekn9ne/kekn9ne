@@ -7,6 +7,6 @@
 
 ---
 
-_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
+_"Everything you can imagine is real. — *Pablo Picasso*"_
 
 ---
