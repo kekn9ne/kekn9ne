@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
+_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
 
 ---
