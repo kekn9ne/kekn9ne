@@ -7,6 +7,6 @@
 
 ---
 
-_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
+_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
 
 ---
