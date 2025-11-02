@@ -7,6 +7,6 @@
 
 ---
 
-_"Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — *Marcus Aurelius*"_
+_"Trust thyself: every heart vibrates to that iron string. — *Ralph Waldo Emerson*"_
 
 ---
