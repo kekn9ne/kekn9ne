@@ -7,6 +7,6 @@
 
 ---
 
-_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
+_"Go confidently in the direction of your dreams! Live the life you've imagined. — *Henry David Thoreau*"_
 
 ---
