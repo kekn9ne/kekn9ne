@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 02 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zor** by *Lvbel C5* 🎶
 
 ---
 
-_"Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.  — *Lao Tzu*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
