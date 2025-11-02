@@ -7,6 +7,6 @@
 
 ---
 
-_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
+_"Don't put off living to next week, next month, next year or next decade. The only time you're ever living is in this moment. — *Celestine Chua*"_
 
 ---
