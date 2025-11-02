@@ -7,6 +7,6 @@
 
 ---
 
-_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
+_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
 
 ---
