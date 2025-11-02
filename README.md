@@ -7,6 +7,6 @@
 
 ---
 
-_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
