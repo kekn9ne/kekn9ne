@@ -7,6 +7,6 @@
 
 ---
 
-_"We are willing to believe anything other than the truth. — *Carlos Ruiz Zafon*"_
+_"Every night before going to sleep, we must ask ourselves: what weakness did I overcome today? What virtue did I acquire? — *Seneca*"_
 
 ---
