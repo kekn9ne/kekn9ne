@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
+_"To a mind that is still, the entire universe surrenders. — *Zhuangzi*"_
 
 ---
