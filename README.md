@@ -7,6 +7,6 @@
 
 ---
 
-_"Where the willingness is great, the difficulties cannot be great. — *Niccolo Machiavelli*"_
+_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
 
 ---
