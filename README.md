@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
+_"Our life is what our thoughts make it. A man will find that as he alters his thoughts toward things and other people, things and other people will alter towards him. — *James Allen*"_
 
 ---
