@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
+_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
 
 ---
