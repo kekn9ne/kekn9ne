@@ -7,6 +7,6 @@
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — *Zig Ziglar*"_
 
 ---
