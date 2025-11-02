@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to know what God thinks about money just look at the people He gives it to. — *Alexander Pope*"_
+_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
 
 ---
