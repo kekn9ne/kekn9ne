@@ -7,6 +7,6 @@
 
 ---
 
-_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
+_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
 
 ---
