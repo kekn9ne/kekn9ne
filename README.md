@@ -7,6 +7,6 @@
 
 ---
 
-_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
