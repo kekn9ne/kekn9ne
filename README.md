@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter how slow you go, as long as you don't stop. — *Confucius*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
