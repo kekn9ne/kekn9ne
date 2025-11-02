@@ -7,6 +7,6 @@
 
 ---
 
-_"You're only given a little spark of madness. You mustn't lose it. — *Robin Williams*"_
+_"Deliberately seek the company of people who influence you to think and act on building the life you desire. — *Napoleon Hill*"_
 
 ---
