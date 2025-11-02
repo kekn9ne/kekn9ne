@@ -7,6 +7,6 @@
 
 ---
 
-_"To a mind that is still, the entire universe surrenders. — *Zhuangzi*"_
+_"The best and most beautiful things in the world cannot be seen or even touched - they must be felt with the heart. — *Helen Keller*"_
 
 ---
