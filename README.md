@@ -7,6 +7,6 @@
 
 ---
 
-_"The foolish reject what they see, not what they think; the wise reject what they think, not what they see. — *Huang Po*"_
+_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
 
 ---
