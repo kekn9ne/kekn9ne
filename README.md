@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something worth remembering. — *Elvis Presley*"_
+_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
 
 ---
