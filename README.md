@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose. — *Celestine Chua*"_
 
 ---
