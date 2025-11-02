@@ -7,6 +7,6 @@
 
 ---
 
-_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
+_"People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind. — *Eckhart Tolle*"_
 
 ---
