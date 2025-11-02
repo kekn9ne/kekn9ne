@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 02 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
+_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
 
 ---
