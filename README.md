@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust thyself: every heart vibrates to that iron string. — *Ralph Waldo Emerson*"_
+_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
 
 ---
