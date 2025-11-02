@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 02 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Zor** by *Lvbel C5* 🎶
+🎧 Currently Listening: **fregoli** by *DJ M1GUEL* 🎶
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
 
 ---
