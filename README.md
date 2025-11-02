@@ -7,6 +7,6 @@
 
 ---
 
-_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
