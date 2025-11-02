@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
 
 ---
