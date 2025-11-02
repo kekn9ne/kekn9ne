@@ -7,6 +7,6 @@
 
 ---
 
-_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
+_"We are willing to believe anything other than the truth. — *Carlos Ruiz Zafon*"_
 
 ---
