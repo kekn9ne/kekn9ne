@@ -7,6 +7,6 @@
 
 ---
 
-_"Go confidently in the direction of your dreams! Live the life you've imagined. — *Henry David Thoreau*"_
+_"Very little is needed to make a happy life; it is all within yourself, in your way of thinking. — *Marcus Aurelius*"_
 
 ---
