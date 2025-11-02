@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"You have the ability, now apply yourself. — *Benjamin Mays*"_
 
 ---
