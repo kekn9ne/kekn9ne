@@ -7,6 +7,6 @@
 
 ---
 
-_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
+_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
 
 ---
