@@ -7,6 +7,6 @@
 
 ---
 
-_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
+_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
 
 ---
