@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 02 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +14°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
+_"When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there. — *Zig Ziglar*"_
 
 ---
