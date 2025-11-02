@@ -7,6 +7,6 @@
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
 
 ---
