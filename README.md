@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
 
 ---
