@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
