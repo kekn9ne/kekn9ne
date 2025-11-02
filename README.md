@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
 
 ---
