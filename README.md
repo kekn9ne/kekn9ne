@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
