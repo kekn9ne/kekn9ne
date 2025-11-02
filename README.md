@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
+_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
 
 ---
