@@ -7,6 +7,6 @@
 
 ---
 
-_"A flower falls, even though we love it; and a weed grows, even though we do not love it. — *Dogen*"_
+_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
 
 ---
