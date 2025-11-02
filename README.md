@@ -7,6 +7,6 @@
 
 ---
 
-_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
+_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
 
 ---
