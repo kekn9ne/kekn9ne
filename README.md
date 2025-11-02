@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
+_"It doesn't matter how slow you go, as long as you don't stop. — *Confucius*"_
 
 ---
