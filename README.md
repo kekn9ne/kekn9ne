@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope is not a strategy. Luck is not a factor. Fear is not an option. — *James Cameron*"_
+_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
 
 ---
