@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 02 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
+_"Hope is not a strategy. Luck is not a factor. Fear is not an option. — *James Cameron*"_
 
 ---
