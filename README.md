@@ -7,6 +7,6 @@
 
 ---
 
-_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
+_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
 
 ---
