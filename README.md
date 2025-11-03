@@ -7,6 +7,6 @@
 
 ---
 
-_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
+_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
 
 ---
