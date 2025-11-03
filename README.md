@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 03 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
+_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
 
 ---
