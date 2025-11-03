@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not how much we have, but how much we enjoy, that makes happiness. — *Charles Spurgeon*"_
+_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
 
 ---
