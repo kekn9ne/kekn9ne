@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 03 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Talk does not cook rice. — *Chinese Proverb*"_
+_"The only difference between success and failure is the ability to take action. — *Alexander Graham Bell*"_
 
 ---
