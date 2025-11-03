@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
+_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
 
 ---
