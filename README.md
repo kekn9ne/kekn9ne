@@ -7,6 +7,6 @@
 
 ---
 
-_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
+_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
 
 ---
