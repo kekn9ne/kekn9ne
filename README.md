@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
+_"Creativity is intelligence having fun. — *Albert Einstein*"_
 
 ---
