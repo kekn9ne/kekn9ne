@@ -7,6 +7,6 @@
 
 ---
 
-_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
+_"Imagination is the beginning of creation. — *George Bernard Shaw*"_
 
 ---
