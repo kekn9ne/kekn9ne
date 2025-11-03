@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 03 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **OHA** by *ASLAR* 🎶
 
 ---
 
-_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
+_"Focused, hard work is the real key to success. — *John Carmack*"_
 
 ---
