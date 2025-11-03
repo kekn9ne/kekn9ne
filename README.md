@@ -7,6 +7,6 @@
 
 ---
 
-_"The season of failure is the best time for sowing the seeds of success.  — *Paramahansa Yogananda*"_
+_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
 
 ---
