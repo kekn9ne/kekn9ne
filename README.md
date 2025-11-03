@@ -7,6 +7,6 @@
 
 ---
 
-_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
+_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
 
 ---
