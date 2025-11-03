@@ -7,6 +7,6 @@
 
 ---
 
-_"Study logic and math, because once you've mastered them, you won't fear any book. — *Naval Ravikant*"_
+_"Greatness comes from living with purpose and passion. — *Ralph Marston*"_
 
 ---
