@@ -7,6 +7,6 @@
 
 ---
 
-_"The less people know, the more stubbornly they know it. — *Osho*"_
+_"Study logic and math, because once you've mastered them, you won't fear any book. — *Naval Ravikant*"_
 
 ---
