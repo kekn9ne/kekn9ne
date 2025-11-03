@@ -7,6 +7,6 @@
 
 ---
 
-_"We build too many walls and not enough bridges. — *Isaac Newton*"_
+_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
 
 ---
