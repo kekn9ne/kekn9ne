@@ -7,6 +7,6 @@
 
 ---
 
-_"All know the way; few actually walk it.  — *Bodhidharma*"_
+_"Do not look upon this world with fear and loathing. Bravely face whatever the gods offer. — *Morihei Ueshiba*"_
 
 ---
