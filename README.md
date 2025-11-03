@@ -7,6 +7,6 @@
 
 ---
 
-_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
