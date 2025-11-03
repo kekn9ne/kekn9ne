@@ -7,6 +7,6 @@
 
 ---
 
-_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
+_"Patience expands your options. If you insist on immediate gratification, your choices are severely limited. — *Ralph Marston*"_
 
 ---
