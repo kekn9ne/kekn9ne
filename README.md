@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 03 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Paranoya** by *UZI* 🎶
 
 ---
 
-_"We can see through others only when we can see through ourselves. — *Bruce Lee*"_
+_"If I persist long enough I will win. — *Og Mandino*"_
 
 ---
