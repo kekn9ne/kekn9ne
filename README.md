@@ -7,6 +7,6 @@
 
 ---
 
-_"We need never be ashamed of our tears. — *Charles Dickens*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
