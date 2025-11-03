@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is that it stops. — *Franz Kafka*"_
+_"An un-examined life is not worth living. — *Socrates*"_
 
 ---
