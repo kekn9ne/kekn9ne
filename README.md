@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll see it when you believe it.  — *Wayne Dyer*"_
+_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
 
 ---
