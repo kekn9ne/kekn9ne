@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is inevitable but personal growth is a choice. — *Bob Proctor*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
