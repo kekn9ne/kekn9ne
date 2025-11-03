@@ -7,6 +7,6 @@
 
 ---
 
-_"The only difference between success and failure is the ability to take action. — *Alexander Graham Bell*"_
+_"We need never be ashamed of our tears. — *Charles Dickens*"_
 
 ---
