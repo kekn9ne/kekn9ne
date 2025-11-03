@@ -7,6 +7,6 @@
 
 ---
 
-_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
+_"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled. — *Andrew Carnegie*"_
 
 ---
