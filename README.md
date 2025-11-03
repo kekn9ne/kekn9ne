@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure means you've now learned another valuable lesson that pushes you one step closer to success. — *Steve Harvey*"_
+_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
 
 ---
