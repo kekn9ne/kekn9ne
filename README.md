@@ -7,6 +7,6 @@
 
 ---
 
-_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
+_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
 
 ---
