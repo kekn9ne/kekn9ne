@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"All know the way; few actually walk it.  — *Bodhidharma*"_
 
 ---
