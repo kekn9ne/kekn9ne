@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
+_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
 
 ---
