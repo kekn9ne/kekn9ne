@@ -7,6 +7,6 @@
 
 ---
 
-_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
+_"Change is inevitable but personal growth is a choice. — *Bob Proctor*"_
 
 ---
