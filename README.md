@@ -7,6 +7,6 @@
 
 ---
 
-_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
+_"Leave the beaten track behind occasionally and dive into the woods. Every time you do you will be certain to find something you have never seen before. — *Alexander Graham Bell*"_
 
 ---
