@@ -7,6 +7,6 @@
 
 ---
 
-_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
+_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
 
 ---
