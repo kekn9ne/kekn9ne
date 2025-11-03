@@ -7,6 +7,6 @@
 
 ---
 
-_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
+_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
 
 ---
