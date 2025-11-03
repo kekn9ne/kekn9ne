@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
+_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
 
 ---
