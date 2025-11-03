@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 03 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Paranoya** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If I persist long enough I will win. — *Og Mandino*"_
+_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
 
 ---
