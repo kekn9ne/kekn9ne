@@ -7,6 +7,6 @@
 
 ---
 
-_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
+_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
 
 ---
