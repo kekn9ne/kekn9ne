@@ -7,6 +7,6 @@
 
 ---
 
-_"So we beat on, boats against the current, borne back ceaselessly into the past. — *F. Scott Fitzgerald*"_
+_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
 
 ---
