@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
+_"The greatest of all mistakes is to do nothing because you think you can only do a little.   — *Zig Ziglar*"_
 
 ---
