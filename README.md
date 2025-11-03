@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
+_"The happiness of your life depends upon the quality of your thoughts; therefore guard accordingly. — *Marcus Aurelius*"_
 
 ---
