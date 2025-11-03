@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 03 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +15°C**  
+🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Action is the foundational key to all success. — *Pablo Picasso*"_
+_"The giving of love is an education in itself. — *Eleanor Roosevelt*"_
 
 ---
