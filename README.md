@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest of all mistakes is to do nothing because you think you can only do a little.   — *Zig Ziglar*"_
+_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
 
 ---
