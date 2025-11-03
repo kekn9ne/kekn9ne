@@ -7,6 +7,6 @@
 
 ---
 
-_"Life becomes easier and more beautiful when we can see the good in other people. — *Roy T. Bennett*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
