@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 03 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +16°C**  
+🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
+_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
 
 ---
