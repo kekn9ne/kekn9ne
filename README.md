@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
 
 ---
