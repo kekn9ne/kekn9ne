@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much we give but how much love we put into giving. — *Mother Teresa*"_
+_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
 
 ---
