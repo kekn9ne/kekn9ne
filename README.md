@@ -7,6 +7,6 @@
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
 
 ---
