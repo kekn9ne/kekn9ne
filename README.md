@@ -7,6 +7,6 @@
 
 ---
 
-_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
+_"The less people know, the more stubbornly they know it. — *Osho*"_
 
 ---
