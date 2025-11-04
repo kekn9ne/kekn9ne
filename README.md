@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
+_"You change the world by being yourself. — *Yoko Ono*"_
 
 ---
