@@ -7,6 +7,6 @@
 
 ---
 
-_"Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold. — *Elon Musk*"_
+_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
 
 ---
