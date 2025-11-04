@@ -7,6 +7,6 @@
 
 ---
 
-_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
