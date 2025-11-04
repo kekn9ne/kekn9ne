@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 04 November 2025**  
-🌤️ Weather in Istanbul: **🌫  +14°C**  
+🌤️ Weather in Istanbul: **🌫  +13°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose. — *Simon Sinek*"_
+_"You give but little when you give of your possessions. It is when you give of yourself that you truly give. — *Kahlil Gibran*"_
 
 ---
