@@ -7,6 +7,6 @@
 
 ---
 
-_"I must also have a dark side if I am to be whole. — *Carl Jung*"_
+_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
 
 ---
