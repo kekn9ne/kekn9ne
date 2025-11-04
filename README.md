@@ -7,6 +7,6 @@
 
 ---
 
-_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
+_"Have a vision. Be demanding. — *Colin Powell*"_
 
 ---
