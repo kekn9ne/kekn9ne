@@ -7,6 +7,6 @@
 
 ---
 
-_"Work harder on yourself than you do on your job. — *Jim Rohn*"_
+_"Wit is educated insolence. — *Aristotle*"_
 
 ---
