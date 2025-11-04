@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
+_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
 
 ---
