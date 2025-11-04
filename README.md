@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope is not a strategy. Luck is not a factor. Fear is not an option. — *James Cameron*"_
+_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
 
 ---
