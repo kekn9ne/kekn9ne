@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can see it in your mind, you can hold it in your mind. — *Steve Harvey*"_
+_"Never close your lips to those whom you have already opened your heart. — *Charles Dickens*"_
 
 ---
