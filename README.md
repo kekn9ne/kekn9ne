@@ -7,6 +7,6 @@
 
 ---
 
-_"Successful people tend to become more successful because they are always thinking about their successes. — *Brian Tracy*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
