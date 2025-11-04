@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
 
 ---
