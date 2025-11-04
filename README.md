@@ -7,6 +7,6 @@
 
 ---
 
-_"The best teacher is experience and not through someone's distorted point of view. — *Jack Kerouac*"_
+_"As a man thinketh in his heart, so shall he be. — *James Allen*"_
 
 ---
