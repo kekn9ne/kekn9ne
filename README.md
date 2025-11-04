@@ -7,6 +7,6 @@
 
 ---
 
-_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
+_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
 
 ---
