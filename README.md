@@ -7,6 +7,6 @@
 
 ---
 
-_"Today you are you, that is truer than true. There is no one alive who is you-er than you. — *Dr. Seuss*"_
+_"Never feel shame for trying and failing, for he who has never failed is he who has never tried. — *Og Mandino*"_
 
 ---
