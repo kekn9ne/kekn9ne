@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"Today you are you, that is truer than true. There is no one alive who is you-er than you. — *Dr. Seuss*"_
 
 ---
