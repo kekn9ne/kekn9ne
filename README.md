@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness cannot drive out darkness; only light can do that. Hate cannot drive out hate; only love can do that. — *Martin Luther King, Jr.*"_
+_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
 
 ---
