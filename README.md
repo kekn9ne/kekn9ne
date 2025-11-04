@@ -7,6 +7,6 @@
 
 ---
 
-_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
+_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
 
 ---
