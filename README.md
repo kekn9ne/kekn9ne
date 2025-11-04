@@ -7,6 +7,6 @@
 
 ---
 
-_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
+_"Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold. — *Elon Musk*"_
 
 ---
