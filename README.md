@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
+_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
 
 ---
