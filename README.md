@@ -7,6 +7,6 @@
 
 ---
 
-_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
