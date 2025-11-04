@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be the scariest and most beautiful thing simultaneously. — *Maxime Lagace*"_
+_"Work harder on yourself than you do on your job. — *Jim Rohn*"_
 
 ---
