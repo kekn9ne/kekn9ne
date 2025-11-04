@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **FaceTime** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
 
 ---
