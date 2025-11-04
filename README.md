@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — *John Lennon*"_
+_"Beware of false knowledge, it is more dangerous than ignorance. — *George Bernard Shaw*"_
 
 ---
