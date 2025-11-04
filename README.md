@@ -7,6 +7,6 @@
 
 ---
 
-_"Never feel shame for trying and failing, for he who has never failed is he who has never tried. — *Og Mandino*"_
+_"Don't want anything. Then you get everything. — *Seungsahn*"_
 
 ---
