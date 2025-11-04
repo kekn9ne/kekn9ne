@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
 
 ---
