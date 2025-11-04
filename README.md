@@ -7,6 +7,6 @@
 
 ---
 
-_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
+_"If you can't imagine it, you can't have it. — *Toni Morrison*"_
 
 ---
