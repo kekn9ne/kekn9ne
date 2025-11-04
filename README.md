@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything eaten is killed. Every meal is a sacrifice. — *Adi Da Samraj*"_
+_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
 
 ---
