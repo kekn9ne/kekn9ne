@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
+_"We can have more than we've got because we can become more than we are. — *Jim Rohn*"_
 
 ---
