@@ -7,6 +7,6 @@
 
 ---
 
-_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
+_"The best teacher is experience and not through someone's distorted point of view. — *Jack Kerouac*"_
 
 ---
