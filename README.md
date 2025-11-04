@@ -7,6 +7,6 @@
 
 ---
 
-_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
+_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
 
 ---
