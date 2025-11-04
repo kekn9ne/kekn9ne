@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **🌫  +13°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Olmadı** by *Velet* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Do not use life to give life to death. Do not use death to bring death to life. — *Zhuangzi*"_
+_"Everything eaten is killed. Every meal is a sacrifice. — *Adi Da Samraj*"_
 
 ---
