@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **🌫  +13°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Hayalin Yeri Yok** by *Allame* 🎶
+🎧 Currently Listening: **Olmadı** by *Velet* 🎶
 
 ---
 
-_"Less is more. — *Robert Browning*"_
+_"Do not use life to give life to death. Do not use death to bring death to life. — *Zhuangzi*"_
 
 ---
