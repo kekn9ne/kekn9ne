@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Paranoya** by *UZI* 🎶
 
 ---
 
-_"I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in. — *Virginia Woolf*"_
+_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
 
 ---
