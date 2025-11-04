@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 04 November 2025**  
-🌤️ Weather in Istanbul: **🌫  +20°C**  
+🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Genius, in truth, means little more than the faculty of perceiving in an unhabitual way. — *William James*"_
+_"Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along. — *Celestine Chua*"_
 
 ---
