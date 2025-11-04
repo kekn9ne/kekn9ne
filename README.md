@@ -7,6 +7,6 @@
 
 ---
 
-_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
+_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
 
 ---
