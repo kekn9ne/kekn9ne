@@ -7,6 +7,6 @@
 
 ---
 
-_"Never close your lips to those whom you have already opened your heart. — *Charles Dickens*"_
+_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
 
 ---
