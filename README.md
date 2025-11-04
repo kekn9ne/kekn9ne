@@ -7,6 +7,6 @@
 
 ---
 
-_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
+_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
 
 ---
