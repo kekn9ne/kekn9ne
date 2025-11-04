@@ -7,6 +7,6 @@
 
 ---
 
-_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
