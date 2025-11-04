@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **🌫  +13°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
+🎧 Currently Listening: **Hayalin Yeri Yok** by *Allame* 🎶
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Less is more. — *Robert Browning*"_
 
 ---
