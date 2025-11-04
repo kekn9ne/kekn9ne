@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 04 November 2025**  
 🌤️ Weather in Istanbul: **🌫  +13°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
 
 ---
 
-_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
+_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
 
 ---
