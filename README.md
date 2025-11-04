@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
