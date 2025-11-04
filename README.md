@@ -7,6 +7,6 @@
 
 ---
 
-_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
+_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
 
 ---
