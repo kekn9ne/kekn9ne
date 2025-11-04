@@ -7,6 +7,6 @@
 
 ---
 
-_"You give but little when you give of your possessions. It is when you give of yourself that you truly give. — *Kahlil Gibran*"_
+_"Successful people tend to become more successful because they are always thinking about their successes. — *Brian Tracy*"_
 
 ---
