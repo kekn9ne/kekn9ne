@@ -7,6 +7,6 @@
 
 ---
 
-_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
+_"Genius, in truth, means little more than the faculty of perceiving in an unhabitual way. — *William James*"_
 
 ---
