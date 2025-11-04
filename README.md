@@ -7,6 +7,6 @@
 
 ---
 
-_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
+_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
 
 ---
