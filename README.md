@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
