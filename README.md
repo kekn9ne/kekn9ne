@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk sense to a fool and he calls you foolish. — *Euripides*"_
+_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
 
 ---
