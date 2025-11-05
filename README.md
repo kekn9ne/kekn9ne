@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 05 November 2025**  
-🌤️ Weather in Istanbul: **🌦   +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
 
 ---
 
-_"The impossible can always be broken down into possibilities. — *Unknown*"_
+_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
 
 ---
