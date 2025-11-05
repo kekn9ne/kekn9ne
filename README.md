@@ -7,6 +7,6 @@
 
 ---
 
-_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
+_"In the End, we will remember not the words of our enemies, but the silence of our friends. — *Martin Luther King, Jr.*"_
 
 ---
