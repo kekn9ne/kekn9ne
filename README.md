@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
 
 ---
