@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 05 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **🌦   +18°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
+_"The impossible can always be broken down into possibilities. — *Unknown*"_
 
 ---
