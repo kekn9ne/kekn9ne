@@ -7,6 +7,6 @@
 
 ---
 
-_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
+_"Some people don't like change, but you need to embrace change if the alternative is disaster. — *Elon Musk*"_
 
 ---
