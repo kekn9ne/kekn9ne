@@ -7,6 +7,6 @@
 
 ---
 
-_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
+_"Not everything that weighs you down is yours to carry. — *Unknown*"_
 
 ---
