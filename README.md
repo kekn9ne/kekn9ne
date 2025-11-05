@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the potential for greatness. — *Steve Harvey*"_
+_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
 
 ---
