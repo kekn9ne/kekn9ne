@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
+_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
 
 ---
