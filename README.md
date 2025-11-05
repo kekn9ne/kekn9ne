@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 05 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
+🎧 Currently Listening: **RASTAFARAY** by *ERU* 🎶
 
 ---
 
-_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
+_"I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better. — *Elon Musk*"_
 
 ---
