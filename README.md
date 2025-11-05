@@ -7,6 +7,6 @@
 
 ---
 
-_"Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored. — *Earl Nightingale*"_
+_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
 
 ---
