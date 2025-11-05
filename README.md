@@ -7,6 +7,6 @@
 
 ---
 
-_"The Art of Peace begins with you. — *Morihei Ueshiba*"_
+_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
 
 ---
