@@ -7,6 +7,6 @@
 
 ---
 
-_"Honor is the foundation of courage. — *Amelia Earhart*"_
+_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
 
 ---
