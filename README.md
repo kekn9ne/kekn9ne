@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 06 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mektup** by *Motive* 🎶
 
 ---
 
-_"Anyone who reads a book with a sense of obligation does not understand the art of reading. — *Lin Yutang*"_
+_"Men trust their ears less than their eyes. — *Herodotus*"_
 
 ---
