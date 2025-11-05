@@ -7,6 +7,6 @@
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
 
 ---
