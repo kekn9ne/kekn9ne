@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't feed a hundred people, then feed just one. — *Mother Teresa*"_
+_"You have the potential for greatness. — *Steve Harvey*"_
 
 ---
