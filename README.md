@@ -7,6 +7,6 @@
 
 ---
 
-_"Time and health are two precious assets that we don't recognize and appreciate until they have been depleted.  — *Denis Waitley*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
