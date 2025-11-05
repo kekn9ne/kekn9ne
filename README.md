@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
+_"If we know how to adapt, we end up being superior. — *Ming-Dao Deng*"_
 
 ---
