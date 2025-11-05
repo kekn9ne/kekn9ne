@@ -7,6 +7,6 @@
 
 ---
 
-_"Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you. — *Lao Tzu*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
