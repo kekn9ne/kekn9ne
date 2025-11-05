@@ -7,6 +7,6 @@
 
 ---
 
-_"Change yourself - you are in control. — *Mahatma Gandhi*"_
+_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
 
 ---
