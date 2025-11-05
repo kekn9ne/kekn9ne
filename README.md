@@ -7,6 +7,6 @@
 
 ---
 
-_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
+_"Engage in those actions and thoughts that nurture the good qualities you want to have. — *Paramahansa Yogananda*"_
 
 ---
