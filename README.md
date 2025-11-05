@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 05 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
+🎧 Currently Listening: **BENIM HAYALLER** by *Luciano* 🎶
 
 ---
 
-_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
+_"When you win, say nothing, when you lose say less. — *Wayne Gretzky*"_
 
 ---
