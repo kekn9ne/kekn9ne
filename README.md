@@ -7,6 +7,6 @@
 
 ---
 
-_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
+_"Anyone who reads a book with a sense of obligation does not understand the art of reading. — *Lin Yutang*"_
 
 ---
