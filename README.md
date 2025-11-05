@@ -7,6 +7,6 @@
 
 ---
 
-_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
+_"As a man thinketh in his heart, so shall he be. — *James Allen*"_
 
 ---
