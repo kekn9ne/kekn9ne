@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 05 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
 
 ---
 
-_"Life itself is the most wonderful fairy tale. — *Hans Christian Andersen*"_
+_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
 
 ---
