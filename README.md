@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
+_"Life itself is the most wonderful fairy tale. — *Hans Christian Andersen*"_
 
 ---
