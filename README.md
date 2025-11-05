@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get, the better you get. Unless you're a banana. — *Betty White*"_
+_"Change yourself - you are in control. — *Mahatma Gandhi*"_
 
 ---
