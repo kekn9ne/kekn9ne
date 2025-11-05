@@ -7,6 +7,6 @@
 
 ---
 
-_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
+_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
 
 ---
