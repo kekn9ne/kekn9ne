@@ -7,6 +7,6 @@
 
 ---
 
-_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
+_"Honor is the foundation of courage. — *Amelia Earhart*"_
 
 ---
