@@ -7,6 +7,6 @@
 
 ---
 
-_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
+_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
 
 ---
