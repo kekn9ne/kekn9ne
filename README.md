@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
+_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
 
 ---
