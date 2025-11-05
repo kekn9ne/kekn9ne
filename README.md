@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.  — *Martin Luther*"_
+_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
 
 ---
