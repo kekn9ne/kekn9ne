@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
+_"Before preparing to improve the world, first look around your own home three times.  — *Chinese Proverb*"_
 
 ---
