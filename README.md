@@ -7,6 +7,6 @@
 
 ---
 
-_"Before preparing to improve the world, first look around your own home three times.  — *Chinese Proverb*"_
+_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
 
 ---
