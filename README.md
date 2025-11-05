@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
+_"A man is literally what he thinks. — *James Allen*"_
 
 ---
