@@ -7,6 +7,6 @@
 
 ---
 
-_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
+_"There is little success where there is little laughter. — *Andrew Carnegie*"_
 
 ---
