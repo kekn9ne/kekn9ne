@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 06 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Mektup** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Men trust their ears less than their eyes. — *Herodotus*"_
+_"I am not proud, but I am happy; and happiness blinds, I think, more than pride. — *Alexandre Dumas*"_
 
 ---
