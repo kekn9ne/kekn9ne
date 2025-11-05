@@ -7,6 +7,6 @@
 
 ---
 
-_"In the End, we will remember not the words of our enemies, but the silence of our friends. — *Martin Luther King, Jr.*"_
+_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
 
 ---
