@@ -7,6 +7,6 @@
 
 ---
 
-_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
+_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
 
 ---
