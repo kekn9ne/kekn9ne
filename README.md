@@ -7,6 +7,6 @@
 
 ---
 
-_"There is little success where there is little laughter. — *Andrew Carnegie*"_
+_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
 
 ---
