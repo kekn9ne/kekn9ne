@@ -7,6 +7,6 @@
 
 ---
 
-_"Try not to become a man of success, but rather try to become a man of value. — *Albert Einstein*"_
+_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
 
 ---
