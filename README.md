@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 05 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **YAPAR MISIN?** by *Poizi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
+_"Your only limitations are those you set up in your mind or permit others to set up for you. — *Og Mandino*"_
 
 ---
