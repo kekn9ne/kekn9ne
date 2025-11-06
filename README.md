@@ -7,6 +7,6 @@
 
 ---
 
-_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
+_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
 
 ---
