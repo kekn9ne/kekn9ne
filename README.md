@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
+_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
 
 ---
