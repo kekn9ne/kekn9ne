@@ -7,6 +7,6 @@
 
 ---
 
-_"Only when one allows themself the right to die, do they then give yourself the permission to live. — *C. Sean McGee*"_
+_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
 
 ---
