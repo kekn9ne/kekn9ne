@@ -7,6 +7,6 @@
 
 ---
 
-_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
+_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
 
 ---
