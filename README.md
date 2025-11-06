@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn the pain into power. — *Unknown*"_
+_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
 
 ---
