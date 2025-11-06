@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
+_"The more you are grateful for what you have the more you will have to be grateful for.   — *Zig Ziglar*"_
 
 ---
