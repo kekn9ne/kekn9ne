@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 06 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Nakit** by *Label C5* 🎶
+🎧 Currently Listening: **Gülşen** by *Ati242* 🎶
 
 ---
 
-_"Every day is an opportunity to a make a new happy ending. — *Jonathan Swift*"_
+_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
 
 ---
