@@ -7,6 +7,6 @@
 
 ---
 
-_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
+_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
 
 ---
