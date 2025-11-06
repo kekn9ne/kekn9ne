@@ -7,6 +7,6 @@
 
 ---
 
-_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
+_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
 
 ---
