@@ -7,6 +7,6 @@
 
 ---
 
-_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
+_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
 
 ---
