@@ -7,6 +7,6 @@
 
 ---
 
-_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
+_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
 
 ---
