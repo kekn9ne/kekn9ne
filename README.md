@@ -7,6 +7,6 @@
 
 ---
 
-_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
+_"Give a girl the right shoes, and she can conquer the world. — *Bette Midler*"_
 
 ---
