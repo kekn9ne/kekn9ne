@@ -7,6 +7,6 @@
 
 ---
 
-_"Boldness makes even the smallest animal dangerous. — *Robert Greene*"_
+_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
 
 ---
