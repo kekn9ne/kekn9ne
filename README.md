@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"The moment you stop to think about whether you love someone, you've already stopped loving that person forever. — *Carlos Ruiz Zafon*"_
 
 ---
