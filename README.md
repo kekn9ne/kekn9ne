@@ -7,6 +7,6 @@
 
 ---
 
-_"As a man thinketh in his heart, so shall he be. — *James Allen*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
