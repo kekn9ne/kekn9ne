@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"Sometimes it is more important to discover what one cannot do, than what one can do. — *Lin Yutang*"_
 
 ---
