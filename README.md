@@ -7,6 +7,6 @@
 
 ---
 
-_"The guest will judge better of a feast than the cook. — *Aristotle*"_
+_"You know the more one does the more one can do. — *Amelia Earhart*"_
 
 ---
