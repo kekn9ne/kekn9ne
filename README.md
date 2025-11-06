@@ -7,6 +7,6 @@
 
 ---
 
-_"No idea, no matter how good, will work if it doesn't get used. — *Peter A. Cohen*"_
+_"Never lose hope. Storms make people stronger and never last forever. — *Roy T. Bennett*"_
 
 ---
