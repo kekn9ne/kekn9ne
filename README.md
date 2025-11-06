@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
