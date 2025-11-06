@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole is greater than the sum of its parts. — *Aristotle*"_
+_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
 
 ---
