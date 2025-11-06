@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose. — *Elbert Hubbard*"_
+_"We have no more right to consume happiness without producing it than to consume wealth without producing it. — *George Bernard Shaw*"_
 
 ---
