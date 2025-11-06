@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
+_"Coming together is a beginning, staying together is progress, and working together is success.  — *Henry Ford*"_
 
 ---
