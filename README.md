@@ -7,6 +7,6 @@
 
 ---
 
-_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
+_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
 
 ---
