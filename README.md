@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 06 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **SUBMARINER** by *AKDO* 🎶
+🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
 
 ---
 
-_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
+_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
 
 ---
