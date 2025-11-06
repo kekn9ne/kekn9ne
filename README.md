@@ -7,6 +7,6 @@
 
 ---
 
-_"Give a girl the right shoes, and she can conquer the world. — *Bette Midler*"_
+_"Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people. — *Roy T. Bennett*"_
 
 ---
