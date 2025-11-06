@@ -7,6 +7,6 @@
 
 ---
 
-_"We have no more right to consume happiness without producing it than to consume wealth without producing it. — *George Bernard Shaw*"_
+_"What you resist, persists. — *Carl Jung*"_
 
 ---
