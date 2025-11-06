@@ -7,6 +7,6 @@
 
 ---
 
-_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
+_"Only when one allows themself the right to die, do they then give yourself the permission to live. — *C. Sean McGee*"_
 
 ---
