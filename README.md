@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 06 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Gülşen** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
+_"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. — *Lao Tzu*"_
 
 ---
