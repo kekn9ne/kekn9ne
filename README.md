@@ -7,6 +7,6 @@
 
 ---
 
-_"Through discipline comes freedom. — *Aristotle*"_
+_"No idea, no matter how good, will work if it doesn't get used. — *Peter A. Cohen*"_
 
 ---
