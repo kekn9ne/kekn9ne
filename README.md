@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you stop to think about whether you love someone, you've already stopped loving that person forever. — *Carlos Ruiz Zafon*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
