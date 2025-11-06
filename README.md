@@ -7,6 +7,6 @@
 
 ---
 
-_"You can do nothing to change the past, and the future will never come exactly as you plan or hope for. — *Dan Millman*"_
+_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
 
 ---
