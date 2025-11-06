@@ -7,6 +7,6 @@
 
 ---
 
-_"Give more than you think you can, trusting that you are richer than you think. — *Jon Kabat-Zinn*"_
+_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
 
 ---
