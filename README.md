@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 07 November 2025**  
-🌤️ Weather in Istanbul: **🌦   +17°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
+_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
 
 ---
