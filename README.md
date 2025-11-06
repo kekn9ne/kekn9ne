@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
+_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
 
 ---
