@@ -7,6 +7,6 @@
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
 
 ---
