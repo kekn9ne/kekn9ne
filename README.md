@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 06 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +19°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Üçe Beşe Bakamam** by *Ben Fero* 🎶
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"Never regret your past. Rather, embrace it as the teacher that it is. — *Robin Sharma*"_
+_"My guiding principle is this: Guilt is never to be doubted.  — *Franz Kafka*"_
 
 ---
