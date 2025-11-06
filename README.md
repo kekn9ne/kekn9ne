@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
+_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
 
 ---
