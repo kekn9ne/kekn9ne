@@ -7,6 +7,6 @@
 
 ---
 
-_"Coming together is a beginning, staying together is progress, and working together is success.  — *Henry Ford*"_
+_"The primary point of this existence is to live, and all living things move and grow. — *Ming-Dao Deng*"_
 
 ---
