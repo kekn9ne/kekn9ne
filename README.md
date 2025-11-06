@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 06 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **PANİK YOK** by *Xir* 🎶
+🎧 Currently Listening: **Kendine İyi Bak** by *Şam* 🎶
 
 ---
 
-_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
+_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
 
 ---
