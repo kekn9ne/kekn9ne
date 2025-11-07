@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 08 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Çıkmaz Bir Sokakta** by *Semicenk* 🎶
+🎧 Currently Listening: **Toroslu Yollar 2.0** by *ronixd* 🎶
 
 ---
 
-_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
+_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
 
 ---
