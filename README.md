@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
+_"There is no value in anything until it is finished.  — *Genghis Khan*"_
 
 ---
