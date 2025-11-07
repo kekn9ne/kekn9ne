@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
+_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
 
 ---
