@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 07 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **🌦   +16°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The journey, not the destination matters. — *T.S. Eliot*"_
+_"Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service. — *Earl Nightingale*"_
 
 ---
