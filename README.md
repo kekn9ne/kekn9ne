@@ -7,6 +7,6 @@
 
 ---
 
-_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
+_"The journey, not the destination matters. — *T.S. Eliot*"_
 
 ---
