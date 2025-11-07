@@ -7,6 +7,6 @@
 
 ---
 
-_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
+_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
 
 ---
