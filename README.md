@@ -7,6 +7,6 @@
 
 ---
 
-_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
+_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
 
 ---
