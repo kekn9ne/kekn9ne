@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 07 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
+_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
 
 ---
