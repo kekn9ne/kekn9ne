@@ -7,6 +7,6 @@
 
 ---
 
-_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
+_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
 
 ---
