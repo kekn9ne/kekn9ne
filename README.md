@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is not fatal, but failure to change might be. — *John Wooden*"_
+_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
 
 ---
