@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 08 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Toroslu Yollar 2.0** by *ronixd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
+_"Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it. — *Gurbaksh Chahal*"_
 
 ---
