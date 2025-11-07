@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 07 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Olur Ya** by *Hazar Altın* 🎶
 
 ---
 
-_"There is no value in anything until it is finished.  — *Genghis Khan*"_
+_"Lack of emotion causes lack of progress and lack of motivation. — *Tony Robbins*"_
 
 ---
