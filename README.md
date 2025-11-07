@@ -7,6 +7,6 @@
 
 ---
 
-_"We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet. — *Thich Nhat Hanh*"_
+_"You will succeed because most people are lazy. — *Shahir Zag*"_
 
 ---
