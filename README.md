@@ -7,6 +7,6 @@
 
 ---
 
-_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
+_"Be a good animal, true to your instincts. — *D. H. Lawrence*"_
 
 ---
