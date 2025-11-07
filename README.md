@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 07 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +21°C**  
+🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I pay attention to every minute of the day. — *Steve Harvey*"_
+_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
 
 ---
