@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
+_"I can live without money, but I cannot live without love. — *Judy Garland*"_
 
 ---
