@@ -7,6 +7,6 @@
 
 ---
 
-_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
+_"The reward of suffering is experience. — *Harry S. Truman*"_
 
 ---
