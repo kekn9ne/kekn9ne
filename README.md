@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
+_"I love fools' experiments. I am always making them. — *Charles Darwin*"_
 
 ---
