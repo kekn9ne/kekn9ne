@@ -7,6 +7,6 @@
 
 ---
 
-_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
+_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
 
 ---
