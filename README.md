@@ -7,6 +7,6 @@
 
 ---
 
-_"You will succeed because most people are lazy. — *Shahir Zag*"_
+_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
 
 ---
