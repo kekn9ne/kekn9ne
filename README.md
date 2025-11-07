@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"I pay attention to every minute of the day. — *Steve Harvey*"_
 
 ---
