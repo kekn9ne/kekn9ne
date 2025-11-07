@@ -7,6 +7,6 @@
 
 ---
 
-_"Only the hand that erases can write the true thing. — *Meister Eckhart*"_
+_"Nothing good ever comes of violence. — *Martin Luther*"_
 
 ---
