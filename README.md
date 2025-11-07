@@ -7,6 +7,6 @@
 
 ---
 
-_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
+_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
 
 ---
