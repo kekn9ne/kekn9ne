@@ -7,6 +7,6 @@
 
 ---
 
-_"The only limits in your life are those that you set yourself. — *Celestine Chua*"_
+_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
 
 ---
