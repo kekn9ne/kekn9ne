@@ -7,6 +7,6 @@
 
 ---
 
-_"Ability is a poor man's wealth. — *John Wooden*"_
+_"It is best to begin at the beginning. — *Amelia Earhart*"_
 
 ---
