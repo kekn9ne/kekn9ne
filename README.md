@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn only how to avoid seeking for and attaching yourselves to anything. — *Huang Po*"_
+_"Comedy = tragedy + time. — *Carol Burnett*"_
 
 ---
