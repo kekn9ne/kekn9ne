@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 07 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Ararsam Gelme** by *Ebru Gündeş* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
+_"The chief danger in life is that you may take too many precautions. — *Alfred Adler*"_
 
 ---
