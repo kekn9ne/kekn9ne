@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 07 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
 
 ---
 
-_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
+_"Never settle for the crumbs of life. — *Og Mandino*"_
 
 ---
