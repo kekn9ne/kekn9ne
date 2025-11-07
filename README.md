@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
