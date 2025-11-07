@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 07 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Çıkmaz Bir Sokakta** by *Semicenk* 🎶
 
 ---
 
-_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
+_"People who say it cannot be done should not interrupt those who are doing it. — *George Bernard Shaw*"_
 
 ---
