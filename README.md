@@ -7,6 +7,6 @@
 
 ---
 
-_"Comedy = tragedy + time. — *Carol Burnett*"_
+_"In order to control myself I must first accept myself by going with and not against my nature. — *Bruce Lee*"_
 
 ---
