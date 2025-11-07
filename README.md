@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in the darkness that one finds the light. — *Meister Eckhart*"_
+_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
 
 ---
