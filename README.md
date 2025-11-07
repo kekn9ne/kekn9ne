@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 08 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
+_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
 
 ---
