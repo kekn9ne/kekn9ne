@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
+_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
 
 ---
