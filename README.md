@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a good animal, true to your instincts. — *D. H. Lawrence*"_
+_"Every act of creation is first an act of destruction. — *Pablo Picasso*"_
 
 ---
