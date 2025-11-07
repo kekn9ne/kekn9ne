@@ -7,6 +7,6 @@
 
 ---
 
-_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
+_"To know even one life has breathed easier because you have lived. This is to have succeeded. — *Ralph Waldo Emerson*"_
 
 ---
