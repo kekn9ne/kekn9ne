@@ -7,6 +7,6 @@
 
 ---
 
-_"It is best to begin at the beginning. — *Amelia Earhart*"_
+_"Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT. — *Deepak Chopra*"_
 
 ---
