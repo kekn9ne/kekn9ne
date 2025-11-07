@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 07 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
+_"Learn only how to avoid seeking for and attaching yourselves to anything. — *Huang Po*"_
 
 ---
