@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
+_"Love doesn't need reason. It speaks from the irrational wisdom of the heart. — *Deepak Chopra*"_
 
 ---
