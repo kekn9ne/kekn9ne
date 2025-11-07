@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"Failure is not fatal, but failure to change might be. — *John Wooden*"_
 
 ---
