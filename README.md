@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing good ever comes of violence. — *Martin Luther*"_
+_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
 
 ---
