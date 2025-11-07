@@ -7,6 +7,6 @@
 
 ---
 
-_"The reward of suffering is experience. — *Harry S. Truman*"_
+_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
 
 ---
