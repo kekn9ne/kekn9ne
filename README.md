@@ -7,6 +7,6 @@
 
 ---
 
-_"The primary point of this existence is to live, and all living things move and grow. — *Ming-Dao Deng*"_
+_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
 
 ---
