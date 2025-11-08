@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. — *Charles Dickens*"_
+_"A little progress each day adds up to big results. — *Unknown*"_
 
 ---
