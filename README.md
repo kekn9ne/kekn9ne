@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember we're all in this alone. — *Lily Tomlin*"_
+_"Conquer the devils with a little thing called love. — *Bob Marley*"_
 
 ---
