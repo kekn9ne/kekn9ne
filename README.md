@@ -7,6 +7,6 @@
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
 
 ---
