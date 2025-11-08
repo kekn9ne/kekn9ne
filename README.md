@@ -7,6 +7,6 @@
 
 ---
 
-_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
+_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
 
 ---
