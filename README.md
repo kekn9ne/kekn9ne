@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
 
 ---
