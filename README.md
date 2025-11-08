@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 08 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **I WANNA DANCE** by *Batuflex* 🎶
+🎧 Currently Listening: **BYE BYE** by *UZI* 🎶
 
 ---
 
-_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
+_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
 
 ---
