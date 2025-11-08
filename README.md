@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 08 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +18°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
