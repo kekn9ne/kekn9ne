@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
+_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
 
 ---
