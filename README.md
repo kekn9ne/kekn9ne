@@ -7,6 +7,6 @@
 
 ---
 
-_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
