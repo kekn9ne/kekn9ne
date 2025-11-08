@@ -7,6 +7,6 @@
 
 ---
 
-_"Once you learn to quit, it becomes a habit. — *Vince Lombardi*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
