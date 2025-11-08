@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Yükseklik Korkusu** by *Nun Sultan* 🎶
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
+_"Keep your face to the sunshine and you cannot see the shadows. — *Helen Keller*"_
 
 ---
