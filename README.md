@@ -7,6 +7,6 @@
 
 ---
 
-_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
+_"Accept responsibility for your life. Know that it is you who will get you where you want to go, no one else. — *Les Brown*"_
 
 ---
