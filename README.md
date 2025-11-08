@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
+_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
 
 ---
