@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a process. We are a process. The universe is a process. — *Anne Wilson Schaef*"_
+_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
 
 ---
