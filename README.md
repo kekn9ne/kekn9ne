@@ -7,6 +7,6 @@
 
 ---
 
-_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
+_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
 
 ---
