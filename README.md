@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Orman** by *Nun Sultan* 🎶
+🎧 Currently Listening: **Yükseklik Korkusu** by *Nun Sultan* 🎶
 
 ---
 
-_"Great deeds are usually wrought at great risks. — *Herodotus*"_
+_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
 
 ---
