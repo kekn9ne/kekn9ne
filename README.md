@@ -7,6 +7,6 @@
 
 ---
 
-_"What kills the creative force is not age or lack of talent, but our own spirit, our own attitude. — *Robert Greene*"_
+_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
 
 ---
