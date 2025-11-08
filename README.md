@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. — *Lao Tzu*"_
 
 ---
