@@ -7,6 +7,6 @@
 
 ---
 
-_"Conquer the devils with a little thing called love. — *Bob Marley*"_
+_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
 
 ---
