@@ -7,6 +7,6 @@
 
 ---
 
-_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
+_"Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives. — *Betty White*"_
 
 ---
