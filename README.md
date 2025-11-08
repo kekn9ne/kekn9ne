@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easier to lose than to win.   — *Wayne Gretzky*"_
+_"A loving heart is the truest wisdom. — *Charles Dickens*"_
 
 ---
