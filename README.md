@@ -7,6 +7,6 @@
 
 ---
 
-_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"The deeper the truth in a creative work, the longer it will live.   — *Charlie Chaplin*"_
 
 ---
