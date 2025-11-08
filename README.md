@@ -7,6 +7,6 @@
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"As you think, so shall you become.  — *Bruce Lee*"_
 
 ---
