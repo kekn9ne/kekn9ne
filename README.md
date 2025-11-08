@@ -7,6 +7,6 @@
 
 ---
 
-_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
+_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
 
 ---
