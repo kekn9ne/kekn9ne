@@ -7,6 +7,6 @@
 
 ---
 
-_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
+_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
 
 ---
