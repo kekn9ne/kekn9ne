@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
+_"Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. — *Steve Jobs*"_
 
 ---
