@@ -7,6 +7,6 @@
 
 ---
 
-_"Misfortune shows those who are not really friends. — *Aristotle*"_
+_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
 
 ---
