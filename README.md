@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 08 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **I WANNA DANCE** by *Batuflex* 🎶
 
 ---
 
-_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
+_"Till it has loved, no man or woman can become itself. — *Emily Dickinson*"_
 
 ---
