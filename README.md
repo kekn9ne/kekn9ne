@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 08 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
+_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
 
 ---
