@@ -7,6 +7,6 @@
 
 ---
 
-_"Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence? — *Sathya Sai Baba*"_
+_"Success on the outside means nothing unless you also have success within. — *Robin Sharma*"_
 
 ---
