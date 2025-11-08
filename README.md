@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, so shall you become.  — *Bruce Lee*"_
+_"Nothing is more real than nothing. — *Samuel Beckett*"_
 
 ---
