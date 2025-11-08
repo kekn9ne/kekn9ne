@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
+_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
 
 ---
