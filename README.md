@@ -7,6 +7,6 @@
 
 ---
 
-_"Success on the outside means nothing unless you also have success within. — *Robin Sharma*"_
+_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
 
 ---
