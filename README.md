@@ -7,6 +7,6 @@
 
 ---
 
-_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
+_"The weak can never forgive. Forgiveness is the attribute of the strong. — *Mahatma Gandhi*"_
 
 ---
