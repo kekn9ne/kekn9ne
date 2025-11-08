@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives. — *Betty White*"_
+_"Once you learn to quit, it becomes a habit. — *Vince Lombardi*"_
 
 ---
