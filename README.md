@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
