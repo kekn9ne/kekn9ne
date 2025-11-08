@@ -7,6 +7,6 @@
 
 ---
 
-_"Victorious warriors win first and then go to war, while defeated warriors go to war first and then seek to win. — *Sun Tzu*"_
+_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
 
 ---
