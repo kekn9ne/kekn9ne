@@ -7,6 +7,6 @@
 
 ---
 
-_"Behind every cloud is another cloud. — *Judy Garland*"_
+_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
 
 ---
