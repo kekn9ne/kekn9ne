@@ -7,6 +7,6 @@
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
 
 ---
