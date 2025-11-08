@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more real than nothing. — *Samuel Beckett*"_
+_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
 
 ---
