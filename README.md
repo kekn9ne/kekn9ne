@@ -7,6 +7,6 @@
 
 ---
 
-_"Your world is a living expression of how you are using and have used your mind. — *Earl Nightingale*"_
+_"Don't be afraid to see what you see. — *Ronald Reagan*"_
 
 ---
