@@ -7,6 +7,6 @@
 
 ---
 
-_"A strong man overcomes an obstacle, a wise man goes the whole way. — *Zen Proverb*"_
+_"What are we doing here, that is the question. — *Samuel Beckett*"_
 
 ---
