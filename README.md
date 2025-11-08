@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your life; you don't need someone's permission to live the life you want. Be brave to live from your heart. — *Roy T. Bennett*"_
+_"It doesn't matter where you are, you are nowhere compared to where you can go. — *Bob Proctor*"_
 
 ---
