@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust thyself: every heart vibrates to that iron string. — *Ralph Waldo Emerson*"_
+_"It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance. — *Kamal Ravikant*"_
 
 ---
