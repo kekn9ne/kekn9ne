@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to see what you see. — *Ronald Reagan*"_
+_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
 
 ---
