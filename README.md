@@ -7,6 +7,6 @@
 
 ---
 
-_"Always remember that you are absolutely unique. Just like everyone else.  — *Margaret Mead*"_
+_"Success is often achieved by those who don't know that failure is inevitable. — *Coco Chanel*"_
 
 ---
