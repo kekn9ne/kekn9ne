@@ -7,6 +7,6 @@
 
 ---
 
-_"What are we doing here, that is the question. — *Samuel Beckett*"_
+_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
 
 ---
