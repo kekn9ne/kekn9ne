@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
 
 ---
