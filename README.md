@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not tell the truth about yourself you cannot tell it about other people. — *Virginia Woolf*"_
+_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
 
 ---
