@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 08 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +19°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
+_"Before you speak, ask yourself, is it kind, is it necessary, is it true, does it improve the silence? — *Sathya Sai Baba*"_
 
 ---
