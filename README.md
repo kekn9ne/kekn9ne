@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 08 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
+_"We love the things we love for what they are. — *Robert Frost*"_
 
 ---
