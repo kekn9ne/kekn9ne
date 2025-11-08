@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is hardest at the beginning, messiest in the middle and best at the end. — *Robin Sharma*"_
+_"It's your outlook on life that counts. — *Betty White*"_
 
 ---
