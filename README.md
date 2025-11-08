@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the size of the dog in the fight, it's the size of the fight in the dog. — *Mark Twain*"_
+_"To be great is to be misunderstood. — *Ralph Waldo Emerson*"_
 
 ---
