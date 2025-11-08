@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easy to wish for health when you're sick.  When you're doing well, you need just as much vigilance. — *Kamal Ravikant*"_
+_"Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on. — *Criss Jami*"_
 
 ---
