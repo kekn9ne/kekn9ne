@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 08 November 2025**  
+🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Orman** by *Nun Sultan* 🎶
 
 ---
 
-_"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose. — *Elbert Hubbard*"_
+_"Great deeds are usually wrought at great risks. — *Herodotus*"_
 
 ---
