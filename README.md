@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
+_"Misfortune shows those who are not really friends. — *Aristotle*"_
 
 ---
