@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"Follow your instincts. That is where true wisdom manifests itself. — *Oprah Winfrey*"_
 
 ---
