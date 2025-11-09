@@ -7,6 +7,6 @@
 
 ---
 
-_"Love your enemies, for they tell you your faults. — *Benjamin Franklin*"_
+_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
 
 ---
