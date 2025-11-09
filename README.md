@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your instincts. That is where true wisdom manifests itself. — *Oprah Winfrey*"_
+_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
 
 ---
