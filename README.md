@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
+_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
 
 ---
