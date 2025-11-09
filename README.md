@@ -7,6 +7,6 @@
 
 ---
 
-_"I have never in my life learned anything from any man who agreed with me. — *Dudley Field Malone*"_
+_"You cannot have a positive life and a negative mind. — *Joyce Meyer*"_
 
 ---
