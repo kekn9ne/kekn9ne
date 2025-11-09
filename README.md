@@ -7,6 +7,6 @@
 
 ---
 
-_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
+_"Great ones are willing to get burned time and again as they sharpen their swords in the fire. — *Josh Waitzkin*"_
 
 ---
