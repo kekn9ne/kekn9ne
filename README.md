@@ -7,6 +7,6 @@
 
 ---
 
-_"Being a good example is the best form of service. — *Sathya Sai Baba*"_
+_"The more we have the less we own. — *Meister Eckhart*"_
 
 ---
