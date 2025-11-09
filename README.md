@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
 
 ---
