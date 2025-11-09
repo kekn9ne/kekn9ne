@@ -7,6 +7,6 @@
 
 ---
 
-_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
+_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
 
 ---
