@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
 
 ---
