@@ -7,6 +7,6 @@
 
 ---
 
-_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
+_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
 
 ---
