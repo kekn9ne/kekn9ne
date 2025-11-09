@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
+_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
 
 ---
