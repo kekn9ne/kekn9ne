@@ -7,6 +7,6 @@
 
 ---
 
-_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
+_"Everyone is a moon, and has a dark side which he never shows to anybody. — *Mark Twain*"_
 
 ---
