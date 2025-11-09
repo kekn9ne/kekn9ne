@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
+_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
 
 ---
