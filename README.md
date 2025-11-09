@@ -7,6 +7,6 @@
 
 ---
 
-_"We think too much and feel too little. — *Charlie Chaplin*"_
+_"You can't wait for inspiration. You have to go after it with a club.  — *Jack London*"_
 
 ---
