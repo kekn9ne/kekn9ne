@@ -7,6 +7,6 @@
 
 ---
 
-_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
+_"Nothing we see or hear is perfect. But right there in the imperfection is perfect reality. — *Shunryu Suzuki*"_
 
 ---
