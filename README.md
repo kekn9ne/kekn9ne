@@ -7,6 +7,6 @@
 
 ---
 
-_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
+_"A golden cage is still just a cage. — *Anita Krizzan*"_
 
 ---
