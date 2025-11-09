@@ -7,6 +7,6 @@
 
 ---
 
-_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
+_"If it is not right, do not do it, if it is not true, do not say it. — *Marcus Aurelius*"_
 
 ---
