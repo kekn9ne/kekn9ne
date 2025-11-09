@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
