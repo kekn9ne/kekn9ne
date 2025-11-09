@@ -7,6 +7,6 @@
 
 ---
 
-_"Great ones are willing to get burned time and again as they sharpen their swords in the fire. — *Josh Waitzkin*"_
+_"You have the ability, now apply yourself. — *Benjamin Mays*"_
 
 ---
