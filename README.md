@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. — *Sydney Smith*"_
 
 ---
