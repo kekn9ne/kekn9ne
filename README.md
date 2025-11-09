@@ -7,6 +7,6 @@
 
 ---
 
-_"The two most powerful warriors are patience and time. — *Leo Tolstoy*"_
+_"Trying to predict the future is like trying to drive down a country road at night with no lights while looking out the back window. — *Peter Drucker*"_
 
 ---
