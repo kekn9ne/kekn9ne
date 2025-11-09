@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 09 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +20°C**  
+🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
+_"Truth is such a rare thing, it is delighted to tell it. — *Emily Dickinson*"_
 
 ---
