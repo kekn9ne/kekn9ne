@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
+_"Being a good example is the best form of service. — *Sathya Sai Baba*"_
 
 ---
