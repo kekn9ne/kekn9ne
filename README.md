@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
+_"Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next. — *Herbert Hoover*"_
 
 ---
