@@ -7,6 +7,6 @@
 
 ---
 
-_"Love the life you live, live the life you love. — *Bob Marley*"_
+_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
 
 ---
