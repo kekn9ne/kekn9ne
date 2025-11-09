@@ -7,6 +7,6 @@
 
 ---
 
-_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
+_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
 
 ---
