@@ -7,6 +7,6 @@
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"We need a backbone, not a wishbone. — *Joyce Meyer*"_
 
 ---
