@@ -7,6 +7,6 @@
 
 ---
 
-_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
+_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
 
 ---
