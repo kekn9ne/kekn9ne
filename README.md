@@ -7,6 +7,6 @@
 
 ---
 
-_"Go confidently in the direction of your dreams. Live the life you've imagined. — *Arnold Schwarzenegger*"_
+_"It is best to begin at the beginning. — *Amelia Earhart*"_
 
 ---
