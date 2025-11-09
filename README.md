@@ -7,6 +7,6 @@
 
 ---
 
-_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
+_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
 
 ---
