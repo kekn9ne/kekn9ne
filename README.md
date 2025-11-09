@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 09 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +17°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
+_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
 
 ---
