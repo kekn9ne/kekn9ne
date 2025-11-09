@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Learn the rules like a pro, so you can break them like an artist. — *Pablo Picasso*"_
+_"In the end, it's not the years in your life that count. It's the life in your years. — *Abraham Lincoln*"_
 
 ---
