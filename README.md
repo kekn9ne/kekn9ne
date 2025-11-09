@@ -7,6 +7,6 @@
 
 ---
 
-_"We need a backbone, not a wishbone. — *Joyce Meyer*"_
+_"Love the life you live, live the life you love. — *Bob Marley*"_
 
 ---
