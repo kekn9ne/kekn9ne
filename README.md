@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
+🎧 Currently Listening: **dolu sigarayı ters tut** by *EGE!* 🎶
 
 ---
 
-_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
+_"Learn the rules like a pro, so you can break them like an artist. — *Pablo Picasso*"_
 
 ---
