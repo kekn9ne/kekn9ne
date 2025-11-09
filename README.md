@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
+_"The more tranquil a man becomes, the greater is his success, his influence, his power for good. Calmness of mind is one of the beautiful jewels of wisdom. — *James Allen*"_
 
 ---
