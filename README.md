@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is the true magic carpet. — *Norman Vincent Peale*"_
+_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
 
 ---
