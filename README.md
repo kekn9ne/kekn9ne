@@ -7,6 +7,6 @@
 
 ---
 
-_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
+_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
 
 ---
