@@ -7,6 +7,6 @@
 
 ---
 
-_"When you stop questioning, you stop learning. — *Lolly Daskal*"_
+_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
 
 ---
