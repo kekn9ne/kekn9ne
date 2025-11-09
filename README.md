@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
+_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
 
 ---
