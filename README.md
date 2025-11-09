@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
+_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
 
 ---
