@@ -7,6 +7,6 @@
 
 ---
 
-_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
+_"Go confidently in the direction of your dreams. Live the life you've imagined. — *Arnold Schwarzenegger*"_
 
 ---
