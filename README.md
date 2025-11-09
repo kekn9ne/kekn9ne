@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 09 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +21°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Hayirli Günler 2.0** by *Orcun Millions* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
+_"What most people need to learn in life is how to love people and use things instead of using people and loving things. — *Unknown*"_
 
 ---
