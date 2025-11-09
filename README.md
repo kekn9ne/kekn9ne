@@ -7,6 +7,6 @@
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
 
 ---
