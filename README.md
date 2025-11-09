@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
+_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
 
 ---
