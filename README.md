@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
+_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
 
 ---
