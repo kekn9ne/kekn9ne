@@ -7,6 +7,6 @@
 
 ---
 
-_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
+_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
 
 ---
