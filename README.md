@@ -7,6 +7,6 @@
 
 ---
 
-_"If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. — *Theodore Roosevelt*"_
+_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
 
 ---
