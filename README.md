@@ -7,6 +7,6 @@
 
 ---
 
-_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
+_"The ladder of success is best climbed by stepping on the rungs of opportunity. — *Ayn Rand*"_
 
 ---
