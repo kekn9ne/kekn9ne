@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 09 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
 
 ---
 
-_"What most people need to learn in life is how to love people and use things instead of using people and loving things. — *Unknown*"_
+_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
 
 ---
