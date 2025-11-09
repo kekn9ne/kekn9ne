@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
+_"To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead. — *Samuel Butler*"_
 
 ---
