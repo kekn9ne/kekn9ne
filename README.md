@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
+_"The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. — *Sathya Sai Baba*"_
 
 ---
