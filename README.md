@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
+_"Invisible things are the only realities. — *Edgar Allan Poe*"_
 
 ---
