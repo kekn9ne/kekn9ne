@@ -7,6 +7,6 @@
 
 ---
 
-_"The reward of suffering is experience. — *Harry S. Truman*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
