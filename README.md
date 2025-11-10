@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 10 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ve Diğerleri** by *Nun Sultan* 🎶
 
 ---
 
-_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
+_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
 
 ---
