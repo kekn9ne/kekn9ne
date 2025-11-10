@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
+_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
 
 ---
