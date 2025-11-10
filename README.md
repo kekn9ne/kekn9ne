@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 10 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +22°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **kum saati** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
 
 ---
