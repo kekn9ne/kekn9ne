@@ -7,6 +7,6 @@
 
 ---
 
-_"People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — *Zig Ziglar*"_
+_"Don't ever save anything for a special occasion. Being alive is the special occasion. — *Mary Engelbreit*"_
 
 ---
