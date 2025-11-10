@@ -7,6 +7,6 @@
 
 ---
 
-_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
+_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
 
 ---
