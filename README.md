@@ -7,6 +7,6 @@
 
 ---
 
-_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
+_"Make your stand today. On this spot. On this day. — *Ming-Dao Deng*"_
 
 ---
