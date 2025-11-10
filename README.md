@@ -7,6 +7,6 @@
 
 ---
 
-_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
+_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
 
 ---
