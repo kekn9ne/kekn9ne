@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is gone. Tomorrow has not yet come. We have only today. — *Mother Teresa*"_
+_"An investment in knowledge pays the best interest. — *Benjamin Franklin*"_
 
 ---
