@@ -7,6 +7,6 @@
 
 ---
 
-_"We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right. — *Sonia Ricotti*"_
+_"Things may come to those who wait, but only the things left by those who hustle. — *Abraham Lincoln*"_
 
 ---
