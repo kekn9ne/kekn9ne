@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 10 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +20°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
+_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
 
 ---
