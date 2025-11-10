@@ -7,6 +7,6 @@
 
 ---
 
-_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
+_"Fear is stupid. So are regrets. — *Marilyn Monroe*"_
 
 ---
