@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're not making mistakes, then you're not doing anything. — *John Wooden*"_
+_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
 
 ---
