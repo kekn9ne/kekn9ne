@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
+_"Nothing will work unless you do. — *Maya Angelou*"_
 
 ---
