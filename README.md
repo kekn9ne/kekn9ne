@@ -7,6 +7,6 @@
 
 ---
 
-_"Live simply, expect little, give much. — *Norman Vincent Peale*"_
+_"Go for it now. The future is promised to no one.  — *Wayne Dyer*"_
 
 ---
