@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose. — *Elbert Hubbard*"_
+_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
 
 ---
