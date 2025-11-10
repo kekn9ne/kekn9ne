@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 10 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +21°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kimler Kimler** by *Melis Fis* 🎶
 
 ---
 
-_"In three words I can sum up everything I've learned about life: it goes on. — *Robert Frost*"_
+_"Life doesn't get easier or more forgiving, we get stronger and more resilient. — *Steve Maraboli*"_
 
 ---
