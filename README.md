@@ -7,6 +7,6 @@
 
 ---
 
-_"Things may come to those who wait, but only the things left by those who hustle. — *Abraham Lincoln*"_
+_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
 
 ---
