@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. — *Charles Dickens*"_
+_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
 
 ---
