@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 10 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +20°C**  
+🌤️ Weather in Istanbul: **☁️   +20°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it. — *Celestine Chua*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
