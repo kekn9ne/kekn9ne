@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is destiny. — *Heraclitus*"_
+_"Failure is just information and an opportunity to change your course. — *Oprah Winfrey*"_
 
 ---
