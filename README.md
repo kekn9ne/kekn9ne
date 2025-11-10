@@ -7,6 +7,6 @@
 
 ---
 
-_"Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along. — *Celestine Chua*"_
+_"It is not fair to ask of others what you are not willing to do yourself. — *Eleanor Roosevelt*"_
 
 ---
