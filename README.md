@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
+_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
 
 ---
