@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 10 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Ve Diğerleri** by *Nun Sultan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
+_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
 
 ---
