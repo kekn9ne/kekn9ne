@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"In three words I can sum up everything I've learned about life: it goes on. — *Robert Frost*"_
 
 ---
