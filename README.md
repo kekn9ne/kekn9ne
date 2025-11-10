@@ -7,6 +7,6 @@
 
 ---
 
-_"Go for it now. The future is promised to no one.  — *Wayne Dyer*"_
+_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
 
 ---
