@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. — *Sathya Sai Baba*"_
+_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
 
 ---
