@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
+_"The greatest step towards a life of simplicity is to learn to let go. — *Steve Maraboli*"_
 
 ---
