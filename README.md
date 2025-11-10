@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
+_"You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give. — *Eleanor Roosevelt*"_
 
 ---
