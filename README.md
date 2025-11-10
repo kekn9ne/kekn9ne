@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity is relative. It depends on who has who locked in what cage.   — *Ray Bradbury*"_
+_"Instead of thinking about what you are going to do when you retire, think about how you can do that now and make a living from it. — *Celestine Chua*"_
 
 ---
