@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing has any power over me other than that which I give it through my conscious thoughts. — *Tony Robbins*"_
+_"Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. — *Charles Dickens*"_
 
 ---
