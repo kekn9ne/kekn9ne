@@ -7,6 +7,6 @@
 
 ---
 
-_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
+_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
 
 ---
