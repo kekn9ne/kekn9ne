@@ -7,6 +7,6 @@
 
 ---
 
-_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right. — *Sonia Ricotti*"_
 
 ---
