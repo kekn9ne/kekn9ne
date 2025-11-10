@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
+_"To wish you were someone else is to waste the person you are. — *Unknown*"_
 
 ---
