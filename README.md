@@ -7,6 +7,6 @@
 
 ---
 
-_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
+_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
 
 ---
