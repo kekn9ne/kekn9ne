@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 10 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +22°C**  
+🌤️ Weather in Istanbul: **⛅️  +20°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"An investment in knowledge pays the best interest. — *Benjamin Franklin*"_
+_"People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — *Zig Ziglar*"_
 
 ---
