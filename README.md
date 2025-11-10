@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
+_"Walk slowly but never walk backward. — *Unknown*"_
 
 ---
