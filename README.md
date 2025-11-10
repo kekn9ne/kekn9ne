@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 10 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +20°C**  
+🌤️ Weather in Istanbul: **⛅️  +21°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The only person you should try to be better than is the person you were yesterday. — *Brian Tracy*"_
+_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
 
 ---
