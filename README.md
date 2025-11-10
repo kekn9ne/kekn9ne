@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost. — *Franz Kafka*"_
+_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
 
 ---
