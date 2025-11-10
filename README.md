@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
+_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
 
 ---
