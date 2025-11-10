@@ -7,6 +7,6 @@
 
 ---
 
-_"You will not do incredible things without an incredible dream. — *John Eliot*"_
+_"If you're not making mistakes, then you're not doing anything. — *John Wooden*"_
 
 ---
