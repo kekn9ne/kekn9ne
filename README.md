@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 10 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +16°C**  
+🌤️ Weather in Istanbul: **☁️   +15°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Walk slowly but never walk backward. — *Unknown*"_
+_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
 
 ---
