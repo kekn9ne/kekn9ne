@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot have a positive life and a negative mind. — *Joyce Meyer*"_
+_"You are free, and that is why you are lost. — *Franz Kafka*"_
 
 ---
