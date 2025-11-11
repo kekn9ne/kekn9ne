@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 11 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Ah Sarılar Vah Sarışınlar 3.0** by *Ufuk KAPLAN* 🎶
+🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
 
 ---
 
-_"We will outstretch the hand if you unclench your fist. — *Barack Obama*"_
+_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
 
 ---
