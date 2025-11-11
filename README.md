@@ -7,6 +7,6 @@
 
 ---
 
-_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
+_"You can never get enough of what you don't need to make you happy. — *Eric Hoffer*"_
 
 ---
