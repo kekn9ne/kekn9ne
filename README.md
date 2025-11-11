@@ -7,6 +7,6 @@
 
 ---
 
-_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
+_"If you try to micromanage yourself all you're going to do is make yourself miserable. — *Naval Ravikant*"_
 
 ---
