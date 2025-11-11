@@ -7,6 +7,6 @@
 
 ---
 
-_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
+_"Just do what must be done. This may not be happiness but it is greatness. — *George Bernard Shaw*"_
 
 ---
