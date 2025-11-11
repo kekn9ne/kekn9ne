@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 11 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
+🎧 Currently Listening: **6.4 MM** by *UZI* 🎶
 
 ---
 
-_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
+_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
 
 ---
