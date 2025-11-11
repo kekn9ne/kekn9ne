@@ -7,6 +7,6 @@
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. — *Theodore Roosevelt*"_
 
 ---
