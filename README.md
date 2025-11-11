@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
