@@ -7,6 +7,6 @@
 
 ---
 
-_"Loving thoughts and actions are clearly beneficial for our physical and mental health. — *Dalai Lama*"_
+_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
 
 ---
