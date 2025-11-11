@@ -7,6 +7,6 @@
 
 ---
 
-_"When something is important enough, you do it even if the odds are not in your favor. — *Elon Musk*"_
+_"I'm not afraid of death, but I'm in no hurry to die. — *Stephen Hawking*"_
 
 ---
