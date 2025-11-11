@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is like money, easier made than kept. — *Samuel Butler*"_
+_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
 
 ---
