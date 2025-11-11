@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day a new horizon. — *Christopher McCandless*"_
+_"Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. — *Dale Carnegie*"_
 
 ---
