@@ -7,6 +7,6 @@
 
 ---
 
-_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
+_"Everybody needs a passion. That's what keeps life interesting. — *Betty White*"_
 
 ---
