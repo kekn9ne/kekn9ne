@@ -7,6 +7,6 @@
 
 ---
 
-_"One loyal friend is worth ten thousand relatives. — *Euripides*"_
+_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
 
 ---
