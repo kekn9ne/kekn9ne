@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Gözler** by *cakal* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
+_"One loyal friend is worth ten thousand relatives. — *Euripides*"_
 
 ---
