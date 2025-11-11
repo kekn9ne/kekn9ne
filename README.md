@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 11 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +19°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
+_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
 
 ---
