@@ -7,6 +7,6 @@
 
 ---
 
-_"Vision is the art of seeing things invisible. — *Jonathan Swift*"_
+_"The future is the worst thing about the present. — *Gustave Flaubert*"_
 
 ---
