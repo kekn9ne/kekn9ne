@@ -7,6 +7,6 @@
 
 ---
 
-_"Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity. — *Og Mandino*"_
+_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
 
 ---
