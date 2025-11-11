@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Toroslu Yollar 2.0** by *ronixd* 🎶
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"How people treat you is their karma; how you react is yours.  — *Wayne Dyer*"_
+_"If your happiness depends on what somebody else does, I guess you do have a problem. — *Richard Bach*"_
 
 ---
