@@ -7,6 +7,6 @@
 
 ---
 
-_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
+_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
 
 ---
