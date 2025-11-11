@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is the worst thing about the present. — *Gustave Flaubert*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
