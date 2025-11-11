@@ -7,6 +7,6 @@
 
 ---
 
-_"When you make a choice, you change the future. — *Deepak Chopra*"_
+_"If you genuinely want something, don't wait for it - teach yourself. — *Gurbaksh Chahal*"_
 
 ---
