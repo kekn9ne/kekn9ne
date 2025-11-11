@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
 
 ---
