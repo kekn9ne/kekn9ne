@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can only be understood backwards; but it must be lived forwards. — *Soren Kierkegaard*"_
+_"The quieter you become, the more you are able to hear. — *Rumi*"_
 
 ---
