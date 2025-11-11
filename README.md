@@ -7,6 +7,6 @@
 
 ---
 
-_"An ounce of performance is worth pounds of promises. — *Mae West*"_
+_"He who leaves the game wins it. — *Nicolas Chamfort*"_
 
 ---
