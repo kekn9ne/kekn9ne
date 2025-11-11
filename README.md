@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence comes from crossing thresholds. — *Kamal Ravikant*"_
+_"When you make a choice, you change the future. — *Deepak Chopra*"_
 
 ---
