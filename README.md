@@ -7,6 +7,6 @@
 
 ---
 
-_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
+_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
 
 ---
