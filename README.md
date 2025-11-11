@@ -7,6 +7,6 @@
 
 ---
 
-_"Who you are is defined by what you're willing to struggle for. — *Mark Manson*"_
+_"I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves. — *Steve Maraboli*"_
 
 ---
