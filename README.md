@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 11 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **SAFI / TMM** by *DJEZJA* 🎶
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
+_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
 
 ---
