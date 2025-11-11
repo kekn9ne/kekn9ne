@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
+_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
 
 ---
