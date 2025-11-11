@@ -7,6 +7,6 @@
 
 ---
 
-_"The quieter you become, the more you are able to hear. — *Rumi*"_
+_"Out of your vulnerabilities will come your strength. — *Sigmund Freud*"_
 
 ---
