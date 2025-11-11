@@ -7,6 +7,6 @@
 
 ---
 
-_"Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. — *Dale Carnegie*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
