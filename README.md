@@ -7,6 +7,6 @@
 
 ---
 
-_"Words, once they are printed, have a life of their own. — *Carol Burnett*"_
+_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
 
 ---
