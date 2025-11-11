@@ -7,6 +7,6 @@
 
 ---
 
-_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
+_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
 
 ---
