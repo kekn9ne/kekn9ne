@@ -7,6 +7,6 @@
 
 ---
 
-_"If you genuinely want something, don't wait for it - teach yourself. — *Gurbaksh Chahal*"_
+_"Those who seek the easy way do not seek the true way. — *Dogen*"_
 
 ---
