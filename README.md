@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm not afraid of death, but I'm in no hurry to die. — *Stephen Hawking*"_
+_"The best answer to anger is silence. — *Marcus Aurelius*"_
 
 ---
