@@ -7,6 +7,6 @@
 
 ---
 
-_"You can never get enough of what you don't need to make you happy. — *Eric Hoffer*"_
+_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
 
 ---
