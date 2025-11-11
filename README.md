@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Bunu Sen Seçtin** by *Sokrat St* 🎶
+🎧 Currently Listening: **Düşledim** by *Ati242* 🎶
 
 ---
 
-_"On the other side of the clouds is a bright blue sky. — *Unknown*"_
+_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
 
 ---
