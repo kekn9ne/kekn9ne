@@ -7,6 +7,6 @@
 
 ---
 
-_"I find the best way to love someone is not to change them, but instead, help them reveal the greatest version of themselves. — *Steve Maraboli*"_
+_"Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — *Morihei Ueshiba*"_
 
 ---
