@@ -7,6 +7,6 @@
 
 ---
 
-_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
+_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
 
 ---
