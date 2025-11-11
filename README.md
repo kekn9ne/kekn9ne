@@ -7,6 +7,6 @@
 
 ---
 
-_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
+_"Friendship is like money, easier made than kept. — *Samuel Butler*"_
 
 ---
