@@ -7,6 +7,6 @@
 
 ---
 
-_"Only when I fall do I get up again. — *Vincent van Gogh*"_
+_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
 
 ---
