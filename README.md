@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — *Morihei Ueshiba*"_
+_"Old age is like everything else. To make a success of it, you've got to start young. — *Theodore Roosevelt*"_
 
 ---
