@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 11 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"We create the world and ourselves; — *Ming-Dao Deng*"_
+_"For fast-acting relief try slowing down. — *Lily Tomlin*"_
 
 ---
