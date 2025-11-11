@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody needs a passion. That's what keeps life interesting. — *Betty White*"_
+_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
 
 ---
