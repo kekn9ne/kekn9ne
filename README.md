@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 11 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İstanbul** by *Cash Flow* 🎶
 
 ---
 
-_"If you try to micromanage yourself all you're going to do is make yourself miserable. — *Naval Ravikant*"_
+_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
 
 ---
