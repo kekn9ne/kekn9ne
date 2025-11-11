@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 11 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SAFI / TMM** by *DJEZJA* 🎶
 
 ---
 
-_"Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more. — *Tony Robbins*"_
+_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
 
 ---
