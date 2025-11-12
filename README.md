@@ -7,6 +7,6 @@
 
 ---
 
-_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
+_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
 
 ---
