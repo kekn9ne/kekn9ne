@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather die on my feet than live on my knees. — *Euripides*"_
+_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
 
 ---
