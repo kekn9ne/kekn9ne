@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
+_"Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness. — *Eckhart Tolle*"_
 
 ---
