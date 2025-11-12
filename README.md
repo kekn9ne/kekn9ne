@@ -7,6 +7,6 @@
 
 ---
 
-_"It is amazing what you can accomplish if you do not care who gets the credit. — *Harry S. Truman*"_
+_"When you want something in life, you just gotta reach out and grab it. — *Christopher McCandless*"_
 
 ---
