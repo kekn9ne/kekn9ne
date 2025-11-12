@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
 
 ---
