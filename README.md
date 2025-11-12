@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"How much pain they have cost us, the evils which have never happened. — *Thomas Jefferson*"_
+_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
 
 ---
