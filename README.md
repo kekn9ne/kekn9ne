@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
+_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
 
 ---
