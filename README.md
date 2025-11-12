@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
+_"Enjoy life. There's plenty of time to be dead. — *Hans Christian Andersen*"_
 
 ---
