@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: **8 (2.5)** by *Keişan* 🎶
 
 ---
 
-_"Yesterday is history, tomorrow is a mystery, today is God's gift, that's why we call it the present. — *Joan Rivers*"_
+_"How much pain they have cost us, the evils which have never happened. — *Thomas Jefferson*"_
 
 ---
