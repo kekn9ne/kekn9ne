@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
+_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
 
 ---
