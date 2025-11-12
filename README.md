@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 12 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Being spiritual has nothing to do with what you believe and everything to do with your state of consciousness. — *Eckhart Tolle*"_
+_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
 
 ---
