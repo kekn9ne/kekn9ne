@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the expansion of happiness. — *Deepak Chopra*"_
+_"Nothing endures but change. — *Heraclitus*"_
 
 ---
