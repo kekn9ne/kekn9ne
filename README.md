@@ -7,6 +7,6 @@
 
 ---
 
-_"At first dreams seem impossible, then improbable, then inevitable. — *Christopher Reeve*"_
+_"Fools read fast. Geniuses reread. — *Maxime Lagace*"_
 
 ---
