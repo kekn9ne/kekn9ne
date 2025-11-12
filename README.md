@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
+_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
 
 ---
