@@ -7,6 +7,6 @@
 
 ---
 
-_"Behind every beautiful thing, there's some kind of pain. — *Bob Dylan*"_
+_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
 
 ---
