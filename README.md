@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
+🎧 Currently Listening: **YALAN DÜNYA** by *UZI* 🎶
 
 ---
 
-_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
+_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
 
 ---
