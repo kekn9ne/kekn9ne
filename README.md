@@ -7,6 +7,6 @@
 
 ---
 
-_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
+_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
 
 ---
