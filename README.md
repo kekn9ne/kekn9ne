@@ -7,6 +7,6 @@
 
 ---
 
-_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
+_"At first dreams seem impossible, then improbable, then inevitable. — *Christopher Reeve*"_
 
 ---
