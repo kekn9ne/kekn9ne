@@ -7,6 +7,6 @@
 
 ---
 
-_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
+_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
 
 ---
