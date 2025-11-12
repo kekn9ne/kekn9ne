@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"Through discipline comes freedom. — *Aristotle*"_
 
 ---
