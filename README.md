@@ -7,6 +7,6 @@
 
 ---
 
-_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
+_"I would rather die on my feet than live on my knees. — *Euripides*"_
 
 ---
