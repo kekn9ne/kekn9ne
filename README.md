@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest room in the world is the room for improvement. — *Unknown*"_
+_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
 
 ---
