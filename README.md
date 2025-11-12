@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
+_"Don't settle, and don't struggle. — *Naval Ravikant*"_
 
 ---
