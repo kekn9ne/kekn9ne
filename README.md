@@ -7,6 +7,6 @@
 
 ---
 
-_"Be thankful for everything that happens in your life; it's all an experience. — *Roy T. Bennett*"_
+_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
 
 ---
