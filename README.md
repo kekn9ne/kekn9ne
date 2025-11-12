@@ -7,6 +7,6 @@
 
 ---
 
-_"One never does wrong by doing right. — *Norman Vincent Peale*"_
+_"It is amazing what you can accomplish if you do not care who gets the credit. — *Harry S. Truman*"_
 
 ---
