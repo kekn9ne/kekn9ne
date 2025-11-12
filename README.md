@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 12 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People inspire you, or they drain you. Pick them wisely. — *Les Brown*"_
+_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
 
 ---
