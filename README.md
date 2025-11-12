@@ -7,6 +7,6 @@
 
 ---
 
-_"Be still when you have nothing to say; when genuine passion moves you, say what you've got to say, and say it hot. — *D. H. Lawrence*"_
+_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
 
 ---
