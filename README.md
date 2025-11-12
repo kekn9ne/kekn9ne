@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't settle, and don't struggle. — *Naval Ravikant*"_
+_"The purpose of life is the expansion of happiness. — *Deepak Chopra*"_
 
 ---
