@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
