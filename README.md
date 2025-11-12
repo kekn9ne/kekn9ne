@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BANA GÖNDER!** by *Lvbel C5* 🎶
 
 ---
 
-_"They say love is the best investment; the more you give, the more you get in return. — *Audrey Hepburn*"_
+_"All wealth is the product of labor. — *John Locke*"_
 
 ---
