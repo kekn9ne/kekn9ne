@@ -7,6 +7,6 @@
 
 ---
 
-_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
+_"Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner. — *Arnold Schwarzenegger*"_
 
 ---
