@@ -7,6 +7,6 @@
 
 ---
 
-_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
+_"A person is only by the thoughts that he chooses. — *James Allen*"_
 
 ---
