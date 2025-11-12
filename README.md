@@ -7,6 +7,6 @@
 
 ---
 
-_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
+_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
 
 ---
