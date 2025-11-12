@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **BANA GÖNDER!** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"All wealth is the product of labor. — *John Locke*"_
+_"Remember, hope is a good thing, maybe the best of things. — *Stephen King*"_
 
 ---
