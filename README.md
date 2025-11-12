@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
+_"What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people. — *Jack Butcher*"_
 
 ---
