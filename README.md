@@ -7,6 +7,6 @@
 
 ---
 
-_"If you see someone without a smile give them one of yours. — *Unknown*"_
+_"Life is not meant to be easy my child, but take courage: it can be delightful. — *George Bernard Shaw*"_
 
 ---
