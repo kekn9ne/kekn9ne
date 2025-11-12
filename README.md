@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
+_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
 
 ---
