@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing makes a man broad-minded like adversity. — *Will Rogers*"_
+_"People inspire you, or they drain you. Pick them wisely. — *Les Brown*"_
 
 ---
