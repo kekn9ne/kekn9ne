@@ -7,6 +7,6 @@
 
 ---
 
-_"A person is only by the thoughts that he chooses. — *James Allen*"_
+_"Behind every beautiful thing, there's some kind of pain. — *Bob Dylan*"_
 
 ---
