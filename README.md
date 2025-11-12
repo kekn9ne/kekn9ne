@@ -7,6 +7,6 @@
 
 ---
 
-_"What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people. — *Jack Butcher*"_
+_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
 
 ---
