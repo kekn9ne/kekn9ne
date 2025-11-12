@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 12 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **☁️   +14°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Do not ignore your gift. Your gift is the thing you do the absolute best with the least amount of effort. — *Steve Harvey*"_
+_"Nothing makes a man broad-minded like adversity. — *Will Rogers*"_
 
 ---
