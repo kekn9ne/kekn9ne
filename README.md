@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 12 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **YAŞANMADI SAY** by *Chiko* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Peaceful is the one who expects nothing. — *Maxime Lagace*"_
+_"The sweetest pleasure arises from difficulties overcome. — *Publilius Syrus*"_
 
 ---
