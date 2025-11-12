@@ -7,6 +7,6 @@
 
 ---
 
-_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
+_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
 
 ---
