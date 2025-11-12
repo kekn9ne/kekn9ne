@@ -7,6 +7,6 @@
 
 ---
 
-_"Positive thinking can be contagious. Being surrounded by winners helps you develop into a winner. — *Arnold Schwarzenegger*"_
+_"Be thankful for everything that happens in your life; it's all an experience. — *Roy T. Bennett*"_
 
 ---
