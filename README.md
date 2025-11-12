@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember, hope is a good thing, maybe the best of things. — *Stephen King*"_
+_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
 
 ---
