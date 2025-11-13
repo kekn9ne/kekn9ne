@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't worry about being successful, but work toward being significant and the success will naturally follow. — *Oprah Winfrey*"_
+_"The meaning of life is that it stops. — *Franz Kafka*"_
 
 ---
