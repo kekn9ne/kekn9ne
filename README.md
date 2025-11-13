@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
