@@ -7,6 +7,6 @@
 
 ---
 
-_"To be fully alive, fully human, and completely awake is to be continually thrown out of the nest. — *Pema Chodron*"_
+_"Go for it now. The future is promised to no one. — *Wayne Dyer*"_
 
 ---
