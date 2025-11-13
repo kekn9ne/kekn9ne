@@ -7,6 +7,6 @@
 
 ---
 
-_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
+_"Take away love and our earth is a tomb. — *Robert Browning*"_
 
 ---
