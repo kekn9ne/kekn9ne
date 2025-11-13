@@ -7,6 +7,6 @@
 
 ---
 
-_"You may forget with whom you laughed, but you will never forget with whom you wept.   — *Kahlil Gibran*"_
+_"Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace. — *Earl Nightingale*"_
 
 ---
