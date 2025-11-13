@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less. — *Dan Millman*"_
+_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. — *Henry Ford*"_
 
 ---
