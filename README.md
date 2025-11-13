@@ -7,6 +7,6 @@
 
 ---
 
-_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
