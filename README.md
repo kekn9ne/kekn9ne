@@ -7,6 +7,6 @@
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"In order to carry a positive action, we must develop here a positive vision. — *Dalai Lama*"_
 
 ---
