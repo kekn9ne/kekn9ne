@@ -7,6 +7,6 @@
 
 ---
 
-_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
+_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
 
 ---
