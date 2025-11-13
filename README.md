@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 13 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **CINDY** by *UZI* 🎶
 
 ---
 
-_"Act the way you want to be and soon you'll be the way you act. — *Les Brown*"_
+_"Where there is anger, there is always pain underneath. — *Eckhart Tolle*"_
 
 ---
