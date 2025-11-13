@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you do, not what you say you'll do. — *Carl Jung*"_
+_"Integrity is the ability to stand by an idea. — *Ayn Rand*"_
 
 ---
