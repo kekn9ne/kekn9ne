@@ -7,6 +7,6 @@
 
 ---
 
-_"To be happy we need something to solve. Happiness is therefore a form of action. — *Mark Manson*"_
+_"No matter how smart we may think we are, no matter how committed we are to our truth, we can lose our way. — *Kamal Ravikant*"_
 
 ---
