@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there is anger, there is always pain underneath. — *Eckhart Tolle*"_
+_"The only people without problems are those in cemeteries. — *Tony Robbins*"_
 
 ---
