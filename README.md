@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 13 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
 
 ---
 
-_"Realistic people do not accomplish extraordinary things. — *John Eliot*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
