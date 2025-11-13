@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 13 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **CINDY** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The only people without problems are those in cemeteries. — *Tony Robbins*"_
+_"What are we doing here, that is the question. — *Samuel Beckett*"_
 
 ---
