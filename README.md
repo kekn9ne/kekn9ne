@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 13 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Tozdan Kaleler** by *Atlas* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"I don't pretend to know everything; I just only speak on matters I know I'll win. — *Criss Jami*"_
 
 ---
