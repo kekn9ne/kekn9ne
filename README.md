@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
+_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
 
 ---
