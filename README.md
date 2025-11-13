@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
 
 ---
