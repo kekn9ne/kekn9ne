@@ -7,6 +7,6 @@
 
 ---
 
-_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
+_"Tradition is the illusion of permanence.  — *Woody Allen*"_
 
 ---
