@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 13 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Love is not about possession. Love is about appreciation. — *Osho*"_
+_"To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead. — *Samuel Butler*"_
 
 ---
