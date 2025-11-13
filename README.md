@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
+_"Deliberately seek the company of people who influence you to think and act on building the life you desire. — *Napoleon Hill*"_
 
 ---
