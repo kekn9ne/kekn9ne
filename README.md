@@ -7,6 +7,6 @@
 
 ---
 
-_"What loneliness is more lonely than distrust? — *George Eliot*"_
+_"Just get out and do it. You will be very, very glad that you did. — *Christopher McCandless*"_
 
 ---
