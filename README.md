@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"Convinced myself, I seek not to convince. — *Edgar Allan Poe*"_
 
 ---
