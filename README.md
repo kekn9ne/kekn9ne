@@ -7,6 +7,6 @@
 
 ---
 
-_"You win more from losing than winning. — *Morgan Wootten*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
