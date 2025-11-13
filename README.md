@@ -7,6 +7,6 @@
 
 ---
 
-_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
+_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
 
 ---
