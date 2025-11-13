@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 13 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Mani** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
+_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
 
 ---
