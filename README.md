@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is that it stops. — *Franz Kafka*"_
+_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
 
 ---
