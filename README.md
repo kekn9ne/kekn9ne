@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not tell the truth about yourself you cannot tell it about other people. — *Virginia Woolf*"_
+_"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — *Henry Ward Beecher*"_
 
 ---
