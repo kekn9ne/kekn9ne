@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 13 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **ABBAS - Hood Trap Remix** by *Kava* 🎶
+🎧 Currently Listening: **Mani** by *Ceg* 🎶
 
 ---
 
-_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
+_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
 
 ---
