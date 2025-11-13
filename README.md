@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is inevitable but personal growth is a choice. — *Bob Proctor*"_
+_"Act the way you want to be and soon you'll be the way you act. — *Les Brown*"_
 
 ---
