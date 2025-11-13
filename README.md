@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy life. There's plenty of time to be dead. — *Hans Christian Andersen*"_
+_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
 
 ---
