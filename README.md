@@ -7,6 +7,6 @@
 
 ---
 
-_"Change yourself - you are in control. — *Mahatma Gandhi*"_
+_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
 
 ---
