@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no way to happiness - happiness is the way. — *Thich Nhat Hanh*"_
+_"To be happy we need something to solve. Happiness is therefore a form of action. — *Mark Manson*"_
 
 ---
