@@ -7,6 +7,6 @@
 
 ---
 
-_"Take away love and our earth is a tomb. — *Robert Browning*"_
+_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
 
 ---
