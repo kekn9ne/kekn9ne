@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more quarrels smothered by just shutting your mouth, and holding it shut, than by all the wisdom in the world. — *Henry Ward Beecher*"_
+_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
 
 ---
