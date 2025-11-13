@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less. — *Dan Millman*"_
 
 ---
