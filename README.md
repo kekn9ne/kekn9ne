@@ -7,6 +7,6 @@
 
 ---
 
-_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it. — *Henry Ford*"_
+_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
 
 ---
