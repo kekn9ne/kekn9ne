@@ -7,6 +7,6 @@
 
 ---
 
-_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
+_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
 
 ---
