@@ -7,6 +7,6 @@
 
 ---
 
-_"When you're the only sane person, you look like the only insane person. — *Criss Jami*"_
+_"There is no way to happiness - happiness is the way. — *Thich Nhat Hanh*"_
 
 ---
