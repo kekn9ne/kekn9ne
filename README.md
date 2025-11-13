@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to be looked over than overlooked. — *Mae West*"_
+_"Realistic people do not accomplish extraordinary things. — *John Eliot*"_
 
 ---
