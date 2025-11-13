@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"What loneliness is more lonely than distrust? — *George Eliot*"_
 
 ---
