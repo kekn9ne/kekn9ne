@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 13 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **PAHALI ve KALİTELİ** by *Organize* 🎶
 
 ---
 
-_"What are we doing here, that is the question. — *Samuel Beckett*"_
+_"Darkness is the absence of light. — *Kamal Ravikant*"_
 
 ---
