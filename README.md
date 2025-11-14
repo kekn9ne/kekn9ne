@@ -7,6 +7,6 @@
 
 ---
 
-_"What you become is far more important than what you get. — *Jim Rohn*"_
+_"The best way to understanding is a few good examples. — *Isaac Newton*"_
 
 ---
