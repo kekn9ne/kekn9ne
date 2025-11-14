@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot find peace avoiding life. — *Virginia Woolf*"_
+_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
 
 ---
