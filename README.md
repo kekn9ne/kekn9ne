@@ -7,6 +7,6 @@
 
 ---
 
-_"A life without a cause is a life without effect. — *Paulo Coelho*"_
+_"Plants grow weak without wind. — *Maxime Lagace*"_
 
 ---
