@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
