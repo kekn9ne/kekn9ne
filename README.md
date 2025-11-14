@@ -7,6 +7,6 @@
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
