@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is love and love is life. — *Elvis Presley*"_
+_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
 
 ---
