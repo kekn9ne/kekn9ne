@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
+_"You cannot find peace avoiding life. — *Virginia Woolf*"_
 
 ---
