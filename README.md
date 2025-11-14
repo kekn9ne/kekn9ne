@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
+_"Life is love and love is life. — *Elvis Presley*"_
 
 ---
