@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
+_"If we all did the things we are capable of doing, we would literally astound ourselves. — *Thomas Edison*"_
 
 ---
