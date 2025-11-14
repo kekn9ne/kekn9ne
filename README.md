@@ -7,6 +7,6 @@
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"A life without a cause is a life without effect. — *Paulo Coelho*"_
 
 ---
