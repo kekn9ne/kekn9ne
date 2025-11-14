@@ -7,6 +7,6 @@
 
 ---
 
-_"You play the hand you're dealt. I think the game's worthwhile.   — *Christopher Reeve*"_
+_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
 
 ---
