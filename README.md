@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't just sit there. Do something. The answers will follow. — *Mark Manson*"_
+_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
 
 ---
