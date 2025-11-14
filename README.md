@@ -7,6 +7,6 @@
 
 ---
 
-_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
+_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
 
 ---
