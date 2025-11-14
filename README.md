@@ -7,6 +7,6 @@
 
 ---
 
-_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
+_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
 
 ---
