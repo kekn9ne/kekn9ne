@@ -7,6 +7,6 @@
 
 ---
 
-_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
+_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
 
 ---
