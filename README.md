@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 14 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Whenever you find yourself on the side of the majority, it is time to reform. — *Mark Twain*"_
+_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
 
 ---
