@@ -7,6 +7,6 @@
 
 ---
 
-_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
+_"You play the hand you're dealt. I think the game's worthwhile.   — *Christopher Reeve*"_
 
 ---
