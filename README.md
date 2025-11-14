@@ -7,6 +7,6 @@
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"Why compare yourself with others? No one in the entire world can do a better job of being you than you. — *Unknown*"_
 
 ---
