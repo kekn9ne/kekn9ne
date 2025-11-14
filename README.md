@@ -7,6 +7,6 @@
 
 ---
 
-_"To arrive at the simplest truth requires years of contemplation. — *Isaac Newton*"_
+_"Don't just sit there. Do something. The answers will follow. — *Mark Manson*"_
 
 ---
