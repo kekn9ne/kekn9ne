@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 14 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"It is better to learn late than never. — *Publilius Syrus*"_
+_"He is not a lover who does not love forever. — *Euripides*"_
 
 ---
