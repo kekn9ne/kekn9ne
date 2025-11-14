@@ -7,6 +7,6 @@
 
 ---
 
-_"Just get out and do it. You will be very, very glad that you did. — *Christopher McCandless*"_
+_"Human behavior flows from three main sources: desire, emotion, and knowledge. — *Plato*"_
 
 ---
