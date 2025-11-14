@@ -7,6 +7,6 @@
 
 ---
 
-_"In three words I can sum up everything I've learned about life: it goes on. — *Robert Frost*"_
+_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
 
 ---
