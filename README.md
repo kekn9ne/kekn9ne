@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
+_"It is better to learn late than never. — *Publilius Syrus*"_
 
 ---
