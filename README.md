@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
+_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
 
 ---
