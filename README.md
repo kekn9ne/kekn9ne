@@ -7,6 +7,6 @@
 
 ---
 
-_"Each path to knowledge involves different rules and these rules are not interchangeable. — *Barack Obama*"_
+_"It is better to disappoint people with the truth than to appease them with a lie. — *Simon Sinek*"_
 
 ---
