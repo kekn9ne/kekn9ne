@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is about creating value. — *Candice Carpenter*"_
+_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
 
 ---
