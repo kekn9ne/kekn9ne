@@ -7,6 +7,6 @@
 
 ---
 
-_"If we all did the things we are capable of doing, we would literally astound ourselves. — *Thomas Edison*"_
+_"A wise man can learn more from a foolish question than a fool can learn from a wise answer.   — *Bruce Lee*"_
 
 ---
