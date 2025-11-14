@@ -7,6 +7,6 @@
 
 ---
 
-_"Plants grow weak without wind. — *Maxime Lagace*"_
+_"What you become is far more important than what you get. — *Jim Rohn*"_
 
 ---
