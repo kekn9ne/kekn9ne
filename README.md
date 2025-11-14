@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 14 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The destiny of man is in his own soul.  — *Herodotus*"_
+_"Everyone you meet is fighting a battle you know nothing about. Be kind. Always. — *Robin Williams*"_
 
 ---
