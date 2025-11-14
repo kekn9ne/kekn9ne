@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the keys to happiness is a bad memory. — *Rita Mae Brown*"_
+_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
 
 ---
