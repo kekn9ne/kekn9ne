@@ -7,6 +7,6 @@
 
 ---
 
-_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
+_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
 
 ---
