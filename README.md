@@ -7,6 +7,6 @@
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"Success is about creating value. — *Candice Carpenter*"_
 
 ---
