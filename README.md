@@ -7,6 +7,6 @@
 
 ---
 
-_"If you believe you can, you can. If you believe you can't, then, well you can't. — *Celestine Chua*"_
+_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
 
 ---
