@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you try to impress, the more peaceful you can be. — *Maxime Lagace*"_
+_"In three words I can sum up everything I've learned about life: it goes on. — *Robert Frost*"_
 
 ---
