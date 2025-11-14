@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — *Ralph Marston*"_
 
 ---
