@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
+_"Honor is the foundation of courage. — *Amelia Earhart*"_
 
 ---
