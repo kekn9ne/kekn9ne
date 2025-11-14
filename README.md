@@ -7,6 +7,6 @@
 
 ---
 
-_"Memory is the scribe of the soul. — *Aristotle*"_
+_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
 
 ---
