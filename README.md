@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to understanding is a few good examples. — *Isaac Newton*"_
+_"Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. — *Helen Keller*"_
 
 ---
