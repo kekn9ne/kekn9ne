@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
 
 ---
