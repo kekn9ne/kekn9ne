@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man can learn more from a foolish question than a fool can learn from a wise answer.   — *Bruce Lee*"_
+_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
 
 ---
