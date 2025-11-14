@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 14 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nourish the mind like you would your body. The mind cannot survive on junk food. — *Brian Tracy*"_
+_"Either you choose to stay in the shallow end of the pool or you go out into the ocean. — *Christopher Reeve*"_
 
 ---
