@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there is anger, there is always pain underneath. — *Eckhart Tolle*"_
+_"The less you try to impress, the more peaceful you can be. — *Maxime Lagace*"_
 
 ---
