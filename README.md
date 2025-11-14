@@ -7,6 +7,6 @@
 
 ---
 
-_"A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. — *Amelia Earhart*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
