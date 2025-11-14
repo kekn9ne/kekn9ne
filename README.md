@@ -7,6 +7,6 @@
 
 ---
 
-_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
+_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
 
 ---
