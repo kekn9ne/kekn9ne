@@ -7,6 +7,6 @@
 
 ---
 
-_"There are only encounters in history. There are no accidents. — *Pablo Picasso*"_
+_"Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose. — *Simon Sinek*"_
 
 ---
