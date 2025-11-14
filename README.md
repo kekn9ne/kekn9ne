@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of us live our lives by accident - we live as it happens. Fulfilment comes when we live our lives on purpose. — *Simon Sinek*"_
+_"When one door closes another door opens.  — *Alexander Graham Bell*"_
 
 ---
