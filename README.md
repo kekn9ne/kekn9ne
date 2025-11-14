@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 14 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +12°C**  
+🗓️ Today is: **Saturday, 15 November 2025**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"He is not a lover who does not love forever. — *Euripides*"_
+_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
 
 ---
