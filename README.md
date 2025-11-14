@@ -7,6 +7,6 @@
 
 ---
 
-_"By seeking and blundering we learn. — *Johann Wolfgang von Goethe*"_
+_"A single act of kindness throws out roots in all directions, and the roots spring up and make new trees. — *Amelia Earhart*"_
 
 ---
