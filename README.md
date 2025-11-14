@@ -7,6 +7,6 @@
 
 ---
 
-_"People should pursue what they're passionate about. That will make them happier than pretty much anything else. — *Elon Musk*"_
+_"You may be disappointed if you fail, but you are doomed if you don't try.  — *Beverly Sills*"_
 
 ---
