@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you meet is fighting a battle you know nothing about. Be kind. Always. — *Robin Williams*"_
+_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
 
 ---
