@@ -7,6 +7,6 @@
 
 ---
 
-_"Fears are nothing more than a state of mind. — *Napoleon Hill*"_
+_"You play the hand you're dealt. I think the game's worthwhile.   — *Christopher Reeve*"_
 
 ---
