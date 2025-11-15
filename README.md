@@ -7,6 +7,6 @@
 
 ---
 
-_"All cruelty springs from weakness.   — *Seneca*"_
+_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
 
 ---
