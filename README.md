@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 15 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +13°C**  
+🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Debt is the slavery of the free. — *Publilius Syrus*"_
+_"Winners never quit and quitters never win. — *Vince Lombardi*"_
 
 ---
