@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 15 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
+🎧 Currently Listening: **RASTAFARAY** by *ERU* 🎶
 
 ---
 
-_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
+_"Anyone telling you it's pointless to share your perspective is sharing their perspective. — *Jack Butcher*"_
 
 ---
