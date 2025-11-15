@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 15 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
+🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
 
 ---
 
-_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
+_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
 
 ---
