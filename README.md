@@ -7,6 +7,6 @@
 
 ---
 
-_"Each of us is a unique strand in the intricate web of life and here to make a contribution. — *Deepak Chopra*"_
+_"To judge a man by his weakest link or deed is like judging the power of the ocean by one wave. — *Elvis Presley*"_
 
 ---
