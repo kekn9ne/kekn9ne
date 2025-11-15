@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"Failure is the key to success; each mistake teaches us something. — *Morihei Ueshiba*"_
 
 ---
