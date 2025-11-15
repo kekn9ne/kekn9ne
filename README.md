@@ -7,6 +7,6 @@
 
 ---
 
-_"Just do the best you can. No one can do more than that. — *John Wooden*"_
+_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
 
 ---
