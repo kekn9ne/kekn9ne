@@ -7,6 +7,6 @@
 
 ---
 
-_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
+_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
 
 ---
