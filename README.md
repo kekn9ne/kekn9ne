@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
+_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
 
 ---
