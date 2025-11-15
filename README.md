@@ -7,6 +7,6 @@
 
 ---
 
-_"My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time. — *Steve Jobs*"_
+_"If you see someone without a smile give them one of yours. — *Unknown*"_
 
 ---
