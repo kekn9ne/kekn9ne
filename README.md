@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 15 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +14°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **88**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
+_"My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time. — *Steve Jobs*"_
 
 ---
