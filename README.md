@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 15 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +12°C**  
+🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Angel Of The Morning** by *Juice Newton* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
+_"You cannot push anyone up a ladder unless he is willing to climb a little himself. — *Andrew Carnegie*"_
 
 ---
