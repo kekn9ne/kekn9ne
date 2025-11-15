@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 16 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
+🎧 Currently Listening: **Buz** by *Güneş* 🎶
 
 ---
 
-_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
+_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
 
 ---
