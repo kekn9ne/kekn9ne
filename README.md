@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
 
 ---
