@@ -7,6 +7,6 @@
 
 ---
 
-_"The world is changed by your example, not by your opinion. — *Paulo Coelho*"_
+_"There are no limitations to the mind except those we acknowledge... — *Napoleon Hill*"_
 
 ---
