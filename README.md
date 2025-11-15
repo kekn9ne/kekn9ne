@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about not knowing and then doing something anyway. — *Mark Manson*"_
+_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
 
 ---
