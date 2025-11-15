@@ -7,6 +7,6 @@
 
 ---
 
-_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
+_"If you care about someone enough, you'll always be there for them no matter what. — *Roy T. Bennett*"_
 
 ---
