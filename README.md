@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
+_"Imagination is more important than knowledge. — *Albert Einstein*"_
 
 ---
