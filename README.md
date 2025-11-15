@@ -7,6 +7,6 @@
 
 ---
 
-_"Relax. Nothing is under control. — *Adi Da Samraj*"_
+_"I do not exist to impress the world. I exist to live my life in a way that will make me happy. — *Richard Bach*"_
 
 ---
