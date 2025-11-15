@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
 
 ---
