@@ -7,6 +7,6 @@
 
 ---
 
-_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
+_"In order to carry a positive action, we must develop here a positive vision. — *Dalai Lama*"_
 
 ---
