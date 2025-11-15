@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
+_"Those who are enlightened never stop forging themselves. — *Morihei Ueshiba*"_
 
 ---
