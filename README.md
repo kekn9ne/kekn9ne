@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is the key to success; each mistake teaches us something. — *Morihei Ueshiba*"_
+_"The sun is new each day. — *Heraclitus*"_
 
 ---
