@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 16 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Buz** by *Güneş* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
+_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
 
 ---
