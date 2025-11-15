@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 15 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
 
 ---
 
-_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
+_"A clear conscience never fears midnight knocking. — *Chinese Proverb*"_
 
 ---
