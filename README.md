@@ -7,6 +7,6 @@
 
 ---
 
-_"Your heart is full of fertile seeds, waiting to sprout. — *Morihei Ueshiba*"_
+_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
 
 ---
