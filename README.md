@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
+_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
 
 ---
