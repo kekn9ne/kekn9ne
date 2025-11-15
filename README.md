@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
+_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
 
 ---
