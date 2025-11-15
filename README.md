@@ -7,6 +7,6 @@
 
 ---
 
-_"Every saint has a past, and every sinner has a future. — *Oscar Wilde*"_
+_"You are your best thing. — *Toni Morrison*"_
 
 ---
