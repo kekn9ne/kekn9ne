@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 16 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Queen Of Hearts** by *Juice Newton* 🎶
 
 ---
 
-_"Pleasure is always derived from something outside you, whereas joy arises from within.  — *Eckhart Tolle*"_
+_"Life is a process. We are a process. The universe is a process. — *Anne Wilson Schaef*"_
 
 ---
