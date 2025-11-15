@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"If I love myself I love you. If I love you I love myself. — *Rumi*"_
 
 ---
