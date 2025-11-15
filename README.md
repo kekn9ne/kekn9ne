@@ -7,6 +7,6 @@
 
 ---
 
-_"Life goes by fast. Enjoy it. Calm down. It's all funny. — *Joan Rivers*"_
+_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
 
 ---
