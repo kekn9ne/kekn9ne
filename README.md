@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"Just do the best you can. No one can do more than that. — *John Wooden*"_
 
 ---
