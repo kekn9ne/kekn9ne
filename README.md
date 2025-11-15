@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
+_"Every saint has a past, and every sinner has a future. — *Oscar Wilde*"_
 
 ---
