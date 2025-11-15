@@ -2,11 +2,11 @@
 
 🗓️ Today is: **Saturday, 15 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +12°C**  
-📊 GitHub Contributions: **88**  
+📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Winners never quit and quitters never win. — *Vince Lombardi*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
