@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 16 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"Learning never exhausts the mind.  — *Leonardo da Vinci*"_
+_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
 
 ---
