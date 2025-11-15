@@ -7,6 +7,6 @@
 
 ---
 
-_"If the grass is greener on the other side, maybe that's because you're not taking good care of your grass. — *Unknown*"_
+_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
 
 ---
