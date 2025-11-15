@@ -7,6 +7,6 @@
 
 ---
 
-_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
+_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
 
 ---
