@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 15 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **88**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
 
 ---
 
-_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
+_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
 
 ---
