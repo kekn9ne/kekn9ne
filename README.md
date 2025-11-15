@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
