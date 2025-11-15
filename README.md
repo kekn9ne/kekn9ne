@@ -7,6 +7,6 @@
 
 ---
 
-_"Wisdom is the oneness of mind that guides and permeates all things. — *Heraclitus*"_
+_"Older men declare war. But it is youth that must fight and die. — *Herbert Hoover*"_
 
 ---
