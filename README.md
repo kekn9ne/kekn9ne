@@ -7,6 +7,6 @@
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"All our dreams can come true, if we have the courage to pursue them. — *Walt Disney*"_
 
 ---
