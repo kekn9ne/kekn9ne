@@ -7,6 +7,6 @@
 
 ---
 
-_"Older men declare war. But it is youth that must fight and die. — *Herbert Hoover*"_
+_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
 
 ---
