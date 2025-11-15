@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is more important than knowledge. — *Albert Einstein*"_
+_"If the grass is greener on the other side, maybe that's because you're not taking good care of your grass. — *Unknown*"_
 
 ---
