@@ -7,6 +7,6 @@
 
 ---
 
-_"The sun is new each day. — *Heraclitus*"_
+_"Storms don't last forever. — *Unknown*"_
 
 ---
