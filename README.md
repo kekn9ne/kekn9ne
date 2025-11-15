@@ -7,6 +7,6 @@
 
 ---
 
-_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
