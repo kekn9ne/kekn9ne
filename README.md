@@ -7,6 +7,6 @@
 
 ---
 
-_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
+_"Your heart is full of fertile seeds, waiting to sprout. — *Morihei Ueshiba*"_
 
 ---
