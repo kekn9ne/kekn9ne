@@ -7,6 +7,6 @@
 
 ---
 
-_"Manifest plainness, embrace simplicity, reduce selfishness, have few desires. — *Lao Tzu*"_
+_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
 
 ---
