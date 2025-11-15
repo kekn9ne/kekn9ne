@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored. — *Earl Nightingale*"_
 
 ---
