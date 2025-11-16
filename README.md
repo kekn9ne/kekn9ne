@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
+_"Love yourself with the same intensity you would use to pull yourself up if you were hanging off a cliff. — *Kamal Ravikant*"_
 
 ---
