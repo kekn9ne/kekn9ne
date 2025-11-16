@@ -7,6 +7,6 @@
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"Happiness is only real when shared. — *Christopher McCandless*"_
 
 ---
