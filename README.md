@@ -7,6 +7,6 @@
 
 ---
 
-_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
+_"Don't try to steer the river. — *Deepak Chopra*"_
 
 ---
