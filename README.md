@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
+_"If someone betrays you once, it's their fault; if they betray you twice, it's your fault. — *Eleanor Roosevelt*"_
 
 ---
