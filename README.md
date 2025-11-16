@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the progressive realization of a worthy goal or ideal. — *Earl Nightingale*"_
+_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
 
 ---
