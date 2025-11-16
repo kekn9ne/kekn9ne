@@ -7,6 +7,6 @@
 
 ---
 
-_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
+_"Projecting your mind into a successful situation is the most powerful means to achieve goals.   — *Estee Lauder*"_
 
 ---
