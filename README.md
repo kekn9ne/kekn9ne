@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
+_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
 
 ---
