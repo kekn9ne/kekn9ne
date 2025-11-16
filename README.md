@@ -7,6 +7,6 @@
 
 ---
 
-_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
