@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **9 Yıl Öncesine Mektup** by *Şanışer* 🎶
+🎧 Currently Listening: **Duman Oldum** by *Maestro* 🎶
 
 ---
 
-_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
+_"The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — *Norman Vincent Peale*"_
 
 ---
