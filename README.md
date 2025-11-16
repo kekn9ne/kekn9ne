@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
+_"Hope is a waking dream. — *Aristotle*"_
 
 ---
