@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest miracle is to be alive. — *Thich Nhat Hanh*"_
+_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
 
 ---
