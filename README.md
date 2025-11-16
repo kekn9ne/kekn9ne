@@ -7,6 +7,6 @@
 
 ---
 
-_"Until we can manage time, we can manage nothing else. — *Peter Drucker*"_
+_"A man has to learn that he cannot command things but that he can command himself; that he cannot coerce the wills of others but that he can mold and master his own will. — *James Allen*"_
 
 ---
