@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are tempted to give up, your breakthrough is probably just around the corner. — *Joyce Meyer*"_
+_"Some changes look negative on the surface but you will soon realize that space is being created in your life for something new to emerge. — *Eckhart Tolle*"_
 
 ---
