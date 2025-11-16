@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
+_"The attempt to escape from pain, is what creates more pain. — *Gabor Mate*"_
 
 ---
