@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
+_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
 
 ---
