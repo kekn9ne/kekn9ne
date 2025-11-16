@@ -7,6 +7,6 @@
 
 ---
 
-_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
+_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
 
 ---
