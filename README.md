@@ -7,6 +7,6 @@
 
 ---
 
-_"Never do things others can do and will do if there are things others cannot do or will not do. — *Amelia Earhart*"_
+_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
 
 ---
