@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
+_"Every day is an opportunity to a make a new happy ending. — *Jonathan Swift*"_
 
 ---
