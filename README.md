@@ -7,6 +7,6 @@
 
 ---
 
-_"For changes to be of any true value, they've got to be lasting and consistent. — *Tony Robbins*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
