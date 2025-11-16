@@ -7,6 +7,6 @@
 
 ---
 
-_"What keeps life fascinating is the constant creativity of the soul. — *Deepak Chopra*"_
+_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
 
 ---
