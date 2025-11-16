@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
 
 ---
