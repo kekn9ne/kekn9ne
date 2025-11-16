@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul is neither born, and nor does it die. — *Bhagavad Gita*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
