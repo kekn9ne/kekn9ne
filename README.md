@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"Success is the progressive realization of a worthy goal or ideal. — *Earl Nightingale*"_
 
 ---
