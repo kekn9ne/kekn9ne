@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 16 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **☀️   +16°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
+_"Until we can manage time, we can manage nothing else. — *Peter Drucker*"_
 
 ---
