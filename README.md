@@ -7,6 +7,6 @@
 
 ---
 
-_"Hope is a waking dream. — *Aristotle*"_
+_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
 
 ---
