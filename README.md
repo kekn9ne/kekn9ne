@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
+_"Experience is a comb which nature gives us when we are bald.  — *Chinese Proverb*"_
 
 ---
