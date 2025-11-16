@@ -7,6 +7,6 @@
 
 ---
 
-_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
+_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
 
 ---
