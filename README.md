@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
+_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
 
 ---
