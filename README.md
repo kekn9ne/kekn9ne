@@ -7,6 +7,6 @@
 
 ---
 
-_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
+_"You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give. — *Eleanor Roosevelt*"_
 
 ---
