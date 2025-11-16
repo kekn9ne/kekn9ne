@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Zaza** by *Chiko* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
+_"A man, as a general rule, owes very little to what he is born with - a man is what he makes of himself. — *Alexander Graham Bell*"_
 
 ---
