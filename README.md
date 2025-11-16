@@ -7,6 +7,6 @@
 
 ---
 
-_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
+_"Opportunity comes when you continually push forward. — *Sonia Ricotti*"_
 
 ---
