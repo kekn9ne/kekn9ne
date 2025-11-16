@@ -7,6 +7,6 @@
 
 ---
 
-_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
+_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
 
 ---
