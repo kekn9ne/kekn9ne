@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius, in truth, means little more than the faculty of perceiving in an unhabitual way. — *William James*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
