@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 16 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are free, and that is why you are lost. — *Franz Kafka*"_
+_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
 
 ---
