@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have? — *Eckhart Tolle*"_
+_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
 
 ---
