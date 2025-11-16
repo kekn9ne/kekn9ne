@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
