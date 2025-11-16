@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity comes when you continually push forward. — *Sonia Ricotti*"_
+_"I know of only one duty, and that is to love. — *George Bernard Shaw*"_
 
 ---
