@@ -7,6 +7,6 @@
 
 ---
 
-_"Experience is a comb which nature gives us when we are bald.  — *Chinese Proverb*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
