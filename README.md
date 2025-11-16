@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — *Steve Maraboli*"_
 
 ---
