@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **9 Yıl Öncesine Mektup** by *Şanışer* 🎶
 
 ---
 
-_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
+_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
 
 ---
