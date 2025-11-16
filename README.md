@@ -7,6 +7,6 @@
 
 ---
 
-_"Public opinion is the worst of all opinions. — *Nicolas Chamfort*"_
+_"Nature loves to hide. — *Heraclitus*"_
 
 ---
