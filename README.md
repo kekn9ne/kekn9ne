@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 16 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +16°C**  
+🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
+_"Thinking is the hardest work there is. That is why so few people engage in it. — *Robert Kiyosaki*"_
 
 ---
