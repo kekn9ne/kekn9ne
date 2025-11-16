@@ -7,6 +7,6 @@
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
 
 ---
