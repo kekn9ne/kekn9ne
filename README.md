@@ -7,6 +7,6 @@
 
 ---
 
-_"The attempt to escape from pain, is what creates more pain. — *Gabor Mate*"_
+_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
 
 ---
