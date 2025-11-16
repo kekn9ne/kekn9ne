@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
+_"What keeps life fascinating is the constant creativity of the soul. — *Deepak Chopra*"_
 
 ---
