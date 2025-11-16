@@ -7,6 +7,6 @@
 
 ---
 
-_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
+_"You are free, and that is why you are lost. — *Franz Kafka*"_
 
 ---
