@@ -7,6 +7,6 @@
 
 ---
 
-_"Projecting your mind into a successful situation is the most powerful means to achieve goals.   — *Estee Lauder*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
