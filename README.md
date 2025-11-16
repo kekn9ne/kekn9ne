@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
+_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
 
 ---
