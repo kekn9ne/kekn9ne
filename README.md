@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
+_"Nothing ever happened in the past that can prevent you from being present now; and if the past cannot prevent you from being present now, what power does it have? — *Eckhart Tolle*"_
 
 ---
