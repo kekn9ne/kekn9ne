@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 16 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul'da Doğmayan Güneş (feat. Kodes Kahra, Kayra & Vinyl Obscura)** by *Farazi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
+_"If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results. — *Tony Robbins*"_
 
 ---
