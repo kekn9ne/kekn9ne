@@ -7,6 +7,6 @@
 
 ---
 
-_"An ounce of performance is worth pounds of promises. — *Mae West*"_
+_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
 
 ---
