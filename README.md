@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Duman Oldum** by *Maestro* 🎶
+🎧 Currently Listening: **Seni Düşündüm** by *Çağla* 🎶
 
 ---
 
-_"The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — *Norman Vincent Peale*"_
+_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
 
 ---
