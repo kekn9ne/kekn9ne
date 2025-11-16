@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
+_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
 
 ---
