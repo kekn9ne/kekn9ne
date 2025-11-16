@@ -7,6 +7,6 @@
 
 ---
 
-_"Quality is not an act, it is a habit. — *Aristotle*"_
+_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
 
 ---
