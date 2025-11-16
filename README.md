@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
+_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
 
 ---
