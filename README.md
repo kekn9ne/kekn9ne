@@ -7,6 +7,6 @@
 
 ---
 
-_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
+_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
 
 ---
