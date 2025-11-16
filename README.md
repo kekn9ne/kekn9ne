@@ -7,6 +7,6 @@
 
 ---
 
-_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
+_"The traveler sees what he sees. The tourist sees what he has come to see. — *Gilbert Chesterton*"_
 
 ---
