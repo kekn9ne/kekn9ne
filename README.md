@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't try to steer the river. — *Deepak Chopra*"_
+_"An ounce of performance is worth pounds of promises. — *Mae West*"_
 
 ---
