@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 17 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Winning isn't always championships. — *Michael Jordan*"_
+_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
 
 ---
