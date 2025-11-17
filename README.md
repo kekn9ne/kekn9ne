@@ -7,6 +7,6 @@
 
 ---
 
-_"Respect was invented to cover the empty place where love should be. — *Leo Tolstoy*"_
+_"The more you praise and celebrate your life, the more there is in life to celebrate.  — *Oprah Winfrey*"_
 
 ---
