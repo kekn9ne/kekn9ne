@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
+_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
 
 ---
