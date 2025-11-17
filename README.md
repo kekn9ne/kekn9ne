@@ -7,6 +7,6 @@
 
 ---
 
-_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
