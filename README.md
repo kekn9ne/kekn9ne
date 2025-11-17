@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 17 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +15°C**  
+🌤️ Weather in Istanbul: **☀️   +16°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
