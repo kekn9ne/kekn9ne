@@ -7,6 +7,6 @@
 
 ---
 
-_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
+_"Not until we are lost do we begin to understand ourselves. — *Henry David Thoreau*"_
 
 ---
