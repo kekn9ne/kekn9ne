@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk does not cook rice. — *Chinese Proverb*"_
+_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
 
 ---
