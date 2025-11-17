@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your commitments will determine the course of your life. — *Ralph Marston*"_
+_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
 
 ---
