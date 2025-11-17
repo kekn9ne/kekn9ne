@@ -7,6 +7,6 @@
 
 ---
 
-_"Repetition does not transform a lie into a truth. — *Franklin D. Roosevelt*"_
+_"The more you extend kindness to yourself, the more it will become your automatic response to others. — *Wayne Dyer*"_
 
 ---
