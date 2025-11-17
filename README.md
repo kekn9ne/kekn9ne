@@ -7,6 +7,6 @@
 
 ---
 
-_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
