@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
 
 ---
 
-_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
+_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
 
 ---
