@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man's work, whether it be literature or music or pictures or architecture or anything else, is always a portrait of himself. — *Samuel Butler*"_
+_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
 
 ---
