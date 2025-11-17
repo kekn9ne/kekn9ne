@@ -7,6 +7,6 @@
 
 ---
 
-_"Big people don't make people feel small. — *Robin Sharma*"_
+_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
 
 ---
