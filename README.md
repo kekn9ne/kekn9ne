@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever you find yourself on the side of the majority, it is time to reform. — *Mark Twain*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
