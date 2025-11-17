@@ -7,6 +7,6 @@
 
 ---
 
-_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
+_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
 
 ---
