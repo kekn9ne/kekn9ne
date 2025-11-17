@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
