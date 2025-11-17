@@ -7,6 +7,6 @@
 
 ---
 
-_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
+_"Winning isn't always championships. — *Michael Jordan*"_
 
 ---
