@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ORTAM 2.0** by *Woldy404* 🎶
 
 ---
 
-_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
+_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
 
 ---
