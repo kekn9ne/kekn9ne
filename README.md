@@ -7,6 +7,6 @@
 
 ---
 
-_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
+_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
 
 ---
