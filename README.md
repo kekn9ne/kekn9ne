@@ -7,6 +7,6 @@
 
 ---
 
-_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
+_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
 
 ---
