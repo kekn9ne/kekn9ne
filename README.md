@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
+_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
 
 ---
