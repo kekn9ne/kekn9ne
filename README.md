@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 17 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +18°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ORTAM 2.0** by *Woldy404* 🎶
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
+_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
 
 ---
