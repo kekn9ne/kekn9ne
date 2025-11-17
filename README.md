@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
 
 ---
