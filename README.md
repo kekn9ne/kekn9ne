@@ -7,6 +7,6 @@
 
 ---
 
-_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
+_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
 
 ---
