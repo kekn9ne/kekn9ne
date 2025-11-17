@@ -7,6 +7,6 @@
 
 ---
 
-_"I begin with an idea and then it becomes something else. — *Pablo Picasso*"_
+_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
 
 ---
