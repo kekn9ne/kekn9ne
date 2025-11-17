@@ -7,6 +7,6 @@
 
 ---
 
-_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
+_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
 
 ---
