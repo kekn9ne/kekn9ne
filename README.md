@@ -7,6 +7,6 @@
 
 ---
 
-_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
+_"Whenever you find yourself on the side of the majority, it is time to reform. — *Mark Twain*"_
 
 ---
