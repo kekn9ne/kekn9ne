@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
+_"A day without laughter is a day wasted. — *Charlie Chaplin*"_
 
 ---
