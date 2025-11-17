@@ -7,6 +7,6 @@
 
 ---
 
-_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
+_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
 
 ---
