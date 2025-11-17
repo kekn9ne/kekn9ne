@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is no more uncertain than the present. — *Walt Whitman*"_
+_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
 
 ---
