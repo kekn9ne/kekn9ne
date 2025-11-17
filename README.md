@@ -7,6 +7,6 @@
 
 ---
 
-_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
+_"A Quitter never wins - and - a Winner never quits. — *Napoleon Hill*"_
 
 ---
