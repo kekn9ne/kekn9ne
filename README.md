@@ -7,6 +7,6 @@
 
 ---
 
-_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
+_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
 
 ---
