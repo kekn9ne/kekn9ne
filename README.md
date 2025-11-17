@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
+_"Live life as though nobody is watching, and express yourself as though everyone is listening. — *Nelson Mandela*"_
 
 ---
