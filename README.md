@@ -7,6 +7,6 @@
 
 ---
 
-_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
