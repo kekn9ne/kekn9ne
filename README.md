@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
+_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
 
 ---
