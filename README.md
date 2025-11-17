@@ -7,6 +7,6 @@
 
 ---
 
-_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
+_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
 
 ---
