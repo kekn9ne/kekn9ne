@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you praise and celebrate your life, the more there is in life to celebrate.  — *Oprah Winfrey*"_
+_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
 
 ---
