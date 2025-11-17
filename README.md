@@ -7,6 +7,6 @@
 
 ---
 
-_"A creative man is motivated by the desire to achieve, not by the desire to beat others. — *Ayn Rand*"_
+_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
 
 ---
