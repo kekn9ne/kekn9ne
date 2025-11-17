@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 17 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AMCAS RMX** by *Batuflex* 🎶
 
 ---
 
-_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
+_"Don't stumble over something that's behind you. — *Steve Harvey*"_
 
 ---
