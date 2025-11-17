@@ -7,6 +7,6 @@
 
 ---
 
-_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
+_"Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  — *Lao Tzu*"_
 
 ---
