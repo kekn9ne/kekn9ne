@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
+_"The future is the worst thing about the present. — *Gustave Flaubert*"_
 
 ---
