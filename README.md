@@ -7,6 +7,6 @@
 
 ---
 
-_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
+_"Believe in your infinite potential. Your only limitations are those you set upon yourself. — *Roy T. Bennett*"_
 
 ---
