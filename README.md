@@ -7,6 +7,6 @@
 
 ---
 
-_"Be where your enemy is not. — *Sun Tzu*"_
+_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
 
 ---
