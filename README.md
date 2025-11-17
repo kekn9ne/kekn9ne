@@ -7,6 +7,6 @@
 
 ---
 
-_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
+_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
 
 ---
