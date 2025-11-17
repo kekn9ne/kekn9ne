@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"Life goes by fast. Enjoy it. Calm down. It's all funny. — *Joan Rivers*"_
 
 ---
