@@ -7,6 +7,6 @@
 
 ---
 
-_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
+_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
 
 ---
