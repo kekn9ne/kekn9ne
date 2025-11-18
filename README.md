@@ -7,6 +7,6 @@
 
 ---
 
-_"All leaders are readers. — *Jim Rohn*"_
+_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
 
 ---
