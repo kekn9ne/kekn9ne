@@ -7,6 +7,6 @@
 
 ---
 
-_"My sun sets to rise again. — *Robert Browning*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
