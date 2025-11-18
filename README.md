@@ -7,6 +7,6 @@
 
 ---
 
-_"Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for. — *Socrates*"_
+_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
 
 ---
