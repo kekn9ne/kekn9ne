@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
+_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
 
 ---
