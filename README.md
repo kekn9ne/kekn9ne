@@ -7,6 +7,6 @@
 
 ---
 
-_"You play the hand you're dealt. I think the game's worthwhile.   — *Christopher Reeve*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
