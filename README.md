@@ -7,6 +7,6 @@
 
 ---
 
-_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
+_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
 
 ---
