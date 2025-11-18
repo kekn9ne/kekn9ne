@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
