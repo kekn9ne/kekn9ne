@@ -7,6 +7,6 @@
 
 ---
 
-_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
