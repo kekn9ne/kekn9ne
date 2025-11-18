@@ -7,6 +7,6 @@
 
 ---
 
-_"Walking with a friend in the dark is better than walking alone in the light. — *Helen Keller*"_
+_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
 
 ---
