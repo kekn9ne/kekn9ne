@@ -7,6 +7,6 @@
 
 ---
 
-_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
+_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
 
 ---
