@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 18 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Böyle İyi** by *No.1* 🎶
 
 ---
 
-_"Change yourself - you are in control. — *Mahatma Gandhi*"_
+_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
 
 ---
