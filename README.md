@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people will walk in and out of your life, but only true friends will leave footprints in your heart. — *Eleanor Roosevelt*"_
+_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
 
 ---
