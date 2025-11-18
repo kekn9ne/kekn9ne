@@ -7,6 +7,6 @@
 
 ---
 
-_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
+_"Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim. — *John D. Rockefeller*"_
 
 ---
