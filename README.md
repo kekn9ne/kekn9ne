@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 18 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Bu Benim Hayatım** by *No.1* 🎶
+🎧 Currently Listening: **Uzak** by *Kayra* 🎶
 
 ---
 
-_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
+_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
 
 ---
