@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
