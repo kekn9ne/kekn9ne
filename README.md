@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"You cannot teach a crab to walk straight. — *Aristophanes*"_
 
 ---
