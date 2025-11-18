@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 18 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Unuttun mu Beni** by *Nahide Babashlı* 🎶
 
 ---
 
-_"Courage is fear that has said its prayers and decided to go forward anyway. — *Joyce Meyer*"_
+_"Remember, today is the tomorrow you worried about yesterday. — *Dale Carnegie*"_
 
 ---
