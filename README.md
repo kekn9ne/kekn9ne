@@ -7,6 +7,6 @@
 
 ---
 
-_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
+_"If you think adventure is dangerous, try routine; it is lethal. — *Paulo Coelho*"_
 
 ---
