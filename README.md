@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 18 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +20°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Paranoya** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A moving door hinge never corrodes. Flowing water never grows stagnant. — *Ming-Dao Deng*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
