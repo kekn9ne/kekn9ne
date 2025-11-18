@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
+_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
 
 ---
