@@ -7,6 +7,6 @@
 
 ---
 
-_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
+_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
 
 ---
