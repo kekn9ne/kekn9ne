@@ -7,6 +7,6 @@
 
 ---
 
-_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
+_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
 
 ---
