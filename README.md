@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
+_"Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — *Norman Vincent Peale*"_
 
 ---
