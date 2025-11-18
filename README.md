@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse. — *Alfred Adler*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
