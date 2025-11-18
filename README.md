@@ -7,6 +7,6 @@
 
 ---
 
-_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
+_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
 
 ---
