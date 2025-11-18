@@ -7,6 +7,6 @@
 
 ---
 
-_"What are we doing here, that is the question. — *Samuel Beckett*"_
+_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
 
 ---
