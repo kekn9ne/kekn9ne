@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
+_"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse. — *Alfred Adler*"_
 
 ---
