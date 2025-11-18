@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
+_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
 
 ---
