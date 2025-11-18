@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 18 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Unuttun mu Beni** by *Nahide Babashlı* 🎶
+🎧 Currently Listening: **Paranoya** by *UZI* 🎶
 
 ---
 
-_"Remember, today is the tomorrow you worried about yesterday. — *Dale Carnegie*"_
+_"A moving door hinge never corrodes. Flowing water never grows stagnant. — *Ming-Dao Deng*"_
 
 ---
