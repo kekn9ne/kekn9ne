@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
 
 ---
