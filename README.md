@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
+_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
 
 ---
