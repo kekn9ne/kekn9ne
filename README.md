@@ -7,6 +7,6 @@
 
 ---
 
-_"At the end of the day, let there be no excuses, no explanations, no regrets. — *Steve Maraboli*"_
+_"Imagination is everything. It is the preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
