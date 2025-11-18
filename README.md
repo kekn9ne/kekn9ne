@@ -7,6 +7,6 @@
 
 ---
 
-_"Fiction is the truth inside the lie. — *Stephen King*"_
+_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
 
 ---
