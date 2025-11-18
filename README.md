@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your eyes on the stars, but remember to keep your feet on the ground. — *Theodore Roosevelt*"_
+_"In life you need either inspiration or desperation. — *Tony Robbins*"_
 
 ---
