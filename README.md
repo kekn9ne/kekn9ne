@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
+_"Failure is acceptable. Not trying is a whole different ball park. — *Michael Jordan*"_
 
 ---
