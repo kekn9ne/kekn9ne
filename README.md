@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
