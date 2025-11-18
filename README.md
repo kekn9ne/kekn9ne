@@ -7,6 +7,6 @@
 
 ---
 
-_"Each time we don't say what we wanna say, we're dying. — *Yoko Ono*"_
+_"At the end of the day, let there be no excuses, no explanations, no regrets. — *Steve Maraboli*"_
 
 ---
