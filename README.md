@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
+_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
 
 ---
