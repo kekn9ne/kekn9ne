@@ -7,6 +7,6 @@
 
 ---
 
-_"Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you. — *Lao Tzu*"_
+_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
 
 ---
