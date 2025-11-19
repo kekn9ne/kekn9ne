@@ -7,6 +7,6 @@
 
 ---
 
-_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
+_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
 
 ---
