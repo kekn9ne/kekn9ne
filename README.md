@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"Realistic people do not accomplish extraordinary things. — *John Eliot*"_
 
 ---
