@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the nature of the wise to resist pleasures, but the foolish to be a slave to them. — *Epictetus*"_
+_"We must cultivate our garden.  — *Voltaire*"_
 
 ---
