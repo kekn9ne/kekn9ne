@@ -7,6 +7,6 @@
 
 ---
 
-_"Not until we are lost do we begin to understand ourselves. — *Henry David Thoreau*"_
+_"The more you extend kindness to yourself, the more it will become your automatic response to others. — *Wayne Dyer*"_
 
 ---
