@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all of us can do great things. But we can do small things with great love. — *Mother Teresa*"_
+_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
 
 ---
