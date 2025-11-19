@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 19 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Geri Ver** by *Wegh* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Fear of death is fear of the Unknown. — *Adi Da Samraj*"_
+_"Normal is the average of deviance. — *Rita Mae Brown*"_
 
 ---
