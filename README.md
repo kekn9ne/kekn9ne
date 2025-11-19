@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not whether you get knocked down, its whether you get back up. — *Vince Lombardi*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
