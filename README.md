@@ -7,6 +7,6 @@
 
 ---
 
-_"You can live a whole life time never being awake. — *Dan Millman*"_
+_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
 
 ---
