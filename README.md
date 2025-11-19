@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
