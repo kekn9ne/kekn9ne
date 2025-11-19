@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
+_"Life begins where fear ends. — *Osho*"_
 
 ---
