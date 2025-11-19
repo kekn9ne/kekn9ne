@@ -7,6 +7,6 @@
 
 ---
 
-_"No tree, it is said, can grow to heaven unless its roots reach down to hell. — *Carl Jung*"_
+_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
 
 ---
