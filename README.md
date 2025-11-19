@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
+_"Only those who do nothing at all make no mistakes. — *Unknown*"_
 
 ---
