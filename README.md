@@ -7,6 +7,6 @@
 
 ---
 
-_"Realistic people do not accomplish extraordinary things. — *John Eliot*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
