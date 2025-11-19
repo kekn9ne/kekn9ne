@@ -7,6 +7,6 @@
 
 ---
 
-_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
+_"Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life.  — *Eckhart Tolle*"_
 
 ---
