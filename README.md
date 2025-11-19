@@ -7,6 +7,6 @@
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death. — *Socrates*"_
 
 ---
