@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
 
 ---
