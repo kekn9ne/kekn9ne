@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
+_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
 
 ---
