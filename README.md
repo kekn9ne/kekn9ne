@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
+_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
 
 ---
