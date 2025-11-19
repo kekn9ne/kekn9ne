@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
 
 ---
