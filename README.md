@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 20 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Tehlikeli Bölge** by *Derris* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
+_"You know the more one does the more one can do. — *Amelia Earhart*"_
 
 ---
