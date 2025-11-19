@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
