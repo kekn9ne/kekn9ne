@@ -7,6 +7,6 @@
 
 ---
 
-_"Always forgive your enemies - nothing annoys them so much.  — *Oscar Wilde*"_
+_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
 
 ---
