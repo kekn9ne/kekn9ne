@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there is anger, there is always pain underneath. — *Eckhart Tolle*"_
+_"It's not whether you get knocked down, its whether you get back up. — *Vince Lombardi*"_
 
 ---
