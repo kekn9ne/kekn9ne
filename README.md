@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 19 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Geri Ver** by *Wegh* 🎶
 
 ---
 
-_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
+_"Fear of death is fear of the Unknown. — *Adi Da Samraj*"_
 
 ---
