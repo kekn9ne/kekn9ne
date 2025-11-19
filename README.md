@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can bring you peace but yourself. — *Dale Carnegie*"_
+_"Always forgive your enemies - nothing annoys them so much.  — *Oscar Wilde*"_
 
 ---
