@@ -7,6 +7,6 @@
 
 ---
 
-_"The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time. — *Dan Millman*"_
+_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
 
 ---
