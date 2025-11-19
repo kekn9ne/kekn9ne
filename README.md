@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
+_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
 
 ---
