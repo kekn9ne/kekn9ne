@@ -7,6 +7,6 @@
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Genius is patience. — *Isaac Newton*"_
 
 ---
