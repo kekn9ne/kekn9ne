@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
 
 ---
