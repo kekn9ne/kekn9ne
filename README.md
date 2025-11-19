@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 19 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Olmadı** by *Velet* 🎶
+🎧 Currently Listening: **Bana Kendimi Ver** by *Sancak* 🎶
 
 ---
 
-_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
+_"People do not decide their futures, they decide their habits and their habits decide their futures. — *Gary Keller*"_
 
 ---
