@@ -7,6 +7,6 @@
 
 ---
 
-_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
+_"You can live a whole life time never being awake. — *Dan Millman*"_
 
 ---
