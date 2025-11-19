@@ -7,6 +7,6 @@
 
 ---
 
-_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
+_"Never whine, never complain, never try to justify yourself. — *Robert Greene*"_
 
 ---
