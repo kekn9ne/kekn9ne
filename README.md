@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
