@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
+_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
 
 ---
