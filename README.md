@@ -7,6 +7,6 @@
 
 ---
 
-_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
+_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
 
 ---
