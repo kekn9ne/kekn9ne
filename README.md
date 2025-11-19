@@ -7,6 +7,6 @@
 
 ---
 
-_"In matters of style, swim with the current; in matters of principle, stand like a rock. — *Thomas Jefferson*"_
+_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
 
 ---
