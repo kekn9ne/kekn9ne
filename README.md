@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
+_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
 
 ---
