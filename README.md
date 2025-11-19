@@ -7,6 +7,6 @@
 
 ---
 
-_"A path is made by walking on it. — *Zhuangzi*"_
+_"Nothing can bring you peace but yourself. — *Dale Carnegie*"_
 
 ---
