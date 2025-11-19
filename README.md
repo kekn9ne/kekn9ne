@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
