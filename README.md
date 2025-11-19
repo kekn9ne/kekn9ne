@@ -7,6 +7,6 @@
 
 ---
 
-_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
+_"Successful people are not without problems. They're simply people who've learned to solve their problems. — *Earl Nightingale*"_
 
 ---
