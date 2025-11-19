@@ -7,6 +7,6 @@
 
 ---
 
-_"We must cultivate our garden.  — *Voltaire*"_
+_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
 
 ---
