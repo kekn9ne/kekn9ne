@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you try to impress, the more peaceful you can be. — *Maxime Lagace*"_
+_"The more you give, the more comes back to you. — *Napoleon Hill*"_
 
 ---
