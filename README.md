@@ -7,6 +7,6 @@
 
 ---
 
-_"Be confident, not certain. — *Eleanor Roosevelt*"_
+_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
 
 ---
