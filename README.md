@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
+_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
 
 ---
