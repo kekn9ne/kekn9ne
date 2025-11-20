@@ -7,6 +7,6 @@
 
 ---
 
-_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
+_"Life belongs to the living, and he who lives must be prepared for changes. — *Johann Wolfgang von Goethe*"_
 
 ---
