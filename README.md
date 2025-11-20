@@ -7,6 +7,6 @@
 
 ---
 
-_"Awaken. Take heed, do not squander your life. — *Dogen*"_
+_"Rest and be kind, you don't have to prove anything. — *Jack Kerouac*"_
 
 ---
