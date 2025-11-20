@@ -7,6 +7,6 @@
 
 ---
 
-_"A zen master's life is one continuous mistake. — *Dogen*"_
+_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
 
 ---
