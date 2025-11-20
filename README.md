@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
+_"The less you try to impress, the more peaceful you can be. — *Maxime Lagace*"_
 
 ---
