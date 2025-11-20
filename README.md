@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe and you're halfway there. — *Harry S. Truman*"_
+_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
 
 ---
