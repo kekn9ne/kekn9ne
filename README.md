@@ -7,6 +7,6 @@
 
 ---
 
-_"The best fighter is never angry. — *Lao Tzu*"_
+_"Work is always an antidote to depression. — *Eleanor Roosevelt*"_
 
 ---
