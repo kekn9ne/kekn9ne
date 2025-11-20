@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
+_"Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage. — *Celestine Chua*"_
 
 ---
