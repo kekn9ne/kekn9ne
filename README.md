@@ -7,6 +7,6 @@
 
 ---
 
-_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
+_"The mirror is a worthless invention. The only way to truly see yourself is in the reflection of someone elses. eyes. — *Voltaire*"_
 
 ---
