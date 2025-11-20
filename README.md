@@ -7,6 +7,6 @@
 
 ---
 
-_"To perceive is to suffer. — *Aristotle*"_
+_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
 
 ---
