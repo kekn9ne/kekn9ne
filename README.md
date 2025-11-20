@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important things are the hardest to say. — *Stephen King*"_
+_"When the world pushes you to your knees, you're in the perfect position to pray. — *Rumi*"_
 
 ---
