@@ -7,6 +7,6 @@
 
 ---
 
-_"In three words I can sum up everything I've learned about life: it goes on. — *Robert Frost*"_
+_"No one can confidently say that he will still be living tomorrow. — *Euripides*"_
 
 ---
