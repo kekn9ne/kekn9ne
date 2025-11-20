@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no value in anything until it is finished.  — *Genghis Khan*"_
+_"Darkness is the absence of light. — *Kamal Ravikant*"_
 
 ---
