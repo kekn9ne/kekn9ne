@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
+_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
 
 ---
