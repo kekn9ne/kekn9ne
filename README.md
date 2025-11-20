@@ -7,6 +7,6 @@
 
 ---
 
-_"Never take your position for granted and never let any favors you receive go to your head. — *Robert Greene*"_
+_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
 
 ---
