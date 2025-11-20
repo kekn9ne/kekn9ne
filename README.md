@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
+_"A lie can travel half way around the world while the truth is putting on its shoes. — *Mark Twain*"_
 
 ---
