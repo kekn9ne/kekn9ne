@@ -7,6 +7,6 @@
 
 ---
 
-_"I am always doing that which I can not do, in order that I may learn how to do it. — *Pablo Picasso*"_
+_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
 
 ---
