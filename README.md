@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest and be kind, you don't have to prove anything. — *Jack Kerouac*"_
+_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
 
 ---
