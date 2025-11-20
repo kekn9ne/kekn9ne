@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Thursday, 20 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🗓️ Today is: **Friday, 21 November 2025**  
+🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We create the world and ourselves; — *Ming-Dao Deng*"_
+_"Knowing is not enough, we must apply. Willing is not enough, we must do.   — *Bruce Lee*"_
 
 ---
