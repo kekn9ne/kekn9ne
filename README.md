@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
+_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
 
 ---
