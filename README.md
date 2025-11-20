@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
+_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
 
 ---
