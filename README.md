@@ -7,6 +7,6 @@
 
 ---
 
-_"Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand. — *Colin Powell*"_
+_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
 
 ---
