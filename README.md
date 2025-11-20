@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives. — *Betty White*"_
+_"In the End, we will remember not the words of our enemies, but the silence of our friends. — *Martin Luther King, Jr.*"_
 
 ---
