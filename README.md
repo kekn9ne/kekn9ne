@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 20 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +18°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"No one can confidently say that he will still be living tomorrow. — *Euripides*"_
+_"We create the world and ourselves; — *Ming-Dao Deng*"_
 
 ---
