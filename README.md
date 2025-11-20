@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"Chop your own wood and it will warm you twice.  — *Henry Ford*"_
 
 ---
