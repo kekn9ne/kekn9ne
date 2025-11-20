@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
+_"A man should do his job so well that the living, the dead, and the unborn could do it no better. — *Martin Luther King, Jr.*"_
 
 ---
