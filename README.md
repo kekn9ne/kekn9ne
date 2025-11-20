@@ -7,6 +7,6 @@
 
 ---
 
-_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
+_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
