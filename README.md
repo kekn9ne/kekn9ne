@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 20 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you're the only sane person, you look like the only insane person. — *Criss Jami*"_
+_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
 
 ---
