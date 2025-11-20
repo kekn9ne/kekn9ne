@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
+_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
 
 ---
