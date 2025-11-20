@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you give, the more comes back to you. — *Napoleon Hill*"_
+_"If you chase two rabbits, you catch none. — *Confucius*"_
 
 ---
