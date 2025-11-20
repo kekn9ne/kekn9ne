@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"Everything you've ever wanted is on the other side of fear. — *Brian Tracy*"_
 
 ---
