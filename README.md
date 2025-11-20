@@ -7,6 +7,6 @@
 
 ---
 
-_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
+_"The ones who are crazy enough to think they can change the world, are the ones that do. — *Steve Jobs*"_
 
 ---
