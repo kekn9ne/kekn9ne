@@ -7,6 +7,6 @@
 
 ---
 
-_"Out of suffering have emerged the strongest souls; the most massive characters are seared with scars. — *Kahlil Gibran*"_
+_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
 
 ---
