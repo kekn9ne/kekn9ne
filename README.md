@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"All animals except man know that the principal business of life is to enjoy it. — *Samuel Butler*"_
 
 ---
