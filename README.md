@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
+_"Working hard for something we don't care about is called stress: Working hard for something we love is called passion. — *Simon Sinek*"_
 
 ---
