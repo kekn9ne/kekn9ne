@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 20 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +18°C**  
+🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
+_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
 
 ---
