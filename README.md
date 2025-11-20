@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 20 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"Fools resist. The wise embrace. — *Maxime Lagace*"_
+_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
 
 ---
