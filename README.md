@@ -7,6 +7,6 @@
 
 ---
 
-_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
+_"There is no value in anything until it is finished.  — *Genghis Khan*"_
 
 ---
