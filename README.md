@@ -7,6 +7,6 @@
 
 ---
 
-_"Chop your own wood and it will warm you twice.  — *Henry Ford*"_
+_"Do not allow your inner doubts to keep you from achieving what you can do. — *Lolly Daskal*"_
 
 ---
