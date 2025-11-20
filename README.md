@@ -7,6 +7,6 @@
 
 ---
 
-_"In the End, we will remember not the words of our enemies, but the silence of our friends. — *Martin Luther King, Jr.*"_
+_"In three words I can sum up everything I've learned about life: it goes on. — *Robert Frost*"_
 
 ---
