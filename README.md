@@ -7,6 +7,6 @@
 
 ---
 
-_"All animals except man know that the principal business of life is to enjoy it. — *Samuel Butler*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
