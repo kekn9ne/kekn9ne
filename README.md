@@ -7,6 +7,6 @@
 
 ---
 
-_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
+_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
 
 ---
