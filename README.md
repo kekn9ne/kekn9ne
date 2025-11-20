@@ -7,6 +7,6 @@
 
 ---
 
-_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
+_"Don't take yourself too seriously, pretty soon you can find the humor in our everyday lives. — *Betty White*"_
 
 ---
