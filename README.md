@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 20 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The only thing worse than being blind is having sight but no vision. — *Helen Keller*"_
+_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
 
 ---
