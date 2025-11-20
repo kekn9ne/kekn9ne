@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have the mind or you can have the moment. — *Naval Ravikant*"_
+_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
 
 ---
