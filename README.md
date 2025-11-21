@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
+_"Whether you think you can or think you can't – you are right. — *Henry Ford*"_
 
 ---
