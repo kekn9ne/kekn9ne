@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 21 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **RS6** by *Era7capone* 🎶
+🎧 Currently Listening: **Yokluğuna Dair** by *Sokrat St* 🎶
 
 ---
 
-_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
+_"If you try to micromanage yourself all you're going to do is make yourself miserable. — *Naval Ravikant*"_
 
 ---
