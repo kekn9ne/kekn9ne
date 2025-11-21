@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 21 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
+_"Be - don't try to become  — *Osho*"_
 
 ---
