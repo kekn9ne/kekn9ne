@@ -7,6 +7,6 @@
 
 ---
 
-_"My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand. — *Thich Nhat Hanh*"_
+_"If you let your head get too big, it'll break your neck. — *Elvis Presley*"_
 
 ---
