@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is like a dragon where, for every head cut off, two more heads grow back. — *Criss Jami*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
