@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
 
 ---
