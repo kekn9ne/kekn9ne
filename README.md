@@ -7,6 +7,6 @@
 
 ---
 
-_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
+_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
 
 ---
