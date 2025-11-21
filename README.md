@@ -7,6 +7,6 @@
 
 ---
 
-_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
+_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
 
 ---
