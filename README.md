@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +17°C**  
+🌤️ Weather in Istanbul: **☁️   +19°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
+_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
 
 ---
