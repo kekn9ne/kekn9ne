@@ -7,6 +7,6 @@
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
