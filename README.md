@@ -7,6 +7,6 @@
 
 ---
 
-_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
+_"The quieter you become, the more you are able to hear. — *Rumi*"_
 
 ---
