@@ -7,6 +7,6 @@
 
 ---
 
-_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
+_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
 
 ---
