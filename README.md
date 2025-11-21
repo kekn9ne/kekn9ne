@@ -7,6 +7,6 @@
 
 ---
 
-_"Man's character is his fate. — *Heraclitus*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
