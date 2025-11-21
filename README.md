@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 21 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +19°C**  
+🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **herkes kendine yakışanı yapsın** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Allow motion to equal emotion. — *Elbert Hubbard*"_
+_"Be not glad at the misfortune of another, though he may be your enemy.  — *George Washington*"_
 
 ---
