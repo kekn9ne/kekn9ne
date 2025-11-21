@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
