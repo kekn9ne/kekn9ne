@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
+_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
 
 ---
