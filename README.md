@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 21 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **FESTİVAL** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We turn not older with years but newer every day. — *Emily Dickinson*"_
+_"If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — *Elon Musk*"_
 
 ---
