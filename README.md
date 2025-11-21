@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can, does. — *George Bernard Shaw*"_
+_"We create the world and ourselves; — *Ming-Dao Deng*"_
 
 ---
