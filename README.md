@@ -7,6 +7,6 @@
 
 ---
 
-_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
+_"In the midst of chaos, there is also opportunity. — *Sun Tzu*"_
 
 ---
