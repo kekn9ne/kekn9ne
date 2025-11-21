@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 21 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RS6** by *Era7capone* 🎶
 
 ---
 
-_"Most of us will do anything to avoid facing ourselves. — *Lolly Daskal*"_
+_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
 
 ---
