@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 21 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +21°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
+_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
 
 ---
