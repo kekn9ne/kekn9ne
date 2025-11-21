@@ -7,6 +7,6 @@
 
 ---
 
-_"If you get up one more time than you fall, you will make it through. — *Chinese Proverb*"_
+_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
 
 ---
