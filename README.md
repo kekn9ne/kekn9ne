@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 21 November 2025**  
+🗓️ Today is: **Saturday, 22 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The quieter you become, the more you are able to hear. — *Rumi*"_
+_"Consider the rights of others before your own feelings, and the feelings of others before your own rights. — *John Wooden*"_
 
 ---
