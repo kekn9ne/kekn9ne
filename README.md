@@ -7,6 +7,6 @@
 
 ---
 
-_"Work is always an antidote to depression. — *Eleanor Roosevelt*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
