@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 21 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **FESTİVAL** by *Ati242* 🎶
 
 ---
 
-_"Be not glad at the misfortune of another, though he may be your enemy.  — *George Washington*"_
+_"We turn not older with years but newer every day. — *Emily Dickinson*"_
 
 ---
