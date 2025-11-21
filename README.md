@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
+_"Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new. — *Og Mandino*"_
 
 ---
