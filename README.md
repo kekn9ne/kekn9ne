@@ -7,6 +7,6 @@
 
 ---
 
-_"Consider the rights of others before your own feelings, and the feelings of others before your own rights. — *John Wooden*"_
+_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
 
 ---
