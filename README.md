@@ -7,6 +7,6 @@
 
 ---
 
-_"If you let your head get too big, it'll break your neck. — *Elvis Presley*"_
+_"You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — *A.A. Milne*"_
 
 ---
