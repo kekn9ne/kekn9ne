@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the life of purpose. — *Robin Sharma*"_
+_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
 
 ---
