@@ -7,6 +7,6 @@
 
 ---
 
-_"The season of failure is the best time for sowing the seeds of success.  — *Paramahansa Yogananda*"_
+_"I pay attention to every minute of the day. — *Steve Harvey*"_
 
 ---
