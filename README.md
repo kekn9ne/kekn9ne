@@ -7,6 +7,6 @@
 
 ---
 
-_"We create the world and ourselves; — *Ming-Dao Deng*"_
+_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
 
 ---
