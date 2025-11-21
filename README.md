@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is patience. — *Isaac Newton*"_
+_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
 
 ---
