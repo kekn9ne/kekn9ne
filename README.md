@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 22 November 2025**  
 🌤️ Weather in Istanbul: **☁️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yemin Ederim** by *Heja* 🎶
 
 ---
 
-_"Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy. — *Roy T. Bennett*"_
+_"All leaders are readers. — *Jim Rohn*"_
 
 ---
