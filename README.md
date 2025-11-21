@@ -7,6 +7,6 @@
 
 ---
 
-_"I pay attention to every minute of the day. — *Steve Harvey*"_
+_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
 
 ---
