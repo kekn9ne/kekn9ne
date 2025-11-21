@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
+_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
 
 ---
