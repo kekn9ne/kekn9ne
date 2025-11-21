@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 21 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +18°C**  
+🌤️ Weather in Istanbul: **☁️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Yokluğuna Dair** by *Sokrat St* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you try to micromanage yourself all you're going to do is make yourself miserable. — *Naval Ravikant*"_
+_"We are all here for some special reason. — *Robin Sharma*"_
 
 ---
