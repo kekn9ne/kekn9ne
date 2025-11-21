@@ -7,6 +7,6 @@
 
 ---
 
-_"Whether you think you can or think you can't – you are right. — *Henry Ford*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
