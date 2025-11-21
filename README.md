@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
 
 ---
