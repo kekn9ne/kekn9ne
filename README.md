@@ -7,6 +7,6 @@
 
 ---
 
-_"Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new. — *Og Mandino*"_
+_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
 
 ---
