@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who has ever made anything of importance was disciplined. — *Andrew Hendrixson*"_
+_"Every man gotta right to decide his own destiny. — *Bob Marley*"_
 
 ---
