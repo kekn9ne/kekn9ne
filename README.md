@@ -7,6 +7,6 @@
 
 ---
 
-_"It ain't where you start in life, it's where you end up, and what you did along the way. — *Colin Powell*"_
+_"Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution. — *Kahlil Gibran*"_
 
 ---
