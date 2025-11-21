@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all here for some special reason. — *Robin Sharma*"_
+_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
 
 ---
