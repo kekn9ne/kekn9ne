@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
+_"My actions are my only true belongings. I cannot escape the consequences of my actions. My actions are the ground upon which I stand. — *Thich Nhat Hanh*"_
 
 ---
