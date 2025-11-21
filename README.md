@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"Don't waste your time in anger, regrets, worries, and grudges. Life is too short to be unhappy. — *Roy T. Bennett*"_
 
 ---
