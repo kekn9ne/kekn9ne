@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
+_"If you get up one more time than you fall, you will make it through. — *Chinese Proverb*"_
 
 ---
