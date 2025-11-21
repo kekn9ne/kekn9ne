@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
