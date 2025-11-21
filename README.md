@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 21 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **big three freestyle** by *EGE!* 🎶
 
 ---
 
-_"Be - don't try to become  — *Osho*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
