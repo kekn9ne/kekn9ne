@@ -7,6 +7,6 @@
 
 ---
 
-_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
+_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
 
 ---
