@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
+_"Anyone who has ever made anything of importance was disciplined. — *Andrew Hendrixson*"_
 
 ---
