@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
+_"The search for happiness is one of the chief sources of unhappiness. — *Eric Hoffer*"_
 
 ---
