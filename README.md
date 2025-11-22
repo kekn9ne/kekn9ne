@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections. — *Bob Marley*"_
+_"To be heroic is to be courageous enough to die for something; to be inspirational is to be crazy enough to live a little. — *Criss Jami*"_
 
 ---
