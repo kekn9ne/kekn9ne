@@ -7,6 +7,6 @@
 
 ---
 
-_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
+_"We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet. — *Thich Nhat Hanh*"_
 
 ---
