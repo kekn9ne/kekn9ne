@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
+_"You can't get to a place that you don't believe exists. — *Unknown*"_
 
 ---
