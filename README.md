@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +21°C**  
+🌤️ Weather in Istanbul: **☁️   +20°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You miss 100% of the shots you don't take. — *Wayne Gretzky*"_
+_"The important thing is not what one is born with but what use one makes of that equipment. — *Alfred Adler*"_
 
 ---
