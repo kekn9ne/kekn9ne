@@ -7,6 +7,6 @@
 
 ---
 
-_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
+_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
 
 ---
