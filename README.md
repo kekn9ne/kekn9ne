@@ -7,6 +7,6 @@
 
 ---
 
-_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
+_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
 
 ---
