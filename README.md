@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
+_"Leadership is solving problems — *Colin Powell*"_
 
 ---
