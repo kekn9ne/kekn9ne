@@ -7,6 +7,6 @@
 
 ---
 
-_"In a world of change, the learners shall inherit the earth, while the learned shall find themselves perfectly suited for a world that no longer exists. — *Eric Hoffer*"_
+_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
 
 ---
