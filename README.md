@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +21°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ELJF** by *Jefe* 🎶
+🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
 
 ---
 
-_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
+_"Just because you are happy it does not mean that the day is perfect but that you have looked beyond its imperfections. — *Bob Marley*"_
 
 ---
