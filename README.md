@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +20°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SUBMARINER** by *AKDO* 🎶
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
+_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
 
 ---
