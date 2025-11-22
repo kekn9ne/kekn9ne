@@ -7,6 +7,6 @@
 
 ---
 
-_"Make your mind your own business. — *Jack Butcher*"_
+_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
 
 ---
