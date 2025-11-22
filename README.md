@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a poor teacher. — *Robert Kiyosaki*"_
+_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
 
 ---
