@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
+_"You miss 100% of the shots you don't take. — *Wayne Gretzky*"_
 
 ---
