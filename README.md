@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
+_"Nothing like a health problem to turn up the contrast dial for the rest of life. — *Naval Ravikant*"_
 
 ---
