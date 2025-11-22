@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace if possible, truth at all costs. — *Martin Luther*"_
+_"Forgive yourself for your faults and your mistakes and move on. — *Les Brown*"_
 
 ---
