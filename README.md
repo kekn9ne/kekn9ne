@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
+_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
 
 ---
