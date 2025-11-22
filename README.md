@@ -7,6 +7,6 @@
 
 ---
 
-_"Never do to others what you would not like them to do to you.  — *Confucius*"_
+_"It is not how much we have, but how much we enjoy, that makes happiness. — *Charles Spurgeon*"_
 
 ---
