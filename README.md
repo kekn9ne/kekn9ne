@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"Success is stumbling from failure to failure with no loss of enthusiasm. — *Winston Churchill*"_
 
 ---
