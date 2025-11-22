@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
