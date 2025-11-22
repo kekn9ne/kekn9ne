@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to accept whatever comes, and the only important thing is that you meet it with the best you have to give. — *Eleanor Roosevelt*"_
+_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
 
 ---
