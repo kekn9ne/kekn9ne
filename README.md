@@ -7,6 +7,6 @@
 
 ---
 
-_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
+_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
 
 ---
