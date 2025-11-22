@@ -7,6 +7,6 @@
 
 ---
 
-_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
+_"For every effect there is a root cause. Find and address the root cause rather than try to fix the effect, as there is no end to the latter. — *Celestine Chua*"_
 
 ---
