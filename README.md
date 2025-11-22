@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +17°C**  
+🌤️ Weather in Istanbul: **☁️   +19°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
+_"Never take your position for granted and never let any favors you receive go to your head. — *Robert Greene*"_
 
 ---
