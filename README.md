@@ -7,6 +7,6 @@
 
 ---
 
-_"The important thing is not what one is born with but what use one makes of that equipment. — *Alfred Adler*"_
+_"If light is in your heart, you will find your way home.   — *Rumi*"_
 
 ---
