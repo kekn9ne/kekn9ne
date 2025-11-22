@@ -7,6 +7,6 @@
 
 ---
 
-_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
+_"Always turn a negative situation into a positive situation. — *Michael Jordan*"_
 
 ---
