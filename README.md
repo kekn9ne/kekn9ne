@@ -7,6 +7,6 @@
 
 ---
 
-_"The clock indicates the moment...but what does eternity indicate? — *Walt Whitman*"_
+_"Nature is pleased with simplicity. And nature is no dummy. — *Isaac Newton*"_
 
 ---
