@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🗓️ Today is: **Sunday, 23 November 2025**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
+_"You'll see it when you believe it.  — *Wayne Dyer*"_
 
 ---
