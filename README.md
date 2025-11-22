@@ -7,6 +7,6 @@
 
 ---
 
-_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
+_"Peace if possible, truth at all costs. — *Martin Luther*"_
 
 ---
