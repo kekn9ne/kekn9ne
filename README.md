@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 22 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +21°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ELJF** by *Jefe* 🎶
 
 ---
 
-_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
+_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
 
 ---
