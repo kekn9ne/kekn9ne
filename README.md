@@ -7,6 +7,6 @@
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
