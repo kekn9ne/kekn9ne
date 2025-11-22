@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not the absence of conflict, but the ability to cope with it. — *Unknown*"_
+_"I begin with an idea and then it becomes something else. — *Pablo Picasso*"_
 
 ---
