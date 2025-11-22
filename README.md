@@ -7,6 +7,6 @@
 
 ---
 
-_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
+_"Never do to others what you would not like them to do to you.  — *Confucius*"_
 
 ---
