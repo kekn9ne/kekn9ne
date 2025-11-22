@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 22 November 2025**  
-🌤️ Weather in Istanbul: **☁️   +18°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
 
 ---
