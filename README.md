@@ -7,6 +7,6 @@
 
 ---
 
-_"Forgive yourself for your faults and your mistakes and move on. — *Les Brown*"_
+_"It is best to begin at the beginning. — *Amelia Earhart*"_
 
 ---
