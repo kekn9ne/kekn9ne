@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
+_"Peace if possible, truth at all costs. — *Martin Luther*"_
 
 ---
