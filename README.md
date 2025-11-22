@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
