@@ -7,6 +7,6 @@
 
 ---
 
-_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
+_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
 
 ---
