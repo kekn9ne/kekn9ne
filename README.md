@@ -7,6 +7,6 @@
 
 ---
 
-_"Death is not an ending. It is a transformation. — *Ming-Dao Deng*"_
+_"Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.  — *Oprah Winfrey*"_
 
 ---
