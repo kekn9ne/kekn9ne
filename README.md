@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **🌦   +19°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ORTAM 2.0** by *Woldy404* 🎶
 
 ---
 
-_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
+_"Some people don't like change, but you need to embrace change if the alternative is disaster. — *Elon Musk*"_
 
 ---
