@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +19°C**  
+🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Work as though you would live forever, and live as though you would die today. Go another mile. — *Og Mandino*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
