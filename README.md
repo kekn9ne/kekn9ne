@@ -7,6 +7,6 @@
 
 ---
 
-_"The businessman's tool is value. — *Ayn Rand*"_
+_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
 
 ---
