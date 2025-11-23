@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending. — *Carl Bard*"_
 
 ---
