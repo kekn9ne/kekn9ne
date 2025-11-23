@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +18°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
