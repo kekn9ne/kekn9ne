@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We should not look back unless it is to derive useful lessons from past errors. — *George Washington*"_
+_"Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present. — *George Bernard Shaw*"_
 
 ---
