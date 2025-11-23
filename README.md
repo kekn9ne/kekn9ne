@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +17°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
+_"The less you want, the richer you are. The more you need in order to be happy, the more miserable you'll be. — *Yanni*"_
 
 ---
