@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"We must create our own world or we will die from inaction. — *Robert Greene*"_
 
 ---
