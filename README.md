@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the noise of others opinions drown out your inner voice. — *Steve Jobs*"_
+_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
 
 ---
