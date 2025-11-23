@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +19°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
+_"We should not look back unless it is to derive useful lessons from past errors. — *George Washington*"_
 
 ---
