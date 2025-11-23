@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
+_"When you rise in the morning, form a resolution to make the day a happy one for a fellow creature. — *Sydney Smith*"_
 
 ---
