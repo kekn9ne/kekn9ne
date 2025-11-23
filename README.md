@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy. — *Celestine Chua*"_
+_"Work as though you would live forever, and live as though you would die today. Go another mile. — *Og Mandino*"_
 
 ---
