@@ -7,6 +7,6 @@
 
 ---
 
-_"Though no one can go back and make a brand new start, anyone can start from now and make a brand new ending. — *Carl Bard*"_
+_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
 
 ---
