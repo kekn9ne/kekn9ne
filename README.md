@@ -7,6 +7,6 @@
 
 ---
 
-_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
+_"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means. — *Ronald Reagan*"_
 
 ---
