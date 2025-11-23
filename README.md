@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +19°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
+_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
 
 ---
