@@ -7,6 +7,6 @@
 
 ---
 
-_"Let us always meet each other with smile, for the smile is the beginning of love. — *Mother Teresa*"_
+_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
 
 ---
