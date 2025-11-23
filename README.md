@@ -7,6 +7,6 @@
 
 ---
 
-_"You can do two things at once, but you can't focus effectively on two things at once. — *Gary Keller*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
