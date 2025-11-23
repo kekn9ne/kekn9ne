@@ -7,6 +7,6 @@
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
 
 ---
