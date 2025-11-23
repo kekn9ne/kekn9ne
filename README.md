@@ -7,6 +7,6 @@
 
 ---
 
-_"Be thankful for what you have; you'll end up having more. If you concentrate on what you don't have, you will never, ever have enough.  — *Oprah Winfrey*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
