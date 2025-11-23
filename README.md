@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
