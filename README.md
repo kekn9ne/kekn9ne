@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
+_"You can do two things at once, but you can't focus effectively on two things at once. — *Gary Keller*"_
 
 ---
