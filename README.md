@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 23 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +17°C**  
+🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you see yourself as prosperous, you will be. — *Robert Collier*"_
+_"Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy. — *Celestine Chua*"_
 
 ---
