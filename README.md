@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present. — *George Bernard Shaw*"_
+_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
 
 ---
