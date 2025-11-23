@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is doing what you don't want to do but know you should do. — *Joyce Meyer*"_
+_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
 
 ---
