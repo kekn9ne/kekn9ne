@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 23 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KAYKAY** by *Era7capone* 🎶
 
 ---
 
-_"Believe in one thing too much and you have no room for new ideas.   — *Ray Bradbury*"_
+_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
 
 ---
