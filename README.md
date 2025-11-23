@@ -7,6 +7,6 @@
 
 ---
 
-_"What gets measured gets improved. — *Robin Sharma*"_
+_"The trouble with the rat race is that even if you win, you're still a rat. — *Lily Tomlin*"_
 
 ---
