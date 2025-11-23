@@ -7,6 +7,6 @@
 
 ---
 
-_"Open your mind before your mouth. — *Aristophanes*"_
+_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
 
 ---
