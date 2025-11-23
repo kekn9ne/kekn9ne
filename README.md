@@ -7,6 +7,6 @@
 
 ---
 
-_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
+_"I will not walk backward in life. — *J.R.R. Tolkien*"_
 
 ---
