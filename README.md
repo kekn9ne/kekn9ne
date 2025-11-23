@@ -7,6 +7,6 @@
 
 ---
 
-_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goal. — *Henry Ford*"_
 
 ---
