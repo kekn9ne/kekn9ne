@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, so shall you become.  — *Bruce Lee*"_
+_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
 
 ---
