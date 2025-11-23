@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
+_"What gets measured gets improved. — *Robin Sharma*"_
 
 ---
