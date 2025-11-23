@@ -7,6 +7,6 @@
 
 ---
 
-_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
+_"The businessman's tool is value. — *Ayn Rand*"_
 
 ---
