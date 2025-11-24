@@ -7,6 +7,6 @@
 
 ---
 
-_"Human happiness and moral duty are inseparably connected.  — *George Washington*"_
+_"We tend to live up to our expectations. — *Earl Nightingale*"_
 
 ---
