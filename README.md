@@ -7,6 +7,6 @@
 
 ---
 
-_"We ordinary people must forge our own beauty. — *Kenji Miyazawa*"_
+_"There is little success where there is little laughter. — *Andrew Carnegie*"_
 
 ---
