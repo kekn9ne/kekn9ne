@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 24 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A good character is the best tombstone. Carve your name on hearts, not on marble. — *Charles Spurgeon*"_
+_"You can't wait for inspiration. You have to go after it with a club.  — *Jack London*"_
 
 ---
