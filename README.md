@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
+_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
 
 ---
