@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 25 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
+_"The eyes of others our prisons; their thoughts our cages. — *Virginia Woolf*"_
 
 ---
