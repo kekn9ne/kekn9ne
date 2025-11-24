@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
+_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
 
 ---
