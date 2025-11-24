@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 24 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Esnettim** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life's too mysterious to take too serious. — *Mary Engelbreit*"_
+_"You win more from losing than winning. — *Morgan Wootten*"_
 
 ---
