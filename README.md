@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace. — *Earl Nightingale*"_
+_"Imagination is more important than knowledge. — *Albert Einstein*"_
 
 ---
