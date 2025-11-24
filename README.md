@@ -7,6 +7,6 @@
 
 ---
 
-_"Create with the heart; build with the mind. — *Criss Jami*"_
+_"The greatest of empires, is the empire over one's self. — *Publilius Syrus*"_
 
 ---
