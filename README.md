@@ -7,6 +7,6 @@
 
 ---
 
-_"A diamond is a piece of charcoal that handled stress exceptionally well. — *Unknown*"_
+_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
 
 ---
