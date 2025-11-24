@@ -7,6 +7,6 @@
 
 ---
 
-_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
+_"Happiness is a quality of the soul...not a function of one's material circumstances. — *Aristotle*"_
 
 ---
