@@ -7,6 +7,6 @@
 
 ---
 
-_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
+_"All you need is passion. If you have a passion for something, you'll create the talent. — *Yanni*"_
 
 ---
