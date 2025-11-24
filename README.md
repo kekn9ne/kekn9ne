@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 24 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **kAHpE** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
+_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
 
 ---
