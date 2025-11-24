@@ -7,6 +7,6 @@
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
 
 ---
