@@ -7,6 +7,6 @@
 
 ---
 
-_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
+_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
 
 ---
