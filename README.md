@@ -7,6 +7,6 @@
 
 ---
 
-_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
