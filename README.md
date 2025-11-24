@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
+_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
 
 ---
