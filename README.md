@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't wait for inspiration. You have to go after it with a club.  — *Jack London*"_
+_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
 
 ---
