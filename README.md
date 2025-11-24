@@ -7,6 +7,6 @@
 
 ---
 
-_"Even in the grave, all is not lost. — *Edgar Allan Poe*"_
+_"Don't be afraid to see what you see. — *Ronald Reagan*"_
 
 ---
