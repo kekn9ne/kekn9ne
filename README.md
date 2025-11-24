@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
