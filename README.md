@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 24 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Altımda Volkswagen GT - Remix** by *kayax19* 🎶
+🎧 Currently Listening: **TNT** by *EGE!* 🎶
 
 ---
 
-_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
+_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
 
 ---
