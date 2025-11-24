@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 24 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
+_"Remain calm. Be kind. — *Colin Powell*"_
 
 ---
