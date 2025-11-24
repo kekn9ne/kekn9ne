@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 24 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABBAS** by *Reta* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you are going to achieve excellence in big things, you develop the habit in little matters. — *Colin Powell*"_
+_"All has not been said and never will be. — *Samuel Beckett*"_
 
 ---
