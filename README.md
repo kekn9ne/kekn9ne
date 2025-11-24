@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
 
 ---
