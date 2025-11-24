@@ -7,6 +7,6 @@
 
 ---
 
-_"You were born to win, but to be a winner, you must plan to win, prepare to win, expect to win. — *Arnold Schwarzenegger*"_
+_"We ordinary people must forge our own beauty. — *Kenji Miyazawa*"_
 
 ---
