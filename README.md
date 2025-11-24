@@ -7,6 +7,6 @@
 
 ---
 
-_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
+_"Even if our home burns down we can rebuild it. But the things that we got for nothing, we can never replace. — *Earl Nightingale*"_
 
 ---
