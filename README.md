@@ -7,6 +7,6 @@
 
 ---
 
-_"While we may not be able to control all that happens to us, we can control what happens inside us. — *Benjamin Franklin*"_
+_"Our deeds determine us, as much as we determine our deeds. — *George Eliot*"_
 
 ---
