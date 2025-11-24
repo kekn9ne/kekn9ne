@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 25 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **space song - slowed + reverb** by *Vallvete* 🎶
 
 ---
 
-_"The eyes of others our prisons; their thoughts our cages. — *Virginia Woolf*"_
+_"It is better to offer no excuse than a bad one.  — *George Washington*"_
 
 ---
