@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
