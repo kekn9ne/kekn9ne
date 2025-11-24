@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
 
 ---
