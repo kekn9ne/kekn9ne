@@ -7,6 +7,6 @@
 
 ---
 
-_"Create with the heart; build with the mind. — *Criss Jami*"_
+_"The wisest men follow their own direction. — *Euripides*"_
 
 ---
