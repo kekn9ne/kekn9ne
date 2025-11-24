@@ -7,6 +7,6 @@
 
 ---
 
-_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
+_"A good character is the best tombstone. Carve your name on hearts, not on marble. — *Charles Spurgeon*"_
 
 ---
