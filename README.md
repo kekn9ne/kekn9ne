@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest of empires, is the empire over one's self. — *Publilius Syrus*"_
+_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
 
 ---
