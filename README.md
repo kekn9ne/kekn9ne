@@ -7,6 +7,6 @@
 
 ---
 
-_"What would life be if we had no courage to attempt anything?  — *Vincent van Gogh*"_
+_"No one can hurt you without your consent. — *Eleanor Roosevelt*"_
 
 ---
