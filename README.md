@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 25 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sokak Güvercini** by *Stabil* 🎶
 
 ---
 
-_"Observe things as they are and don't pay attention to other people. — *Huang Po*"_
+_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
 
 ---
