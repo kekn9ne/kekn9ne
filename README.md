@@ -7,6 +7,6 @@
 
 ---
 
-_"The more something threatens your identity, the more you will avoid it. — *Mark Manson*"_
+_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
 
 ---
