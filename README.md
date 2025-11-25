@@ -7,6 +7,6 @@
 
 ---
 
-_"Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through. — *Jonathan Swift*"_
+_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
 
 ---
