@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
+_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
 
 ---
