@@ -7,6 +7,6 @@
 
 ---
 
-_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
+_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
 
 ---
