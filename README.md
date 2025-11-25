@@ -7,6 +7,6 @@
 
 ---
 
-_"You are today where your thoughts have brought you. — *James Allen*"_
+_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
 
 ---
