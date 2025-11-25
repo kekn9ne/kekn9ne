@@ -7,6 +7,6 @@
 
 ---
 
-_"Conquer the devils with a little thing called love. — *Bob Marley*"_
+_"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over. — *Joan Rivers*"_
 
 ---
