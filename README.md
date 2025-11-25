@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
+_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
 
 ---
