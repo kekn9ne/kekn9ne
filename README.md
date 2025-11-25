@@ -7,6 +7,6 @@
 
 ---
 
-_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
+_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
 
 ---
