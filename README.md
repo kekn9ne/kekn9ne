@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 26 November 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Güldüğün Gün** by *Wegh* 🎶
 
 ---
 
-_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
+_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
 
 ---
