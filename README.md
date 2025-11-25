@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is only real, when shared. — *Christopher McCandless*"_
+_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
 
 ---
