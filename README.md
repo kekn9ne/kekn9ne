@@ -7,6 +7,6 @@
 
 ---
 
-_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
+_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
 
 ---
