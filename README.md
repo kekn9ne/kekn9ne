@@ -7,6 +7,6 @@
 
 ---
 
-_"He who has overcome his fears will truly be free. — *Aristotle*"_
+_"Know yourself and you will win all battles. — *Sun Tzu*"_
 
 ---
