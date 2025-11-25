@@ -7,6 +7,6 @@
 
 ---
 
-_"Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad. — *Harry S. Truman*"_
+_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
 
 ---
