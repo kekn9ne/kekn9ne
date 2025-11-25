@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"You are today where your thoughts have brought you. — *James Allen*"_
 
 ---
