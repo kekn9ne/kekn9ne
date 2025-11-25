@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 26 November 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"Forget yesterday - it has already forgotten you. Don't sweat tomorrow - you haven't even met. Instead, open your eyes and your heart to a truly precious gift - today. — *Steve Maraboli*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
