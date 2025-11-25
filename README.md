@@ -7,6 +7,6 @@
 
 ---
 
-_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
+_"We can have more than we've got because we can become more than we are. — *Jim Rohn*"_
 
 ---
