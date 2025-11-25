@@ -7,6 +7,6 @@
 
 ---
 
-_"The enemy is a very good teacher. — *Dalai Lama*"_
+_"Observe things as they are and don't pay attention to other people. — *Huang Po*"_
 
 ---
