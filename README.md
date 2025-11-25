@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter how slow you go, as long as you don't stop. — *Confucius*"_
+_"There are no mistakes in life, only lessons. — *Robin Sharma*"_
 
 ---
