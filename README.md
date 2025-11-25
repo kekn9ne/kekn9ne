@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 25 November 2025**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **DOLDURDUM TABANCAMI** by *Poizi* 🎶
+🎧 Currently Listening: **Dünyaya Yazık** by *No.1* 🎶
 
 ---
 
-_"The whole problem with the world is the fools and fanatics are always so sure of themselves, and wiser people are full of doubts. — *George Bernard Shaw*"_
+_"I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better. — *Elon Musk*"_
 
 ---
