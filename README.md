@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 26 November 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
+🎧 Currently Listening: **YALAN DÜNYA** by *UZI* 🎶
 
 ---
 
-_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
+_"The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time. — *Dan Millman*"_
 
 ---
