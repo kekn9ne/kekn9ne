@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 25 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ana Bırak Çalayım** by *Burosyex* 🎶
+🎧 Currently Listening: **İkimizede Yazık 2.0** by *leteralq* 🎶
 
 ---
 
-_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
+_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
 
 ---
