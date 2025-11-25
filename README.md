@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 25 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Rudeness is the weak man's imitation of strength. — *Eric Hoffer*"_
+_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
 
 ---
