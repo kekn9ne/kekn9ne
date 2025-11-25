@@ -7,6 +7,6 @@
 
 ---
 
-_"We can have more than we've got because we can become more than we are. — *Jim Rohn*"_
+_"The enemy is a very good teacher. — *Dalai Lama*"_
 
 ---
