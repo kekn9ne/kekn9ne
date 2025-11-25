@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 25 November 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
+_"Making money isn't hard in itself... What's hard is to earn it doing something worth devoting one's life to. — *Carlos Ruiz Zafon*"_
 
 ---
