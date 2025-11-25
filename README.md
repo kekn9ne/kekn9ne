@@ -7,6 +7,6 @@
 
 ---
 
-_"The pursuit of mastery bears gifts.  — *Gary Keller*"_
+_"Before you embark on a journey of revenge, dig two graves.  — *Confucius*"_
 
 ---
