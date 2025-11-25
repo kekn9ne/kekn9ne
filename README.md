@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 26 November 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Güldüğün Gün** by *Wegh* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The way to change others' minds is with affection, and not anger. — *Dalai Lama*"_
+_"Happiness is only real, when shared. — *Christopher McCandless*"_
 
 ---
