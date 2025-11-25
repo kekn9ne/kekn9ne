@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
+_"He who has overcome his fears will truly be free. — *Aristotle*"_
 
 ---
