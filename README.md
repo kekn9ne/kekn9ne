@@ -7,6 +7,6 @@
 
 ---
 
-_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
+_"Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad. — *Harry S. Truman*"_
 
 ---
