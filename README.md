@@ -7,6 +7,6 @@
 
 ---
 
-_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
+_"Conquer the devils with a little thing called love. — *Bob Marley*"_
 
 ---
