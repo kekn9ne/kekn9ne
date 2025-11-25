@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do your best. What you plant now, you will harvest later. — *Og Mandino*"_
+_"It is indeed a radical act of love just to sit down and be quiet for a time by yourself. — *Jon Kabat-Zinn*"_
 
 ---
