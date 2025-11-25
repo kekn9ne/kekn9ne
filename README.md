@@ -7,6 +7,6 @@
 
 ---
 
-_"Be as fluid as water, do not give your enemies anything solid to attack. — *Robert Greene*"_
+_"We ordinary people must forge our own beauty. — *Kenji Miyazawa*"_
 
 ---
