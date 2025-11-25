@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
+_"Giving back involves a certain amount of giving up. — *Colin Powell*"_
 
 ---
