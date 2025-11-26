@@ -7,6 +7,6 @@
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"Make your mind your own business. — *Jack Butcher*"_
 
 ---
