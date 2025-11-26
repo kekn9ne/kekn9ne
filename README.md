@@ -7,6 +7,6 @@
 
 ---
 
-_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
+_"The big thing is to make a winning effort. I'm not obsessed with wins. — *Morgan Wootten*"_
 
 ---
