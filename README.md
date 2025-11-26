@@ -7,6 +7,6 @@
 
 ---
 
-_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
+_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
 
 ---
