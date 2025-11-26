@@ -7,6 +7,6 @@
 
 ---
 
-_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
+_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
 
 ---
