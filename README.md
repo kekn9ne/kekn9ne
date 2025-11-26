@@ -7,6 +7,6 @@
 
 ---
 
-_"To live outside the law, you must be honest.  — *Bob Dylan*"_
+_"It is our choices that show what we truly are, far more than our abilities. — *Albus Dumbledore*"_
 
 ---
