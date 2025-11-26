@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 26 November 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Demiştim Ben** by *İkra* 🎶
 
 ---
 
-_"Luck is what happens when preparation meets opportunity.   — *Seneca*"_
+_"Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don't have to have it all figured out to move forward. — *Roy T. Bennett*"_
 
 ---
