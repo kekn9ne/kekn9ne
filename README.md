@@ -7,6 +7,6 @@
 
 ---
 
-_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
+_"People do not decide their futures, they decide their habits and their habits decide their futures. — *Gary Keller*"_
 
 ---
