@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
+_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
 
 ---
