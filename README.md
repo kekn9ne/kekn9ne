@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
+_"There is no greatness where there is not simplicity, goodness, and truth. — *Leo Tolstoy*"_
 
 ---
