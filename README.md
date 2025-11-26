@@ -7,6 +7,6 @@
 
 ---
 
-_"Create with the heart; build with the mind. — *Criss Jami*"_
+_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
 
 ---
