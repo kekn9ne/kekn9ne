@@ -7,6 +7,6 @@
 
 ---
 
-_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
+_"Victims recite problems, leaders provide solutions. — *Robin Sharma*"_
 
 ---
