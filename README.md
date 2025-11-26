@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 26 November 2025**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Para Yapmakta** by *Era7capone* 🎶
+🎧 Currently Listening: **GASP ET** by *Rackzen* 🎶
 
 ---
 
-_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
+_"Genius is patience. — *Isaac Newton*"_
 
 ---
