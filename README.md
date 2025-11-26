@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
+_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
 
 ---
