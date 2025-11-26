@@ -7,6 +7,6 @@
 
 ---
 
-_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
+_"Desire is suffering. — *Naval Ravikant*"_
 
 ---
