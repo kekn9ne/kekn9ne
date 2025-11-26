@@ -7,6 +7,6 @@
 
 ---
 
-_"People do not decide their futures, they decide their habits and their habits decide their futures. — *Gary Keller*"_
+_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
 
 ---
