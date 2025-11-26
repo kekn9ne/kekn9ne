@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 26 November 2025**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The Art of Peace begins with you. — *Morihei Ueshiba*"_
+_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
 
 ---
