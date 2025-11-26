@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep your dreams, you never know when you might need them. — *Carlos Ruiz Zafon*"_
+_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
 
 ---
