@@ -7,6 +7,6 @@
 
 ---
 
-_"Of all men's miseries the bitterest is this: to know so much and to have control over nothing.  — *Herodotus*"_
+_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
 
 ---
