@@ -7,6 +7,6 @@
 
 ---
 
-_"Man is affected not by events but by the view he takes of them.   — *Seneca*"_
+_"Be the change that you want to see in the world. — *Mahatma Gandhi*"_
 
 ---
