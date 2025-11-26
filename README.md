@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 26 November 2025**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The way to get started is to quit talking and begin doing. — *Walt Disney*"_
+_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
 
 ---
