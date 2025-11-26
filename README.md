@@ -7,6 +7,6 @@
 
 ---
 
-_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
+_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
 
 ---
