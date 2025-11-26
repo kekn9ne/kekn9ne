@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire is suffering. — *Naval Ravikant*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
