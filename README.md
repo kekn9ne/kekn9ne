@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not the outcome. I am never the result. I am only the effort. — *Kamal Ravikant*"_
+_"If you want peace, you won't get it with violence. — *John Lennon*"_
 
 ---
