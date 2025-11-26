@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 27 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PERDE** by *Poizi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
+_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
 
 ---
