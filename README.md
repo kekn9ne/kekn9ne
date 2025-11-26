@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for a sanctuary in anyone except your self. — *Buddha*"_
+_"Keep your dreams, you never know when you might need them. — *Carlos Ruiz Zafon*"_
 
 ---
