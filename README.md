@@ -7,6 +7,6 @@
 
 ---
 
-_"Enlightenment is intimacy with all things. — *Dogen*"_
+_"The wise accomplish all that they want without arousing the envy or scorn of others. — *Ming-Dao Deng*"_
 
 ---
