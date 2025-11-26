@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to be irreplaceable one must always be different. — *Coco Chanel*"_
+_"To live outside the law, you must be honest.  — *Bob Dylan*"_
 
 ---
