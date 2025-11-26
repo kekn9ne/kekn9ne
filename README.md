@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
+_"Do one thing every day that scares you. — *Eleanor Roosevelt*"_
 
 ---
