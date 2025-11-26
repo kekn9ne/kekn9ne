@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
+_"Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined. — *Deepak Chopra*"_
 
 ---
