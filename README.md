@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 27 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Olmadı** by *Velet* 🎶
 
 ---
 
-_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
+_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
 
 ---
