@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 26 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +18°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Para Yapmakta** by *Era7capone* 🎶
 
 ---
 
-_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
