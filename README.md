@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 26 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🗓️ Today is: **Thursday, 27 November 2025**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Introvert** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The mind can calculate, but the spirit yearns, and the heart wants what the heart wants. — *Stephen King*"_
+_"Whoever is happy will make others happy too. — *Anne Frank*"_
 
 ---
