@@ -7,6 +7,6 @@
 
 ---
 
-_"Today is the oldest you've ever been, and the youngest you'll ever be again. — *Eleanor Roosevelt*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
