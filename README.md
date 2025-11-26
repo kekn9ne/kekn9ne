@@ -7,6 +7,6 @@
 
 ---
 
-_"Whoever is happy will make others happy too. — *Anne Frank*"_
+_"Every saint has a past, and every sinner has a future. — *Oscar Wilde*"_
 
 ---
