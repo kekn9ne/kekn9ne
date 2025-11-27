@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option, fear is not. — *James Cameron*"_
+_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
 
 ---
