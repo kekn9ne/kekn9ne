@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to sit back and observe, not everything needs a reaction. — *Unknown*"_
+_"We must not sit down and wait for miracles. Up and be going! — *John Eliot*"_
 
 ---
