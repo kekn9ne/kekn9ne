@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 27 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Olmadı** by *Velet* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
+_"The whole is greater than the sum of its parts. — *Aristotle*"_
 
 ---
