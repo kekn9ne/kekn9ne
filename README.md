@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole is greater than the sum of its parts. — *Aristotle*"_
+_"Learn to sit back and observe, not everything needs a reaction. — *Unknown*"_
 
 ---
