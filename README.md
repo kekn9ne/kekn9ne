@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools resist. The wise embrace. — *Maxime Lagace*"_
+_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
 
 ---
