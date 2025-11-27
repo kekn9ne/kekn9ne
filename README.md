@@ -7,6 +7,6 @@
 
 ---
 
-_"Create with the heart; build with the mind. — *Criss Jami*"_
+_"Don't explain your philosophy. Embody it. — *Epictetus*"_
 
 ---
