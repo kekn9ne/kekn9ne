@@ -7,6 +7,6 @@
 
 ---
 
-_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
+_"I am not absentminded. It is the presence of mind that makes me unaware of everything else. — *Gilbert Chesterton*"_
 
 ---
