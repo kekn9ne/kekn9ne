@@ -7,6 +7,6 @@
 
 ---
 
-_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
+_"There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — *G.I. Gurdjieff*"_
 
 ---
