@@ -7,6 +7,6 @@
 
 ---
 
-_"The mind that turns ever outward Will have no end to craving. Only the mind turned inward Will find a still-point of peace. — *Ming-Dao Deng*"_
+_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
 
 ---
