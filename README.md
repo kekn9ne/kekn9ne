@@ -7,6 +7,6 @@
 
 ---
 
-_"Every adversity, every failure, every heartbreak, carries with it the seed of an equal or greater benefit. — *Napoleon Hill*"_
+_"Wherever you are is the entry point. — *Kabir*"_
 
 ---
