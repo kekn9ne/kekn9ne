@@ -7,6 +7,6 @@
 
 ---
 
-_"The first man gets the oyster, the second man gets the shell. — *Andrew Carnegie*"_
+_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
 
 ---
