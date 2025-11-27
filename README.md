@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 27 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +15°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To be able to forget means sanity. — *Jack London*"_
+_"Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through. — *Jonathan Swift*"_
 
 ---
