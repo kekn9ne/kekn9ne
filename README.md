@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 27 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Vurdum** by *Mass* 🎶
 
 ---
 
-_"Confidence is what you have before you understand the problem. — *Woody Allen*"_
+_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
 
 ---
