@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"Failure is an option, fear is not. — *James Cameron*"_
 
 ---
