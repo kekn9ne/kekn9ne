@@ -7,6 +7,6 @@
 
 ---
 
-_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
