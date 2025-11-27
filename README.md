@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing will work unless you do. — *Maya Angelou*"_
+_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
 
 ---
