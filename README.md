@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not sit down and wait for miracles. Up and be going! — *John Eliot*"_
+_"Open your mind before your mouth. — *Aristophanes*"_
 
 ---
