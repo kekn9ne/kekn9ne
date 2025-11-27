@@ -7,6 +7,6 @@
 
 ---
 
-_"To arrive at the simplest truth requires years of contemplation. — *Isaac Newton*"_
+_"To be able to forget means sanity. — *Jack London*"_
 
 ---
