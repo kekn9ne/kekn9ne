@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 27 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +16°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Vurdum** by *Mass* 🎶
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
+_"You can't make someone feel good about themselves until you feel good about yourself. — *Robin Sharma*"_
 
 ---
