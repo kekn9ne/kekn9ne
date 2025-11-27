@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
+_"If you are ever the smartest person in the room, you are in the wrong room. — *C. Sean McGee*"_
 
 ---
