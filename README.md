@@ -7,6 +7,6 @@
 
 ---
 
-_"You can avoid reality, but you cannot avoid the consequences of avoiding reality. — *Ayn Rand*"_
+_"Anyone who has ever made anything of importance was disciplined. — *Andrew Hendrixson*"_
 
 ---
