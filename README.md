@@ -7,6 +7,6 @@
 
 ---
 
-_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
+_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
 
 ---
