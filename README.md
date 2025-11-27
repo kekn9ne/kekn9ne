@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
+_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
 
 ---
