@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are ever the smartest person in the room, you are in the wrong room. — *C. Sean McGee*"_
+_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
 
 ---
