@@ -7,6 +7,6 @@
 
 ---
 
-_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
