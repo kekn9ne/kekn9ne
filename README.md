@@ -7,6 +7,6 @@
 
 ---
 
-_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
+_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
 
 ---
