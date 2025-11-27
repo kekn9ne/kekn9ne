@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership is solving problems — *Colin Powell*"_
+_"Friendship takes time and energy if it's going to work. — *Betty White*"_
 
 ---
