@@ -7,6 +7,6 @@
 
 ---
 
-_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
+_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
 
 ---
