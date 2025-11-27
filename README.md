@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn off your mind, relax, and float downstream. — *John Lennon*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
