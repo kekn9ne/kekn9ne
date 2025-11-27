@@ -7,6 +7,6 @@
 
 ---
 
-_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
