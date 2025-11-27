@@ -7,6 +7,6 @@
 
 ---
 
-_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
+_"Happiness cannot be traveled to, owned, earned, worn or consumed. — *Denis Waitley*"_
 
 ---
