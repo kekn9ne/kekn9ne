@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
+_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
 
 ---
