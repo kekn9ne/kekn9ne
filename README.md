@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
+_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
 
 ---
