@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't cry because it's over. Smile because it happened. — *Dr. Seuss*"_
+_"You can avoid reality, but you cannot avoid the consequences of avoiding reality. — *Ayn Rand*"_
 
 ---
