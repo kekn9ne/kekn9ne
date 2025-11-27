@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
+_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
 
 ---
