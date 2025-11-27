@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing quite so tragic as a young cynic. — *Maya Angelou*"_
+_"Great minds are always feared by lesser minds. — *Dan Brown*"_
 
 ---
