@@ -7,6 +7,6 @@
 
 ---
 
-_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
+_"Leadership is solving problems — *Colin Powell*"_
 
 ---
