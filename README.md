@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 27 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +21°C**  
+🌤️ Weather in Istanbul: **☀️   +20°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Anyone who has ever made anything of importance was disciplined. — *Andrew Hendrixson*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
