@@ -7,6 +7,6 @@
 
 ---
 
-_"To raise your consciousness, surround yourself with people of higher consciousness. — *Celestine Chua*"_
+_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
 
 ---
