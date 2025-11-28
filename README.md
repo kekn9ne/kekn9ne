@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism is the one quality more associated with success and happiness than any other. — *Brian Tracy*"_
+_"Goals are the fuel in the furnace of achievement. — *Brian Tracy*"_
 
 ---
