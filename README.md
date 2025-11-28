@@ -7,6 +7,6 @@
 
 ---
 
-_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
