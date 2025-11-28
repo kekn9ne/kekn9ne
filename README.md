@@ -7,6 +7,6 @@
 
 ---
 
-_"A thing constructed can only be loved after it is constructed; but a thing created is loved before it exists. — *Charles Dickens*"_
+_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
 
 ---
