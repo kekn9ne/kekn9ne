@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
+_"Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it. — *Gurbaksh Chahal*"_
 
 ---
