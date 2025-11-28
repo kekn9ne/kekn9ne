@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two things a person should never be angry at, what they can help, and what they cannot. — *Plato*"_
+_"If we did all the things we are capable of, we would literally astound ourselves. — *Thomas Edison*"_
 
 ---
