@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends upon ourselves. — *Aristotle*"_
+_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
 
 ---
