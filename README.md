@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
+_"It is better to learn late than never. — *Publilius Syrus*"_
 
 ---
