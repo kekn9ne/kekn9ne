@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 28 November 2025**  
-🌤️ Weather in Istanbul: **🌦   +15°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't be afraid to see what you see. — *Ronald Reagan*"_
+_"The less people know, the more stubbornly they know it. — *Osho*"_
 
 ---
