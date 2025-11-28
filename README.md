@@ -7,6 +7,6 @@
 
 ---
 
-_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
+_"Greatness comes from living with purpose and passion. — *Ralph Marston*"_
 
 ---
