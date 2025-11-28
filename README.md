@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 28 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Reality is the leading cause of stress among those in touch with it. — *Lily Tomlin*"_
+_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
 
 ---
