@@ -7,6 +7,6 @@
 
 ---
 
-_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
+_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
 
 ---
