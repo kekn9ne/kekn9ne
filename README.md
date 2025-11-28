@@ -7,6 +7,6 @@
 
 ---
 
-_"The giving of love is an education in itself. — *Eleanor Roosevelt*"_
+_"Difficult roads often lead to beautiful destinations. — *Unknown*"_
 
 ---
