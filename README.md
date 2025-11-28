@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 28 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
+_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
 
 ---
