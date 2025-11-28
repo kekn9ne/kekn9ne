@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 28 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +19°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: **dava açacakları için değiştirdim** by *EGE!* 🎶
 
 ---
 
-_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
+_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
 
 ---
