@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 28 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
+_"Each problem has a positive side. — *Og Mandino*"_
 
 ---
