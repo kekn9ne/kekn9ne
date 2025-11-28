@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is impossible without change, and those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
+_"To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to. — *Kahlil Gibran*"_
 
 ---
