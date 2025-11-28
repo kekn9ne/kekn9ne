@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
+_"Better to live until you die. — *Dan Millman*"_
 
 ---
