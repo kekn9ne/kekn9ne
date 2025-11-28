@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is not fatal, but failure to change might be. — *John Wooden*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
