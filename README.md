@@ -7,6 +7,6 @@
 
 ---
 
-_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
+_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
 
 ---
