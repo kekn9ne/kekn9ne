@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
 
 ---
