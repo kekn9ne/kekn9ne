@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
