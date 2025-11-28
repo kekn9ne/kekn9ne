@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 28 November 2025**  
 🌤️ Weather in Istanbul: **☀️   +18°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **CINDY** by *UZI* 🎶
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
