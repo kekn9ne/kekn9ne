@@ -7,6 +7,6 @@
 
 ---
 
-_"To live is to be willing to die over and over again. — *Pema Chodron*"_
+_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
 
 ---
