@@ -7,6 +7,6 @@
 
 ---
 
-_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
+_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
 
 ---
