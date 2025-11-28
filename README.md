@@ -7,6 +7,6 @@
 
 ---
 
-_"The search for happiness is one of the chief sources of unhappiness. — *Eric Hoffer*"_
+_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
 
 ---
