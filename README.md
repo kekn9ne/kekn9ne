@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 28 November 2025**  
-🌤️ Weather in Istanbul: **☀️   +19°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **dava açacakları için değiştirdim** by *EGE!* 🎶
+🎧 Currently Listening: **OHA** by *ASLAR* 🎶
 
 ---
 
-_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
+_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
 
 ---
