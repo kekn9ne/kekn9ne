@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to live until you die. — *Dan Millman*"_
+_"Progress lies not in enhancing what is, but in advancing toward what will be. — *Kahlil Gibran*"_
 
 ---
