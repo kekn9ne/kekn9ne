@@ -7,6 +7,6 @@
 
 ---
 
-_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
+_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
 
 ---
