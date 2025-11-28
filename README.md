@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficult roads often lead to beautiful destinations. — *Unknown*"_
+_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
 
 ---
