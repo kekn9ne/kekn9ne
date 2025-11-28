@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress lies not in enhancing what is, but in advancing toward what will be. — *Kahlil Gibran*"_
+_"Stop comparing yourself to others and focus on your own improvement. — *Lolly Daskal*"_
 
 ---
