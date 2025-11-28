@@ -7,6 +7,6 @@
 
 ---
 
-_"Be polite to all, but intimate with few. — *Thomas Jefferson*"_
+_"There are two things a person should never be angry at, what they can help, and what they cannot. — *Plato*"_
 
 ---
