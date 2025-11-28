@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to learn late than never. — *Publilius Syrus*"_
+_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
 
 ---
