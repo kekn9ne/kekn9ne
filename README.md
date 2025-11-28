@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you try to impress, the more peaceful you can be. — *Maxime Lagace*"_
+_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
 
 ---
