@@ -7,6 +7,6 @@
 
 ---
 
-_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
+_"To raise your consciousness, surround yourself with people of higher consciousness. — *Celestine Chua*"_
 
 ---
