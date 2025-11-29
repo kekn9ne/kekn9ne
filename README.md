@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 30 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **GETİRDİN BİZİ NE HALE** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
+_"Courage Is a Love Affair with the Unknown — *Osho*"_
 
 ---
