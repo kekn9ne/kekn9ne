@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
+_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
 
 ---
