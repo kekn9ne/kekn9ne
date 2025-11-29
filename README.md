@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the foundation of great leadership. — *Lolly Daskal*"_
+_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
 
 ---
