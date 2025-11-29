@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are the clothes thoughts wear. — *Samuel Beckett*"_
+_"Action is the foundational key to all success. — *Pablo Picasso*"_
 
 ---
