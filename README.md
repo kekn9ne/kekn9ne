@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
 
 ---
