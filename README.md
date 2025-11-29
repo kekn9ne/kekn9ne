@@ -7,6 +7,6 @@
 
 ---
 
-_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
+_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
 
 ---
