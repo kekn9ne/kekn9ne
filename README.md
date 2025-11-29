@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
 
 ---
 
-_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
+_"There is no truth. There is only perception. — *Gustave Flaubert*"_
 
 ---
