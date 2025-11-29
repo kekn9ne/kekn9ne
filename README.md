@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **HUHU!** by *Batuflex* 🎶
 
 ---
 
-_"Where focus goes, energy flows. — *Tony Robbins*"_
+_"Hope and fear come from feeling that we lack something; they come from a sense of poverty. — *Pema Chodron*"_
 
 ---
