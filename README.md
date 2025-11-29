@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners don't Quit. That's why they Win. — *Unknown*"_
+_"Failure is simply the opportunity to begin again, this time more intelligently. — *Henry Ford*"_
 
 ---
