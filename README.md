@@ -7,6 +7,6 @@
 
 ---
 
-_"We have more possibilities available in each moment than we realize. — *Thich Nhat Hanh*"_
+_"Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer. — *J.R.R. Tolkien*"_
 
 ---
