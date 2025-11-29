@@ -7,6 +7,6 @@
 
 ---
 
-_"Action is the foundational key to all success. — *Pablo Picasso*"_
+_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
 
 ---
