@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **HUHU!** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Hope and fear come from feeling that we lack something; they come from a sense of poverty. — *Pema Chodron*"_
+_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
 
 ---
