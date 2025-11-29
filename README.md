@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is simply the opportunity to begin again, this time more intelligently. — *Henry Ford*"_
+_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
 
 ---
