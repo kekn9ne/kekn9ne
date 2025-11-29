@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams do come true, if we only wish hard enough, You can have anything in life if you will sacrifice everything else for it. — *James Matthew Barrie*"_
+_"Winning isn't always championships. — *Michael Jordan*"_
 
 ---
