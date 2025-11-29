@@ -7,6 +7,6 @@
 
 ---
 
-_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
+_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
 
 ---
