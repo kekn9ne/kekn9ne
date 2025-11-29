@@ -7,6 +7,6 @@
 
 ---
 
-_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
+_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
 
 ---
