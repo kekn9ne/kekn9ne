@@ -7,6 +7,6 @@
 
 ---
 
-_"Storms don't last forever. — *Unknown*"_
+_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
 
 ---
