@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **aq** by *Wegh* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"The mind can calculate, but the spirit yearns, and the heart wants what the heart wants. — *Stephen King*"_
 
 ---
