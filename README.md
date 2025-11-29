@@ -7,6 +7,6 @@
 
 ---
 
-_"It is only depth of character that determines the profundity with which we face life. — *Ming-Dao Deng*"_
+_"Surround yourself only with people who are going to take you higher. — *Oprah Winfrey*"_
 
 ---
