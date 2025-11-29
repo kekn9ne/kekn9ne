@@ -7,6 +7,6 @@
 
 ---
 
-_"What we dwell on is who we become. — *Oprah Winfrey*"_
+_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
 
 ---
