@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
 
 ---
