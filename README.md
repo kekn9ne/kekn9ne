@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 29 November 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SUBMARINER** by *AKDO* 🎶
 
 ---
 
-_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
+_"Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality. — *James Cameron*"_
 
 ---
