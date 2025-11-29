@@ -7,6 +7,6 @@
 
 ---
 
-_"Surround yourself only with people who are going to take you higher. — *Oprah Winfrey*"_
+_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
 
 ---
