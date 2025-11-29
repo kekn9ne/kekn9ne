@@ -7,6 +7,6 @@
 
 ---
 
-_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
+_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
 
 ---
