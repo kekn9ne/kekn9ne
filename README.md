@@ -7,6 +7,6 @@
 
 ---
 
-_"Winning isn't always championships. — *Michael Jordan*"_
+_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
 
 ---
