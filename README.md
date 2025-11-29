@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is not having the strength to go on; it is going on when you don't have the strength. — *Theodore Roosevelt*"_
+_"Peace is the result of retraining your mind to process life as it is, rather than as you think it should be.   — *Wayne Dyer*"_
 
 ---
