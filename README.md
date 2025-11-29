@@ -7,6 +7,6 @@
 
 ---
 
-_"If you aim at nothing, you will hit it every time.   — *Zig Ziglar*"_
+_"The greatest doer must also be a great dreamer. — *Theodore Roosevelt*"_
 
 ---
