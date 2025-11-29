@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
+_"It is only depth of character that determines the profundity with which we face life. — *Ming-Dao Deng*"_
 
 ---
