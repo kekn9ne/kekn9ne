@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is to be fortified by many friendships. To love, and to be loved, is the greatest happiness of existence. — *Sydney Smith*"_
+_"What's the point in being smart enough to read, if everything you read makes you dumb? — *C. Sean McGee*"_
 
 ---
