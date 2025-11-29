@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İstanbul Mafya** by *Chiko* 🎶
 
 ---
 
-_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
+_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
 
 ---
