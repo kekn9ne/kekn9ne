@@ -7,6 +7,6 @@
 
 ---
 
-_"Goals are the fuel in the furnace of achievement. — *Brian Tracy*"_
+_"Those who cannot change their minds cannot change anything. — *George Bernard Shaw*"_
 
 ---
