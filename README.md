@@ -7,6 +7,6 @@
 
 ---
 
-_"Great leaders are almost always great simplifiers, who can cut through argument, debate and doubt, to offer a solution everybody can understand. — *Colin Powell*"_
+_"Growing up is losing some illusions, in order to acquire others. — *Virginia Woolf*"_
 
 ---
