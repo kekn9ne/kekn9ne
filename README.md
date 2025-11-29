@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
+_"We become brave by doing brave acts. — *Aristotle*"_
 
 ---
