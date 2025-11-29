@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is 10% what happens to you and 90% how you react to it.  — *Charles Swindoll*"_
+_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
 
 ---
