@@ -7,6 +7,6 @@
 
 ---
 
-_"How to get more opportunity: Create more opportunity for others. — *Jack Butcher*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
