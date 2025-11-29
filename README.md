@@ -7,6 +7,6 @@
 
 ---
 
-_"Extraordinary results happen only when you give the best you have to become the best you can be at your most important work. — *Gary Keller*"_
+_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
 
 ---
