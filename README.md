@@ -7,6 +7,6 @@
 
 ---
 
-_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
+_"Words are the clothes thoughts wear. — *Samuel Beckett*"_
 
 ---
