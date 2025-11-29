@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
+_"Would you rather learn to deal with the truth now than be forced to do so later on? — *Celestine Chua*"_
 
 ---
