@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 29 November 2025**  
+🗓️ Today is: **Sunday, 30 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **GETİRDİN BİZİ NE HALE** by *Organize* 🎶
 
 ---
 
-_"Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer. — *J.R.R. Tolkien*"_
+_"A tiger doesn't lose sleep over the opinion of sheep. — *Shahir Zag*"_
 
 ---
