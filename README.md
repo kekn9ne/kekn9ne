@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
 
 ---
