@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 29 November 2025**  
-🌤️ Weather in Istanbul: **🌦   +13°C**  
+🌤️ Weather in Istanbul: **🌦   +14°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Freedom from desire leads to inner peace. — *Lao Tzu*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
