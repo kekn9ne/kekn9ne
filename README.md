@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **napıyosun mesela ?** by *BLOK3* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Make each day your masterpiece. — *John Wooden*"_
+_"What would you do if you weren't afraid? — *Spencer Johnson*"_
 
 ---
