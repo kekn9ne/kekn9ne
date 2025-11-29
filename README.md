@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
+_"Trust is the foundation of great leadership. — *Lolly Daskal*"_
 
 ---
