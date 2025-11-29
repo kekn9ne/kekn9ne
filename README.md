@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost.  — *Franz Kafka*"_
+_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
 
 ---
