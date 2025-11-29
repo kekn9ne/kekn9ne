@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 29 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **napıyosun mesela ?** by *BLOK3* 🎶
 
 ---
 
-_"Stop being tormented by everyone else's reaction to you. — *Joyce Meyer*"_
+_"Make each day your masterpiece. — *John Wooden*"_
 
 ---
