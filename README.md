@@ -7,6 +7,6 @@
 
 ---
 
-_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
+_"Courage is not having the strength to go on; it is going on when you don't have the strength. — *Theodore Roosevelt*"_
 
 ---
