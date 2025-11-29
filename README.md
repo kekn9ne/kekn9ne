@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
