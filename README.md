@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 29 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There is no truth. There is only perception. — *Gustave Flaubert*"_
+_"Smile, breathe and go slowly. — *Thich Nhat Hanh*"_
 
 ---
