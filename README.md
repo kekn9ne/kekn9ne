@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest value of a picture is when it forces us to notice what we never expected to see. — *John Tukey*"_
+_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
 
 ---
