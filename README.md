@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if I knew that tomorrow the world would go to pieces, I would still plant my apple tree.  — *Martin Luther*"_
+_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
 
 ---
