@@ -7,6 +7,6 @@
 
 ---
 
-_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
+_"You are never too old to set another goal or to dream a new dream. — *Les Brown*"_
 
 ---
