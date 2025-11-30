@@ -7,6 +7,6 @@
 
 ---
 
-_"You are never too old to set another goal or to dream a new dream. — *Les Brown*"_
+_"Character is destiny. — *Heraclitus*"_
 
 ---
