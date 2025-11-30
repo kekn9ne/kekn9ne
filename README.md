@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 30 November 2025**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Character is destiny. — *Heraclitus*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
