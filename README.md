@@ -7,6 +7,6 @@
 
 ---
 
-_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
