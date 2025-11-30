@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
+_"You are never too old to set another goal or to dream a new dream. — *Les Brown*"_
 
 ---
