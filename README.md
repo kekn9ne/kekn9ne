@@ -7,6 +7,6 @@
 
 ---
 
-_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
+_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
 
 ---
