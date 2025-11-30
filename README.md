@@ -7,6 +7,6 @@
 
 ---
 
-_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
+_"Give out what you most want to come back. — *Robin Sharma*"_
 
 ---
