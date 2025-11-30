@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 30 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Otobanda Polizei** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be of good cheer about death, and know this of a truth, that no evil can happen to a good man, either in life or after death. — *Socrates*"_
+_"Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge. — *Robert Greene*"_
 
 ---
