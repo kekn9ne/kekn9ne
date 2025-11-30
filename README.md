@@ -7,6 +7,6 @@
 
 ---
 
-_"Your spirit is the true shield. — *Morihei Ueshiba*"_
+_"Fears are nothing more than a state of mind. — *Napoleon Hill*"_
 
 ---
