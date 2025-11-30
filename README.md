@@ -7,6 +7,6 @@
 
 ---
 
-_"Projecting your mind into a successful situation is the most powerful means to achieve goals.   — *Estee Lauder*"_
+_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
 
 ---
