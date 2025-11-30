@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 30 November 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"A creative man is motivated by the desire to achieve, not by the desire to beat others. — *Ayn Rand*"_
+_"What you become is far more important than what you get. — *Jim Rohn*"_
 
 ---
