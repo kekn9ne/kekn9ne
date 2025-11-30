@@ -7,6 +7,6 @@
 
 ---
 
-_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
+_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
 
 ---
