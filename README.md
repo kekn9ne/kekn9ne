@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
+_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
 
 ---
