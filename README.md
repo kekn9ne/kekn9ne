@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
+_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
 
 ---
