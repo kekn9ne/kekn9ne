@@ -7,6 +7,6 @@
 
 ---
 
-_"Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge. — *Robert Greene*"_
+_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
 
 ---
