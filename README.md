@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to give up the good to go for the great. — *John D. Rockefeller*"_
+_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
 
 ---
