@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
+_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
 
 ---
