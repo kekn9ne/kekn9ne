@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
 
 ---
