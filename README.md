@@ -7,6 +7,6 @@
 
 ---
 
-_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
+_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
 
 ---
