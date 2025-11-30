@@ -7,6 +7,6 @@
 
 ---
 
-_"The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind. — *F. Scott Fitzgerald*"_
+_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
 
 ---
