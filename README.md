@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
+_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
 
 ---
