@@ -7,6 +7,6 @@
 
 ---
 
-_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
+_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
 
 ---
