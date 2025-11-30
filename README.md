@@ -7,6 +7,6 @@
 
 ---
 
-_"You win more from losing than winning. — *Morgan Wootten*"_
+_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
 
 ---
