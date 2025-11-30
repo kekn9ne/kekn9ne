@@ -7,6 +7,6 @@
 
 ---
 
-_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
+_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
 
 ---
