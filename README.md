@@ -7,6 +7,6 @@
 
 ---
 
-_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
+_"The strongest and sweetest songs yet remain to be sung. — *Walt Whitman*"_
 
 ---
