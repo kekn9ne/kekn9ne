@@ -7,6 +7,6 @@
 
 ---
 
-_"Before preparing to improve the world, first look around your own home three times.  — *Chinese Proverb*"_
+_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
 
 ---
