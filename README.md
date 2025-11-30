@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 01 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zaza** by *Chiko* 🎶
 
 ---
 
-_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
+_"The harder the conflict, the greater the triumph.  — *George Washington*"_
 
 ---
