@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 30 November 2025**  
 🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
+_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
 
 ---
