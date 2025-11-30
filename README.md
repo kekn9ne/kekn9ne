@@ -7,6 +7,6 @@
 
 ---
 
-_"You are never too old to set another goal or to dream a new dream. — *Les Brown*"_
+_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
 
 ---
