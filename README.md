@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
+_"Charms strike the sight, but merit wins the soul. — *Alexander Pope*"_
 
 ---
