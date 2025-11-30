@@ -7,6 +7,6 @@
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
 
 ---
