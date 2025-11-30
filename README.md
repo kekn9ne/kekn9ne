@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
+_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
 
 ---
