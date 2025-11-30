@@ -7,6 +7,6 @@
 
 ---
 
-_"Never let the things you can't do stop you from doing what you can. — *Ronald Reagan*"_
+_"The ability to hold two competing thoughts in one's mind and still be able to function is the mark of a superior mind. — *F. Scott Fitzgerald*"_
 
 ---
