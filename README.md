@@ -7,6 +7,6 @@
 
 ---
 
-_"Fortunate are those who take the first steps. — *Paulo Coelho*"_
+_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
 
 ---
