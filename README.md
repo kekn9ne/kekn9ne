@@ -7,6 +7,6 @@
 
 ---
 
-_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
+_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
 
 ---
