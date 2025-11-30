@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 30 November 2025**  
-🌤️ Weather in Istanbul: **🌦   +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
+_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
 
 ---
