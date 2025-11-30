@@ -7,6 +7,6 @@
 
 ---
 
-_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
+_"A creative man is motivated by the desire to achieve, not by the desire to beat others. — *Ayn Rand*"_
 
 ---
