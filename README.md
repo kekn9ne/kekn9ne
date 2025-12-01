@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DEDE GANG** by *Critical* 🎶
 
 ---
 
-_"The swift wind of compromise is a lot more devastating than the sudden jolt of misfortune.  — *Charles Swindoll*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
