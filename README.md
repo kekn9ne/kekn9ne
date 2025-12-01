@@ -7,6 +7,6 @@
 
 ---
 
-_"Stand up to your obstacles and do something about them. You'll find they haven't half the strength you think they have. — *Norman Vincent Peale*"_
+_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
 
 ---
