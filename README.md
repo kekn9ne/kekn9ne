@@ -7,6 +7,6 @@
 
 ---
 
-_"Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do. — *Elvis Presley*"_
+_"A mountain never yields to the wind no matter how strong it is. — *Zen Proverb*"_
 
 ---
