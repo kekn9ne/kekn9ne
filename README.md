@@ -7,6 +7,6 @@
 
 ---
 
-_"Constantly think about how you could be doing things better. — *Elon Musk*"_
+_"Be - don't try to become  — *Osho*"_
 
 ---
