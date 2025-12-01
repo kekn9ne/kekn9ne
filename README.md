@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
+_"Nothing you do is going to matter that much in the long run. Don't take yourself so seriously. — *Naval Ravikant*"_
 
 ---
