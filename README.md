@@ -7,6 +7,6 @@
 
 ---
 
-_"Life should be touched, not strangled.   — *Ray Bradbury*"_
+_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
 
 ---
