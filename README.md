@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 01 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ambitions 2.0** by *Monerchyy* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do. — *Elvis Presley*"_
 
 ---
