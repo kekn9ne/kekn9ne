@@ -7,6 +7,6 @@
 
 ---
 
-_"The best mind-altering drug is the truth. — *Lily Tomlin*"_
+_"Happiness is only real, when shared. — *Christopher McCandless*"_
 
 ---
