@@ -7,6 +7,6 @@
 
 ---
 
-_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
+_"As you think, so shall you become.  — *Bruce Lee*"_
 
 ---
