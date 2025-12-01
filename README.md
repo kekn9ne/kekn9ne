@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 01 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +9°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"In order to control myself I must first accept myself by going with and not against my nature. — *Bruce Lee*"_
+_"Happiness depends on your mindset and attitude. — *Roy T. Bennett*"_
 
 ---
