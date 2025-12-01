@@ -7,6 +7,6 @@
 
 ---
 
-_"He is not a lover who does not love forever. — *Euripides*"_
+_"Do the difficult things while they are easy and do the great things while they are small. — *Lao Tzu*"_
 
 ---
