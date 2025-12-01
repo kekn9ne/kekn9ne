@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends on your mindset and attitude. — *Roy T. Bennett*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
