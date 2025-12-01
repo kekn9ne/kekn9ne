@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, so shall you become.  — *Bruce Lee*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Alan Watts*"_
 
 ---
