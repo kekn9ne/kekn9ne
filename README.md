@@ -7,6 +7,6 @@
 
 ---
 
-_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
+_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
 
 ---
