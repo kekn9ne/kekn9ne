@@ -7,6 +7,6 @@
 
 ---
 
-_"it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds. — *Barack Obama*"_
+_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
 
 ---
