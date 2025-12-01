@@ -7,6 +7,6 @@
 
 ---
 
-_"True wisdom comes to each of us when we realize how little we understand about life, ourselves, and the world around us. — *Socrates*"_
+_"Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — *Benjamin Mays*"_
 
 ---
