@@ -7,6 +7,6 @@
 
 ---
 
-_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
+_"When your intuition is strong, follow it. — *Lolly Daskal*"_
 
 ---
