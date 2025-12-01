@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +9°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Happiness is only real, when shared. — *Christopher McCandless*"_
+_"The past has no power over the present moment.  — *Eckhart Tolle*"_
 
 ---
