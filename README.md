@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Hako Diyorlar 2.0** by *Montana suian* 🎶
+🎧 Currently Listening: **Kendine İyi Bak** by *Şam* 🎶
 
 ---
 
-_"Discipline is the mark of intelligent living. — *Sathya Sai Baba*"_
+_"Coming together is a beginning, staying together is progress, and working together is success.  — *Henry Ford*"_
 
 ---
