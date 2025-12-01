@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 01 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Kendine İyi Bak** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Coming together is a beginning, staying together is progress, and working together is success.  — *Henry Ford*"_
+_"Your visions will become clear only when you can look into your own heart. Who looks outside, dreams; who looks inside, awakes. — *Carl Jung*"_
 
 ---
