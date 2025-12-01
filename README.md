@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 01 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
+_"Constantly think about how you could be doing things better. — *Elon Musk*"_
 
 ---
