@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to achieve greatness stop asking for permission. — *Unknown*"_
+_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
 
 ---
