@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Peace. Peace is the path. — *Dan Millman*"_
+_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
 
 ---
