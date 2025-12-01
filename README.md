@@ -7,6 +7,6 @@
 
 ---
 
-_"Information changes your mind. Action changes your circumstances. — *Jack Butcher*"_
+_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
 
 ---
