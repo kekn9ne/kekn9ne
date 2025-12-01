@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 01 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hako Diyorlar 2.0** by *Montana suian* 🎶
 
 ---
 
-_"Whatever you do,strive to do it so well that no man living and no man dead and no man yet to be born could do it any better. — *Benjamin Mays*"_
+_"Discipline is the mark of intelligent living. — *Sathya Sai Baba*"_
 
 ---
