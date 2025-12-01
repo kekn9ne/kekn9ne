@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
+_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
 
 ---
