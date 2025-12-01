@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
