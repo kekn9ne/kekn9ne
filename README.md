@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 02 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +9°C**  
+🌤️ Weather in Istanbul: **☀️   +8°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The past has no power over the present moment.  — *Eckhart Tolle*"_
+_"Peace of mind is that mental condition in which you have accepted the worst. — *Lin Yutang*"_
 
 ---
