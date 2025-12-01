@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Alan Watts*"_
+_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
 
 ---
