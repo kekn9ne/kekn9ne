@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
 
 ---
