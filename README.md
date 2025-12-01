@@ -7,6 +7,6 @@
 
 ---
 
-_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
+_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
 
 ---
