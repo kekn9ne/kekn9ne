@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
+_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
 
 ---
