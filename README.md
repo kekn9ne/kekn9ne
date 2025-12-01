@@ -7,6 +7,6 @@
 
 ---
 
-_"You are a function of what the whole universe is doing in the same way that a wave is a function of what the whole ocean is doing. — *Alan Watts*"_
+_"it's important to make sure that we're talking with each other in a way that heals, not in a way that wounds. — *Barack Obama*"_
 
 ---
