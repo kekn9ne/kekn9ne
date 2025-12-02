@@ -7,6 +7,6 @@
 
 ---
 
-_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
+_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
 
 ---
