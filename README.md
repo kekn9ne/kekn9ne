@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"The significance of life is living. — *Jiddu Krishnamurti*"_
 
 ---
