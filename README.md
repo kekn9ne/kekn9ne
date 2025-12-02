@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 03 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +10°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Everyone has oceans to fly, if they have the heart to do it. Is it reckless? Maybe. But what do dreams know of boundaries. — *Amelia Earhart*"_
+_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
 
 ---
