@@ -7,6 +7,6 @@
 
 ---
 
-_"Make yourself so useful to other people, that they think you are irreplaceable. — *Og Mandino*"_
+_"The sun shines upon good and bad alike. — *Hans Christian Andersen*"_
 
 ---
