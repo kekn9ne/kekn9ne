@@ -7,6 +7,6 @@
 
 ---
 
-_"Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted. — *Robert Collier*"_
+_"When things go wrong, don't go with them. — *Elvis Presley*"_
 
 ---
