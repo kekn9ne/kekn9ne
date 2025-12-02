@@ -7,6 +7,6 @@
 
 ---
 
-_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
+_"What the caterpillar calls the end of the world, the master calls a butterfly. — *Richard Bach*"_
 
 ---
