@@ -7,6 +7,6 @@
 
 ---
 
-_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
+_"Human behavior flows from three main sources: desire, emotion, and knowledge. — *Plato*"_
 
 ---
