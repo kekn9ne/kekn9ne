@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
+_"Selfishness and greed, individual or national, cause most of our troubles. — *Harry S. Truman*"_
 
 ---
