@@ -7,6 +7,6 @@
 
 ---
 
-_"The sun shines upon good and bad alike. — *Hans Christian Andersen*"_
+_"The fewer the words, the better the prayer. — *Martin Luther*"_
 
 ---
