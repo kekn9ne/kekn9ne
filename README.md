@@ -7,6 +7,6 @@
 
 ---
 
-_"When you reach the end of your rope, tie a knot in it and hang on. — *Franklin D. Roosevelt*"_
+_"Imagination is the true magic carpet. — *Norman Vincent Peale*"_
 
 ---
