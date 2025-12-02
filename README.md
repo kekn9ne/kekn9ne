@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Beni Unutma** by *Demet Akalın* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you get up one more time than you fall, you will make it through. — *Chinese Proverb*"_
+_"Don't think money does everything or you are going to end up doing everything for money. — *Voltaire*"_
 
 ---
