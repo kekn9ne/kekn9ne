@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"Let us always meet each other with smile, for the smile is the beginning of love. — *Mother Teresa*"_
 
 ---
