@@ -7,6 +7,6 @@
 
 ---
 
-_"When things go wrong, don't go with them. — *Elvis Presley*"_
+_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
 
 ---
