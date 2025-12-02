@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 02 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Human behavior flows from three main sources: desire, emotion, and knowledge. — *Plato*"_
+_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
 
 ---
