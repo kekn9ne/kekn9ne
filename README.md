@@ -7,6 +7,6 @@
 
 ---
 
-_"Heart is what separates the good from the great. — *Michael Jordan*"_
+_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
 
 ---
