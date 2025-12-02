@@ -7,6 +7,6 @@
 
 ---
 
-_"He is richest who is content with the least, for content is the wealth of nature. — *Socrates*"_
+_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
 
 ---
