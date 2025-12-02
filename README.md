@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
+_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
 
 ---
