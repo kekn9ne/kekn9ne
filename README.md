@@ -7,6 +7,6 @@
 
 ---
 
-_"It's very strange that the people you love are often the people you're most cruel to. — *Kenneth Branagh*"_
+_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
 
 ---
