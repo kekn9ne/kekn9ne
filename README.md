@@ -7,6 +7,6 @@
 
 ---
 
-_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
+_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
 
 ---
