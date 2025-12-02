@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
+_"Words are the clothes thoughts wear. — *Samuel Beckett*"_
 
 ---
