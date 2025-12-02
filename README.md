@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
+_"You must either modify your dreams or magnify your skills. — *Jim Rohn*"_
 
 ---
