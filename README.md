@@ -7,6 +7,6 @@
 
 ---
 
-_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
+_"Make yourself so useful to other people, that they think you are irreplaceable. — *Og Mandino*"_
 
 ---
