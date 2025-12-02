@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
+_"Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.  — *Lao Tzu*"_
 
 ---
