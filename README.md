@@ -7,6 +7,6 @@
 
 ---
 
-_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
+_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
 
 ---
