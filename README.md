@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"You get in life what you have the courage to ask for. — *Oprah Winfrey*"_
 
 ---
