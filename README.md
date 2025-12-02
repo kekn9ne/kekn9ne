@@ -7,6 +7,6 @@
 
 ---
 
-_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
+_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
 
 ---
