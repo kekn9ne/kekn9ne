@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Beni Unutma** by *Demet Akalın* 🎶
 
 ---
 
-_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
+_"If you get up one more time than you fall, you will make it through. — *Chinese Proverb*"_
 
 ---
