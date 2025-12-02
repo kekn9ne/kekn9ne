@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **İstanbul Mafya** by *Chiko* 🎶
+🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
 
 ---
 
-_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
+_"Life is 10% what happens to you and 90% how you react to it.  — *Charles Swindoll*"_
 
 ---
