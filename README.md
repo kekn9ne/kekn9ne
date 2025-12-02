@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 03 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
+_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
 
 ---
