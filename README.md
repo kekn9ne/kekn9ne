@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"It's very strange that the people you love are often the people you're most cruel to. — *Kenneth Branagh*"_
 
 ---
