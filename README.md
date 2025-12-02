@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 02 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌫  +8°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A diamond is a piece of charcoal that handled stress exceptionally well. — *Unknown*"_
+_"He who permits himself to tell a lie once, finds it much easier to do it the second time. — *Thomas Jefferson*"_
 
 ---
