@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 02 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **HAVHAVHAV** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is 10% what happens to you and 90% how you react to it.  — *Charles Swindoll*"_
+_"The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it. — *Carl Jung*"_
 
 ---
