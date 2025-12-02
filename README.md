@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 02 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Kindness in words creates confidence. Kindness in thinking creates profoundness. Kindness in giving creates love.  — *Lao Tzu*"_
+_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
 
 ---
