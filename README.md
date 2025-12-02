@@ -7,6 +7,6 @@
 
 ---
 
-_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
+_"Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted. — *Robert Collier*"_
 
 ---
