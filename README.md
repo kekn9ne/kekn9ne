@@ -7,6 +7,6 @@
 
 ---
 
-_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
+_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
 
 ---
