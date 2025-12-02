@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
+_"He is richest who is content with the least, for content is the wealth of nature. — *Socrates*"_
 
 ---
