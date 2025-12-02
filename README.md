@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
+_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
 
 ---
