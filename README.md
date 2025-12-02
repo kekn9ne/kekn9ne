@@ -7,6 +7,6 @@
 
 ---
 
-_"What the caterpillar calls the end of the world, the master calls a butterfly. — *Richard Bach*"_
+_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
 
 ---
