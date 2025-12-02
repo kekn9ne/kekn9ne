@@ -7,6 +7,6 @@
 
 ---
 
-_"The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it. — *Carl Jung*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
