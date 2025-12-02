@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 02 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +11°C**  
+🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
+_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
 
 ---
