@@ -7,6 +7,6 @@
 
 ---
 
-_"Beauty is not in the face; beauty is a light in the heart. — *Kahlil Gibran*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
