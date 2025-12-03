@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 03 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ABV** by *Lvbel C5* 🎶
 
 ---
 
-_"Ideas do not reach perfection in a day, no matter how much study is put upon them. — *Alexander Graham Bell*"_
+_"Everything that irritates us about others. — *Carl Jung*"_
 
 ---
