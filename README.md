@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
+_"Those who seek the easy way do not seek the true way. — *Dogen*"_
 
 ---
