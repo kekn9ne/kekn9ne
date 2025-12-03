@@ -7,6 +7,6 @@
 
 ---
 
-_"You can have results or excuses, but not both. — *Arnold Schwarzenegger*"_
+_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
 
 ---
