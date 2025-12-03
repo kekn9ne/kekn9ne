@@ -7,6 +7,6 @@
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
