@@ -7,6 +7,6 @@
 
 ---
 
-_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
