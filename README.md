@@ -7,6 +7,6 @@
 
 ---
 
-_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
+_"Challenge yourself to find the good and beautiful thing inside of everyone. — *Mark Manson*"_
 
 ---
