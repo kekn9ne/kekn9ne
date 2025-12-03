@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
+_"Great loves too must be endured. — *Coco Chanel*"_
 
 ---
