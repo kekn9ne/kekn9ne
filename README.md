@@ -7,6 +7,6 @@
 
 ---
 
-_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
+_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
 
 ---
