@@ -7,6 +7,6 @@
 
 ---
 
-_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
+_"Motivation gets you going and habit gets you there.   — *Zig Ziglar*"_
 
 ---
