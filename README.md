@@ -7,6 +7,6 @@
 
 ---
 
-_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
