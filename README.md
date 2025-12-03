@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity often comes disguised in the form of misfortune or temporary defeat. — *Napoleon Hill*"_
+_"We suffer more often in imagination than in reality. — *Seneca*"_
 
 ---
