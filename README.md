@@ -7,6 +7,6 @@
 
 ---
 
-_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
+_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
 
 ---
