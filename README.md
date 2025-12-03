@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
+_"It is better to offer no excuse than a bad one.  — *George Washington*"_
 
 ---
