@@ -7,6 +7,6 @@
 
 ---
 
-_"Great loves too must be endured. — *Coco Chanel*"_
+_"Every moment you get is a gift. Spend it on things that matter. Don't spend it by dwelling on unhappy things. — *Celestine Chua*"_
 
 ---
