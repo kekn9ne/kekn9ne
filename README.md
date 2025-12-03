@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
+_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
 
 ---
