@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
+_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
 
 ---
