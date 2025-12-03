@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **PARTİ PATLAR GNG’DEN** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Fishing is much more than fish. — *Herbert Hoover*"_
+_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
 
 ---
