@@ -7,6 +7,6 @@
 
 ---
 
-_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
+_"It's not the men in your life that matters, it's the life in your men. — *Mae West*"_
 
 ---
