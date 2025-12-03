@@ -7,6 +7,6 @@
 
 ---
 
-_"To belittle, you have to be little. — *Kahlil Gibran*"_
+_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
 
 ---
