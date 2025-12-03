@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **MINI TERORISTA** by *Jeff Redd* 🎶
+🎧 Currently Listening: **PARTİ PATLAR GNG’DEN** by *UZI* 🎶
 
 ---
 
-_"Live, travel, adventure, bless, and don't be sorry.   — *Jack Kerouac*"_
+_"Fishing is much more than fish. — *Herbert Hoover*"_
 
 ---
