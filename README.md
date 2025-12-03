@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 03 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **☀️   +8°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I am always doing that which I can not do, in order that I may learn how to do it. — *Pablo Picasso*"_
+_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
 
 ---
