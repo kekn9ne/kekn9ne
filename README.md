@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't get to a place that you don't believe exists. — *Unknown*"_
+_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
 
 ---
