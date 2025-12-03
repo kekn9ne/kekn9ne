@@ -7,6 +7,6 @@
 
 ---
 
-_"Every hour of every day is an unspeakably perfect miracle. — *Walt Whitman*"_
+_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
 
 ---
