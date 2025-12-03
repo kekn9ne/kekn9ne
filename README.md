@@ -7,6 +7,6 @@
 
 ---
 
-_"No kind action ever stops with itself. One kind action leads to another. Good example is followed. — *Amelia Earhart*"_
+_"If you do not push the boundaries, you will never know where they are. — *T.S. Eliot*"_
 
 ---
