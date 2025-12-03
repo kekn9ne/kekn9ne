@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **EFOR** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life and the simple beauty of it is too good to pass up. — *Christopher McCandless*"_
+_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
 
 ---
