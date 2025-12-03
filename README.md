@@ -7,6 +7,6 @@
 
 ---
 
-_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
+_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
 
 ---
