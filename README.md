@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
+_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
 
 ---
