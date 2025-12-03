@@ -7,6 +7,6 @@
 
 ---
 
-_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
+_"To be totally at leisure for one day is to be immortal for one day.  — *Chinese Proverb*"_
 
 ---
