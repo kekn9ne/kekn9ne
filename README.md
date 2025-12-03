@@ -7,6 +7,6 @@
 
 ---
 
-_"The first principle of success is desire. — *Robert Collier*"_
+_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
 
 ---
