@@ -7,6 +7,6 @@
 
 ---
 
-_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
+_"Ideas do not reach perfection in a day, no matter how much study is put upon them. — *Alexander Graham Bell*"_
 
 ---
