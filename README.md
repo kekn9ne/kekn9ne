@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **COOOK PARDON** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
+_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
 
 ---
