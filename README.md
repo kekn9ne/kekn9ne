@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in changing that we find purpose. — *Heraclitus*"_
+_"Show up even when you don't want to show up. — *Steve Harvey*"_
 
 ---
