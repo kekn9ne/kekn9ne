@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
+_"Be curious, not judgmental. — *Walt Whitman*"_
 
 ---
