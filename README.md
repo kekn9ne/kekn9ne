@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 03 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **ABV** by *Lvbel C5* 🎶
+🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
 
 ---
 
-_"Everything that irritates us about others. — *Carl Jung*"_
+_"Do what you feel in your heart to be right - for you'll be criticized anyway. — *Eleanor Roosevelt*"_
 
 ---
