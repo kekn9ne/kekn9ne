@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 03 December 2025**  
-🌤️ Weather in Istanbul: **🌫  +9°C**  
+🌤️ Weather in Istanbul: **🌫  +12°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be curious, not judgmental. — *Walt Whitman*"_
+_"The first principle of success is desire. — *Robert Collier*"_
 
 ---
