@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
+_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
 
 ---
