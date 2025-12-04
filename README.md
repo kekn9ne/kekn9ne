@@ -7,6 +7,6 @@
 
 ---
 
-_"Death is not an ending. It is a transformation. — *Ming-Dao Deng*"_
+_"The purpose of life is the life of purpose. — *Robin Sharma*"_
 
 ---
