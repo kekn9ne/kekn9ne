@@ -7,6 +7,6 @@
 
 ---
 
-_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
+_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
 
 ---
