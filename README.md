@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"Your worth consists in what you are and not in what you have. — *Thomas Edison*"_
 
 ---
