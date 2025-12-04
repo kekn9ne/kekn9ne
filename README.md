@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
