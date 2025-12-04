@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"Not why the addiction but why the pain. — *Gabor Mate*"_
+_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
 
 ---
