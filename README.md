@@ -7,6 +7,6 @@
 
 ---
 
-_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
+_"Fools resist. The wise embrace. — *Maxime Lagace*"_
 
 ---
