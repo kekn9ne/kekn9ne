@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise men speak because they have something to say; Fools because they have to say something. — *Plato*"_
+_"Re-examine all that you have been told... dismiss that which insults your soul. — *Walt Whitman*"_
 
 ---
