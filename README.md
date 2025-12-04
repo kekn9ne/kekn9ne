@@ -7,6 +7,6 @@
 
 ---
 
-_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
+_"A man is literally what he thinks. — *James Allen*"_
 
 ---
