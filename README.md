@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 04 December 2025**  
-🌤️ Weather in Istanbul: **☁️   +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **KASA ORIJINAL** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"Wise men speak because they have something to say; Fools because they have to say something. — *Plato*"_
 
 ---
