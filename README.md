@@ -7,6 +7,6 @@
 
 ---
 
-_"I can think of nothing less pleasurable than a life devoted to pleasure. — *John D. Rockefeller*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
