@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing makes a man broad-minded like adversity. — *Will Rogers*"_
+_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
 
 ---
