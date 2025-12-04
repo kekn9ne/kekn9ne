@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 December 2025**  
 🌤️ Weather in Istanbul: **☁️   +12°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KASA ORIJINAL** by *Lvbel C5* 🎶
 
 ---
 
-_"Life is a gift, and it offers us the privilege, opportunity, and responsibility to give something back by becoming more. — *Tony Robbins*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
