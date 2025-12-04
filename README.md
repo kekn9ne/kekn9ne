@@ -7,6 +7,6 @@
 
 ---
 
-_"The real measure of your wealth is how much you'd be worth if you lost all your money. — *Unknown*"_
+_"Re-examine all that you have been told... dismiss that which insults your soul. — *Walt Whitman*"_
 
 ---
