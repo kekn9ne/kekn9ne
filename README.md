@@ -7,6 +7,6 @@
 
 ---
 
-_"Your worth consists in what you are and not in what you have. — *Thomas Edison*"_
+_"When you are tempted to give up, your breakthrough is probably just around the corner. — *Joyce Meyer*"_
 
 ---
