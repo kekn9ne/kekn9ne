@@ -7,6 +7,6 @@
 
 ---
 
-_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
+_"Sometimes you have to shut your eyes, so you can see the real beauty. — *Kilian Jornet*"_
 
 ---
