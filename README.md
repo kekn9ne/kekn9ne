@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"Death is not an ending. It is a transformation. — *Ming-Dao Deng*"_
 
 ---
