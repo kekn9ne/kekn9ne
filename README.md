@@ -7,6 +7,6 @@
 
 ---
 
-_"The impossible can always be broken down into possibilities. — *Unknown*"_
+_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
 
 ---
