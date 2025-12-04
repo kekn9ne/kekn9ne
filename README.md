@@ -7,6 +7,6 @@
 
 ---
 
-_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
+_"Before preparing to improve the world, first look around your own home three times.  — *Chinese Proverb*"_
 
 ---
