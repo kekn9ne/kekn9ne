@@ -7,6 +7,6 @@
 
 ---
 
-_"Bad things are not the worst things that an happen to us. NOTHING is the worst thing that can happen to us. — *Richard Bach*"_
+_"There's more to life than being a passenger. — *Amelia Earhart*"_
 
 ---
