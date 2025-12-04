@@ -7,6 +7,6 @@
 
 ---
 
-_"A man is literally what he thinks. — *James Allen*"_
+_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
 
 ---
