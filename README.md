@@ -7,6 +7,6 @@
 
 ---
 
-_"Before preparing to improve the world, first look around your own home three times.  — *Chinese Proverb*"_
+_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
 
 ---
