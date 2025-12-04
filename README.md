@@ -7,6 +7,6 @@
 
 ---
 
-_"I learned that courage was not the absence of fear, but the triumph over it. The brave man is not he who does not feel afraid, but he who conquers that fear. — *Nelson Mandela*"_
+_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
 
 ---
