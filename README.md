@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are tempted to give up, your breakthrough is probably just around the corner. — *Joyce Meyer*"_
+_"Success is not to be pursued, it is to be attracted by the person you become. — *Jim Rohn*"_
 
 ---
