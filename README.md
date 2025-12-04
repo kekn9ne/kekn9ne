@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 04 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
+_"Nothing makes a man broad-minded like adversity. — *Will Rogers*"_
 
 ---
