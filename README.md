@@ -7,6 +7,6 @@
 
 ---
 
-_"For every minute you are angry you lose sixty seconds of happiness. — *Ralph Waldo Emerson*"_
+_"Faith is taking the first step even when you don't see the whole staircase. — *Martin Luther King, Jr.*"_
 
 ---
