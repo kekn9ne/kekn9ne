@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
+_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
 
 ---
