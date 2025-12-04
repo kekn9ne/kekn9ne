@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
+_"When you say yes to change, you are choosing to navigate that path peacefully and happily and see where it takes you. — *Sonia Ricotti*"_
 
 ---
