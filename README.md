@@ -7,6 +7,6 @@
 
 ---
 
-_"The two most important days in your life are the day you are born and the day you find out why. — *Mark Twain*"_
+_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
 
 ---
