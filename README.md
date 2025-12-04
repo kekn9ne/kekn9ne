@@ -7,6 +7,6 @@
 
 ---
 
-_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
+_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
 
 ---
