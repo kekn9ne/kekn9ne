@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
+_"There is nothing in the world so irresistibly contagious as laughter and good humor. — *Charles Dickens*"_
 
 ---
