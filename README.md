@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 04 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **☁️   +12°C**  
 📊 GitHub Contributions: **90**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
+_"The real measure of your wealth is how much you'd be worth if you lost all your money. — *Unknown*"_
 
 ---
