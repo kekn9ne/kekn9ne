@@ -7,6 +7,6 @@
 
 ---
 
-_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
+_"A mentor is someone who sees more talent and ability within you, than you see in yourself, and helps bring it out of you. — *Bob Proctor*"_
 
 ---
