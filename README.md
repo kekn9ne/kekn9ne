@@ -7,6 +7,6 @@
 
 ---
 
-_"Just as true humor is laughter at oneself, true humanity is knowledge of oneself. — *Alan Watts*"_
+_"The two most important days in your life are the day you are born and the day you find out why. — *Mark Twain*"_
 
 ---
