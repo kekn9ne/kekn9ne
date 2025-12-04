@@ -7,6 +7,6 @@
 
 ---
 
-_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
+_"Happiness is the meaning and the purpose of life, the whole aim and end of human existence. — *Aristotle*"_
 
 ---
