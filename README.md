@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather die on my feet than live on my knees. — *Euripides*"_
+_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
 
 ---
