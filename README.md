@@ -7,6 +7,6 @@
 
 ---
 
-_"The chief danger in life is that you may take too many precautions. — *Alfred Adler*"_
+_"If a man knows not to which port he sails, no wind is favorable.   — *Seneca*"_
 
 ---
