@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
+_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
 
 ---
