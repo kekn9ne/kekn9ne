@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
+_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
 
 ---
