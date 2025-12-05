@@ -7,6 +7,6 @@
 
 ---
 
-_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
+_"You are not one person, but three: The one you think you are; The one others think you are; The one you really are. — *Sathya Sai Baba*"_
 
 ---
