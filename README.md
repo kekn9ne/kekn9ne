@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Peace. Peace is the path. — *Dan Millman*"_
+_"Great minds are always feared by lesser minds. — *Dan Brown*"_
 
 ---
