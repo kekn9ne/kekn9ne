@@ -7,6 +7,6 @@
 
 ---
 
-_"Without struggle, no progress and no result. Every breaking of habit produces a change in the machine. — *G.I. Gurdjieff*"_
+_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
 
 ---
