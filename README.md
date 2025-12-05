@@ -7,6 +7,6 @@
 
 ---
 
-_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
+_"I will not walk backward in life. — *J.R.R. Tolkien*"_
 
 ---
