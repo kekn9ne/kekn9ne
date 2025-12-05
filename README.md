@@ -7,6 +7,6 @@
 
 ---
 
-_"Procrastination is one of the most common and deadliest of diseases and its toll on success and happiness is heavy. — *Wayne Gretzky*"_
+_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
 
 ---
