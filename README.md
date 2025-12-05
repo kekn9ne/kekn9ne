@@ -7,6 +7,6 @@
 
 ---
 
-_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
+_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
 
 ---
