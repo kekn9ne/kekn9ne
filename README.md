@@ -7,6 +7,6 @@
 
 ---
 
-_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
+_"It's easier to go down a hill than up it but the view is much better at the top. — *Henry Ward Beecher*"_
 
 ---
