@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds are always feared by lesser minds. — *Dan Brown*"_
+_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
 
 ---
