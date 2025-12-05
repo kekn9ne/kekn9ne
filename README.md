@@ -7,6 +7,6 @@
 
 ---
 
-_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
+_"Be content with what you have, rejoice in the way things are. When you realize there is nothing lacking, the whole world belongs to you. — *Lao Tzu*"_
 
 ---
