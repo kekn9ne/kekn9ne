@@ -7,6 +7,6 @@
 
 ---
 
-_"Why change? Everyone has his own style. When you have found it, you should stick to it. — *Audrey Hepburn*"_
+_"There is no path to Peace. Peace is the path. — *Dan Millman*"_
 
 ---
