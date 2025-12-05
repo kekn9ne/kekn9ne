@@ -7,6 +7,6 @@
 
 ---
 
-_"You were born to win, but to be a winner you must plan to win, prepare to win, and expect to win. — *Zig Ziglar*"_
+_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
 
 ---
