@@ -7,6 +7,6 @@
 
 ---
 
-_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
