@@ -7,6 +7,6 @@
 
 ---
 
-_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
+_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
 
 ---
