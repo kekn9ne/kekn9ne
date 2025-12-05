@@ -7,6 +7,6 @@
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
 
 ---
