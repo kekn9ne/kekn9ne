@@ -7,6 +7,6 @@
 
 ---
 
-_"The guest will judge better of a feast than the cook. — *Aristotle*"_
+_"Giving is living. If you stop wanting to give, there's nothing more to live for. — *Audrey Hepburn*"_
 
 ---
