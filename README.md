@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is an option here. If things are not failing, you are not innovating enough. — *Elon Musk*"_
+_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
 
 ---
