@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
+_"Every saint has a past, and every sinner has a future. — *Oscar Wilde*"_
 
 ---
