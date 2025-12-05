@@ -7,6 +7,6 @@
 
 ---
 
-_"People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — *Zig Ziglar*"_
+_"Things cannot forever go downward. There are limits to everything—even the cold, and the darkness, and the wind, and the dying. — *Ming-Dao Deng*"_
 
 ---
