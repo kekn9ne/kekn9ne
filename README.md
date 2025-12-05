@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"When your intuition is strong, follow it. — *Lolly Daskal*"_
 
 ---
