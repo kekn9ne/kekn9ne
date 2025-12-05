@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
+_"To escape from the world means that one's mind is not concerned with the opinions of the world. — *Dogen*"_
 
 ---
