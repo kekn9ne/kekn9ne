@@ -7,6 +7,6 @@
 
 ---
 
-_"We have a choice everyday regarding the attitude we will embrace for that day. — *Charles Swindoll*"_
+_"The chief danger in life is that you may take too many precautions. — *Alfred Adler*"_
 
 ---
