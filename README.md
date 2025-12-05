@@ -7,6 +7,6 @@
 
 ---
 
-_"Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything. — *Shunryu Suzuki*"_
+_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
 
 ---
