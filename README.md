@@ -7,6 +7,6 @@
 
 ---
 
-_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
+_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
 
 ---
