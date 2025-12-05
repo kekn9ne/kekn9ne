@@ -7,6 +7,6 @@
 
 ---
 
-_"Every saint has a past, and every sinner has a future. — *Oscar Wilde*"_
+_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
 
 ---
