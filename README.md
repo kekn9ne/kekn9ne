@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
 
 ---
