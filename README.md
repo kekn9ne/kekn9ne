@@ -7,6 +7,6 @@
 
 ---
 
-_"Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt. — *Honore de Balzac*"_
+_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
 
 ---
