@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Love. Love is the path. — *Dan Millman*"_
+_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
 
 ---
