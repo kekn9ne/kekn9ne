@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 05 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +17°C**  
 📊 GitHub Contributions: **90**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **MP5** by *D-azy* 🎶
 
 ---
 
-_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
+_"Engage in those actions and thoughts that nurture the good qualities you want to have. — *Paramahansa Yogananda*"_
 
 ---
