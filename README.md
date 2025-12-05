@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no accidents... there is only some purpose that we haven't yet understood. — *Deepak Chopra*"_
+_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
 
 ---
