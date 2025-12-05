@@ -7,6 +7,6 @@
 
 ---
 
-_"There will always be suffering. But we must not suffer over the suffering. — *Alan Watts*"_
+_"If we will be quiet and ready enough, we shall find compensation in every disappointment. — *Henry David Thoreau*"_
 
 ---
