@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
+_"The two most important days in your life are the day you are born and the day you find out why. — *Mark Twain*"_
 
 ---
