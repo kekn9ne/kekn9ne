@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
+_"Where ever you are, you are one with the clouds and one with the sun and the stars you see. You are one with everything. — *Shunryu Suzuki*"_
 
 ---
