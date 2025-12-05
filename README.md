@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way to make sense out of change is to plunge into it, move with it, and join the dance. — *Alan Watts*"_
+_"There will always be suffering. But we must not suffer over the suffering. — *Alan Watts*"_
 
 ---
