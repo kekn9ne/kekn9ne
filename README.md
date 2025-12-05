@@ -7,6 +7,6 @@
 
 ---
 
-_"To escape from the world means that one's mind is not concerned with the opinions of the world. — *Dogen*"_
+_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
 
 ---
