@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easier to go down a hill than up it but the view is much better at the top. — *Henry Ward Beecher*"_
+_"Invisible things are the only realities. — *Edgar Allan Poe*"_
 
 ---
