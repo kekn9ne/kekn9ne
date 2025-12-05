@@ -7,6 +7,6 @@
 
 ---
 
-_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
+_"Your gift is something that you can do innately better than anything else. — *Steve Harvey*"_
 
 ---
