@@ -7,6 +7,6 @@
 
 ---
 
-_"Giving is living. If you stop wanting to give, there's nothing more to live for. — *Audrey Hepburn*"_
+_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
 
 ---
