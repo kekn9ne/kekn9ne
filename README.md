@@ -7,6 +7,6 @@
 
 ---
 
-_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
+_"Light a candle instead of cursing the darkness. — *Eleanor Roosevelt*"_
 
 ---
