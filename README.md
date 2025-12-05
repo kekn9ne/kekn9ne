@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
+_"Attitude is a little thing that makes a big difference. — *Winston Churchill*"_
 
 ---
