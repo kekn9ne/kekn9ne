@@ -7,6 +7,6 @@
 
 ---
 
-_"If we will be quiet and ready enough, we shall find compensation in every disappointment. — *Henry David Thoreau*"_
+_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
 
 ---
