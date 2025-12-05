@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people achieved their greatest success one step beyond what looked like their greatest failure. — *Brian Tracy*"_
+_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
 
 ---
