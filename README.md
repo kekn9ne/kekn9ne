@@ -7,6 +7,6 @@
 
 ---
 
-_"Do every act of your life as if it were your last. — *Marcus Aurelius*"_
+_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
 
 ---
