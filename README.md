@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are disturbed not by things, but by the view which they take of them. — *Epictetus*"_
+_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
 
 ---
