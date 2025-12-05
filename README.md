@@ -7,6 +7,6 @@
 
 ---
 
-_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
+_"Do every act of your life as if it were your last. — *Marcus Aurelius*"_
 
 ---
