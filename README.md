@@ -7,6 +7,6 @@
 
 ---
 
-_"The first principle of success is desire. — *Robert Collier*"_
+_"Leadership starts at the top. — *Morgan Wootten*"_
 
 ---
