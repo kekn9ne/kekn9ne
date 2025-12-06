@@ -7,6 +7,6 @@
 
 ---
 
-_"When you believe in a thing, believe in it all the way, implicitly and unquestionable. — *Walt Disney*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
