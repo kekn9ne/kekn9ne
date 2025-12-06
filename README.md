@@ -7,6 +7,6 @@
 
 ---
 
-_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
+_"We all give up great expectations along the way. — *Carlos Ruiz Zafon*"_
 
 ---
