@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
+_"What worries you, masters you. — *John Locke*"_
 
 ---
