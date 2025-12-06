@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
+_"Deeds will not be less valiant because they are upraised. — *J.R.R. Tolkien*"_
 
 ---
