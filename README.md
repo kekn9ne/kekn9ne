@@ -7,6 +7,6 @@
 
 ---
 
-_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
