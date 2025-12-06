@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. — *Simon Sinek*"_
+_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
 
 ---
