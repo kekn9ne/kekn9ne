@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **ÇAKKIDI 2.0** by *Ali Salvatore* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
+_"It does not do to dwell on dreams and forget to live, remember that. — *Albus Dumbledore*"_
 
 ---
