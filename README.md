@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
+_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
 
 ---
