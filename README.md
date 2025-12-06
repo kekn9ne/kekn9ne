@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
+_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
 
 ---
