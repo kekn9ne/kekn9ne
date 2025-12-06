@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let making a living prevent you from making a life. — *John Wooden*"_
+_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
 
 ---
