@@ -7,6 +7,6 @@
 
 ---
 
-_"The power of man has grown in every sphere, except over himself. — *Winston Churchill*"_
+_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
 
 ---
