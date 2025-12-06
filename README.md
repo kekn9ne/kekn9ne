@@ -7,6 +7,6 @@
 
 ---
 
-_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
+_"We have no more right to consume happiness without producing it than to consume wealth without producing it. — *George Bernard Shaw*"_
 
 ---
