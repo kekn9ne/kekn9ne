@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. — *Simon Sinek*"_
 
 ---
