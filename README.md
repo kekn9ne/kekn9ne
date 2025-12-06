@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 06 December 2025**  
-🌤️ Weather in Istanbul: **☁️   +16°C**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
+_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
 
 ---
