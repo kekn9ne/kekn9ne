@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +19°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **İstanbul Mafya** by *Chiko* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The more perfect a person is on the outside, the more demons they have on the inside. — *Sigmund Freud*"_
+_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
 
 ---
