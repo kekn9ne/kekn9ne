@@ -7,6 +7,6 @@
 
 ---
 
-_"What worries you, masters you. — *John Locke*"_
+_"The power of man has grown in every sphere, except over himself. — *Winston Churchill*"_
 
 ---
