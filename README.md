@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 06 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RUM RUM RUM** by *Lvbel C5* 🎶
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
 
 ---
