@@ -7,6 +7,6 @@
 
 ---
 
-_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
+_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
 
 ---
