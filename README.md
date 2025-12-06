@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, it's the place you need to be. — *Maxime Lagace*"_
+_"Don't blame others. it won't make you a better person. — *Lolly Daskal*"_
 
 ---
