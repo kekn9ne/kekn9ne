@@ -7,6 +7,6 @@
 
 ---
 
-_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
+_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
 
 ---
