@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
+_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
 
 ---
