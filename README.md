@@ -7,6 +7,6 @@
 
 ---
 
-_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
+_"The mind is the limit. — *Arnold Schwarzenegger*"_
 
 ---
