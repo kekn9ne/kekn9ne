@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 06 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ÇAKKIDI 2.0** by *Ali Salvatore* 🎶
 
 ---
 
-_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
+_"Happiness must be grown in one's own garden. — *Mary Engelbreit*"_
 
 ---
