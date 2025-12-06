@@ -7,6 +7,6 @@
 
 ---
 
-_"Leadership starts at the top. — *Morgan Wootten*"_
+_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
 
 ---
