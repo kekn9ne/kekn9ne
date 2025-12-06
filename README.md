@@ -7,6 +7,6 @@
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
 
 ---
