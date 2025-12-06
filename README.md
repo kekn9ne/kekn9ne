@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
 
 ---
