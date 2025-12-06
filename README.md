@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
