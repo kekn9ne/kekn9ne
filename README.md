@@ -7,6 +7,6 @@
 
 ---
 
-_"Wake up and smile! Wake up and be grateful! — *Steve Harvey*"_
+_"Imagination is more important than knowledge. — *Albert Einstein*"_
 
 ---
