@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is achieved and maintained by those who try and keep trying.  — *W. Clement Stone*"_
+_"If you see someone without a smile give them one of yours. — *Unknown*"_
 
 ---
