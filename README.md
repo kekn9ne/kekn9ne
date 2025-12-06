@@ -7,6 +7,6 @@
 
 ---
 
-_"If you see someone without a smile give them one of yours. — *Unknown*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
