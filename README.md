@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not final, failure is not fatal: it is the courage to continue that counts. — *Winston Churchill*"_
+_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
 
 ---
