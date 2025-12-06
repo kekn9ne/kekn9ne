@@ -7,6 +7,6 @@
 
 ---
 
-_"You use a glass mirror to see your face; you use works of art to see your soul. — *George Bernard Shaw*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
