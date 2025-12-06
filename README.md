@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 06 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🗓️ Today is: **Sunday, 07 December 2025**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Happiness can be found, even in the darkest of times, if one only remembers to turn on the light. — *Albus Dumbledore*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
