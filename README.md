@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
+_"Poetry is written with tears, fiction with blood, and history with invisible ink. — *Carlos Ruiz Zafon*"_
 
 ---
