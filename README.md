@@ -7,6 +7,6 @@
 
 ---
 
-_"All power is from within and therefore under our control. — *Robert Collier*"_
+_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
 
 ---
