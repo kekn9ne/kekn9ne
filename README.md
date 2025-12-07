@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **ABBAS - Hood Trap Remix** by *Kava* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
+_"Troubles are often the tools by which God fashions us for better things. — *Henry Ward Beecher*"_
 
 ---
