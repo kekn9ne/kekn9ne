@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
+🎧 Currently Listening: **ABBAS - Hood Trap Remix** by *Kava* 🎶
 
 ---
 
-_"The universe doesn't allow perfection. — *Stephen Hawking*"_
+_"Happiness is an effect of doing what you love, not an end goal to be achieved. — *Celestine Chua*"_
 
 ---
