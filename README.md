@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius, in truth, means little more than the faculty of perceiving in an unhabitual way. — *William James*"_
+_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
 
 ---
