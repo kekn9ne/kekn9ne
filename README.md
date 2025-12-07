@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌧   +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Mayday** by *Patron* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success comes to those who become success conscious. — *Napoleon Hill*"_
+_"Truth is such a rare thing, it is delighted to tell it. — *Emily Dickinson*"_
 
 ---
