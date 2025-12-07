@@ -7,6 +7,6 @@
 
 ---
 
-_"All life is an experiment. The more experiments you make, the better. — *Ralph Waldo Emerson*"_
+_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
 
 ---
