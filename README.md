@@ -7,6 +7,6 @@
 
 ---
 
-_"We can see through others only when we can see through ourselves. — *Bruce Lee*"_
+_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
 
 ---
