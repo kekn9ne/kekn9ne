@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
 
 ---
 
-_"Stuff your eyes with wonder... live as if you'd drop dead in ten seconds. See the world. It's more fantastic than any dream made or paid for in factories. — *Ray Bradbury*"_
+_"We don't stop playing because we grow old; we grow old because we stop playing. — *George Bernard Shaw*"_
 
 ---
