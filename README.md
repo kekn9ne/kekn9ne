@@ -7,6 +7,6 @@
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"Those who can make you believe absurdities can make you commit atrocities.  — *Voltaire*"_
 
 ---
