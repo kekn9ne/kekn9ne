@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"Get mad, then get over it. — *Colin Powell*"_
 
 ---
