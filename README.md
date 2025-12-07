@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
+_"Success comes to those who become success conscious. — *Napoleon Hill*"_
 
 ---
