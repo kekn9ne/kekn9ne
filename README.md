@@ -7,6 +7,6 @@
 
 ---
 
-_"Time doesn't heal emotional pain, you need to learn how to let go. — *Roy T. Bennett*"_
+_"Failure is not fatal, but failure to change might be. — *John Wooden*"_
 
 ---
