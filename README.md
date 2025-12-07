@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
+_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
 
 ---
