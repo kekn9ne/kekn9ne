@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Confuse them with your silence and amaze them with your actions. — *Unknown*"_
+_"If light is in your heart, you will find your way home.   — *Rumi*"_
 
 ---
