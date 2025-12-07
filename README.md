@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is the great teacher and to learn its lessons you must pay attention to it. — *Deepak Chopra*"_
+_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
 
 ---
