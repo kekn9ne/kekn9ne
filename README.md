@@ -7,6 +7,6 @@
 
 ---
 
-_"I am who I am today because of the choices I made yesterday. — *Eleanor Roosevelt*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
 
 ---
