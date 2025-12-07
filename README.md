@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
+_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
 
 ---
