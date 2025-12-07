@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌧   +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Size XXL** by *Stap* 🎶
+🎧 Currently Listening: **Mayday** by *Patron* 🎶
 
 ---
 
-_"To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to. — *Kahlil Gibran*"_
+_"Life is a traveling to the edge of knowledge, then a leap taken. — *D. H. Lawrence*"_
 
 ---
