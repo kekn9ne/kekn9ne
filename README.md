@@ -7,6 +7,6 @@
 
 ---
 
-_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
+_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
 
 ---
