@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole of life, from the moment you are born to the moment you die, is a process of learning. — *Jiddu Krishnamurti*"_
+_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
 
 ---
