@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
+_"All life is an experiment. The more experiments you make, the better. — *Ralph Waldo Emerson*"_
 
 ---
