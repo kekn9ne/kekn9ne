@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **pr** by *Muti* 🎶
+🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
 
 ---
 
-_"It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime. — *Steve Maraboli*"_
+_"The universe doesn't allow perfection. — *Stephen Hawking*"_
 
 ---
