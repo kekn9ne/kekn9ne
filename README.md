@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you admire was once a beginner. — *Jack Butcher*"_
+_"Life and death are of supreme importance. Time swiftly passes by and opportunity is lost. — *Dogen*"_
 
 ---
