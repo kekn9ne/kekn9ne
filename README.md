@@ -7,6 +7,6 @@
 
 ---
 
-_"If we know how to adapt, we end up being superior. — *Ming-Dao Deng*"_
+_"I am who I am today because of the choices I made yesterday. — *Eleanor Roosevelt*"_
 
 ---
