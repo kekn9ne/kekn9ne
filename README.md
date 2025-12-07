@@ -7,6 +7,6 @@
 
 ---
 
-_"Plants grow weak without wind. — *Maxime Lagace*"_
+_"Keep your dreams, you never know when you might need them. — *Carlos Ruiz Zafon*"_
 
 ---
