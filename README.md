@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"Laziness may appear attractive, but work gives satisfaction. — *Anne Frank*"_
+_"Confuse them with your silence and amaze them with your actions. — *Unknown*"_
 
 ---
