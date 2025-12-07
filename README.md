@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
+_"When people are free to do as they please, they usually imitate each other. — *Eric Hoffer*"_
 
 ---
