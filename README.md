@@ -7,6 +7,6 @@
 
 ---
 
-_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
+_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
 
 ---
