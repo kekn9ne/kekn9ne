@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 07 December 2025**  
-🌤️ Weather in Istanbul: **🌩  +14°C**  
+🌤️ Weather in Istanbul: **🌩  +13°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The more people you help become successful the more successful you become. — *Steve Harvey*"_
+_"Do not allow your inner doubts to keep you from achieving what you can do. — *Lolly Daskal*"_
 
 ---
