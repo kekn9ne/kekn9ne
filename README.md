@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **POZ VERDİM** by *D-azy* 🎶
+🎧 Currently Listening: **Zaza** by *Chiko* 🎶
 
 ---
 
-_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
+_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
 
 ---
