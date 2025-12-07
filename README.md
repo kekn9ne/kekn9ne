@@ -7,6 +7,6 @@
 
 ---
 
-_"You need to be doing fewer things for more effect instead of doing more things with side effects. — *Gary Keller*"_
+_"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form. — *Paramahansa Yogananda*"_
 
 ---
