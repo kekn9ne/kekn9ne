@@ -7,6 +7,6 @@
 
 ---
 
-_"The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time. — *Dan Millman*"_
+_"Success is getting what you want... Happiness is wanting what you get. — *Dale Carnegie*"_
 
 ---
