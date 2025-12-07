@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Trash** by *Motive* 🎶
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
+_"It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime. — *Steve Maraboli*"_
 
 ---
