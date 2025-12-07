@@ -7,6 +7,6 @@
 
 ---
 
-_"Get mad, then get over it. — *Colin Powell*"_
+_"Not everything that weighs you down is yours to carry. — *Unknown*"_
 
 ---
