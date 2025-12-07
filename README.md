@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you believe with feeling becomes your reality.  — *Brian Tracy*"_
+_"The seasons do not push one another; neither do clouds race the wind across the sky. All things happen in their own good time. — *Dan Millman*"_
 
 ---
