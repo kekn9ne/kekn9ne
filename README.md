@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **KULÜP 2.0** by *Wenty* 🎶
+🎧 Currently Listening: **POZ VERDİM** by *D-azy* 🎶
 
 ---
 
-_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
+_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
 
 ---
