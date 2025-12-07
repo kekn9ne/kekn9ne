@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form. — *Paramahansa Yogananda*"_
+_"Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases. — *Sathya Sai Baba*"_
 
 ---
