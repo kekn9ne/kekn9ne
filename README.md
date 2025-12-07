@@ -7,6 +7,6 @@
 
 ---
 
-_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
+_"Genius, in truth, means little more than the faculty of perceiving in an unhabitual way. — *William James*"_
 
 ---
