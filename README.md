@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, you travel, and as you love, you attract. — *James Allen*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
