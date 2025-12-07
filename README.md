@@ -7,6 +7,6 @@
 
 ---
 
-_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
+_"Laziness may appear attractive, but work gives satisfaction. — *Anne Frank*"_
 
 ---
