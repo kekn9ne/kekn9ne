@@ -7,6 +7,6 @@
 
 ---
 
-_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
