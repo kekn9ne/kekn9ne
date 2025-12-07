@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 07 December 2025**  
 🌤️ Weather in Istanbul: **🌧   +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Nefret** by *Patron* 🎶
+🎧 Currently Listening: **Memur** by *Stap* 🎶
 
 ---
 
-_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
