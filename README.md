@@ -7,6 +7,6 @@
 
 ---
 
-_"There's more to life than being a passenger. — *Amelia Earhart*"_
+_"It is the greatest of all mistakes to do nothing because you can only do little; do something. — *Sydney Smith*"_
 
 ---
