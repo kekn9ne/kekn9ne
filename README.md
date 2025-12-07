@@ -7,6 +7,6 @@
 
 ---
 
-_"Two roads diverged in a wood, and I took the one less traveled by, and that has made all the difference. — *Robert Frost*"_
+_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
 
 ---
