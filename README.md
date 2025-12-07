@@ -7,6 +7,6 @@
 
 ---
 
-_"Adventure is not outside man; it is within. — *George Eliot*"_
+_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
 
 ---
