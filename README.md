@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
+_"You need to be doing fewer things for more effect instead of doing more things with side effects. — *Gary Keller*"_
 
 ---
