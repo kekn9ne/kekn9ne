@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to sit back and observe, not everything needs a reaction. — *Unknown*"_
+_"Unless someone truly has the power to say no, they never truly have the power to say yes. — *Dan Millman*"_
 
 ---
