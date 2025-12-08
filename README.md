@@ -7,6 +7,6 @@
 
 ---
 
-_"Enthusiasm makes up for a host of deficiencies. — *Barack Obama*"_
+_"The guest will judge better of a feast than the cook. — *Aristotle*"_
 
 ---
