@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a long lesson in humility.  — *James Matthew Barrie*"_
+_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
 
 ---
