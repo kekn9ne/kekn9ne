@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
+_"Your time is limited, so don't waste it living someone elses. life. — *Steve Jobs*"_
 
 ---
