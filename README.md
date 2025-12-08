@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
+_"Do what you feel in your heart to be right - for you'll be criticized anyway. — *Eleanor Roosevelt*"_
 
 ---
