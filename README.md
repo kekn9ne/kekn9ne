@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
+_"We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world. — *Gabor Mate*"_
 
 ---
