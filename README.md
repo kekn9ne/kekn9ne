@@ -7,6 +7,6 @@
 
 ---
 
-_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
+_"With self-discipline, almost anything is possible. — *Theodore Roosevelt*"_
 
 ---
