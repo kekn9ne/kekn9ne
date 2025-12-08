@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **UÇUYORUM** by *EGE!* 🎶
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"Be polite to all, but intimate with few. — *Thomas Jefferson*"_
+_"Human behavior flows from three main sources: desire, emotion, and knowledge. — *Plato*"_
 
 ---
