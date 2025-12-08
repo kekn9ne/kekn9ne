@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"The score never interested me, only the game. — *Mae West*"_
 
 ---
