@@ -7,6 +7,6 @@
 
 ---
 
-_"It's possible in ways both large or small to make a difference in someone's life. — *Yanni*"_
+_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
 
 ---
