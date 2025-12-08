@@ -7,6 +7,6 @@
 
 ---
 
-_"Charms strike the sight, but merit wins the soul. — *Alexander Pope*"_
+_"It's possible in ways both large or small to make a difference in someone's life. — *Yanni*"_
 
 ---
