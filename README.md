@@ -7,6 +7,6 @@
 
 ---
 
-_"With self-discipline, almost anything is possible. — *Theodore Roosevelt*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
