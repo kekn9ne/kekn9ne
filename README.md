@@ -7,6 +7,6 @@
 
 ---
 
-_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
