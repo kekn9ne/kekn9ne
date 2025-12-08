@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul without imagination is what an observatory would be without a telescope. — *Henry Ward Beecher*"_
+_"Force has no place where there is need of skill.  — *Herodotus*"_
 
 ---
