@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. — *Steve Jobs*"_
+_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
 
 ---
