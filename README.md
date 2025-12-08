@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
+_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
