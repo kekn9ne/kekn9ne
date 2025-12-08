@@ -7,6 +7,6 @@
 
 ---
 
-_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
+_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
 
 ---
