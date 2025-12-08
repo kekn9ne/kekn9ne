@@ -7,6 +7,6 @@
 
 ---
 
-_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
