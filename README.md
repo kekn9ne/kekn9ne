@@ -7,6 +7,6 @@
 
 ---
 
-_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
+_"Life is a long lesson in humility.  — *James Matthew Barrie*"_
 
 ---
