@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
 
 ---
