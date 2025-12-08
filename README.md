@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest room in the world is the room for improvement. — *Unknown*"_
+_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
 
 ---
