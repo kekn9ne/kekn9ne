@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 08 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
 
 ---
 
-_"Opportunity comes when you continually push forward. — *Sonia Ricotti*"_
+_"You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead? — *Seneca*"_
 
 ---
