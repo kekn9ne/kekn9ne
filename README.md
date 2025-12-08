@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth is in a series of mistakes. That's the only way you learn. — *Steve Harvey*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
