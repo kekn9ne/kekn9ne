@@ -7,6 +7,6 @@
 
 ---
 
-_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
+_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
 
 ---
