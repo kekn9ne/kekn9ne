@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is feedback. Learn from it and move on. — *Jack Butcher*"_
+_"Develop success from failures. Discouragement and failure are two of the surest stepping stones to success. — *Dale Carnegie*"_
 
 ---
