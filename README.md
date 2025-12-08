@@ -7,6 +7,6 @@
 
 ---
 
-_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
 
 ---
