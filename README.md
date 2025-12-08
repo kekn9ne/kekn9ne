@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"Learn to sit back and observe, not everything needs a reaction. — *Unknown*"_
 
 ---
