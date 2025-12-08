@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something then you lose everything. If you don't want anything then you already have everything. — *Seungsahn*"_
+_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
 
 ---
