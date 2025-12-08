@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
+_"Darkness is the absence of light. — *Kamal Ravikant*"_
 
 ---
