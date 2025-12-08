@@ -7,6 +7,6 @@
 
 ---
 
-_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
+_"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine. — *Brian Tracy*"_
 
 ---
