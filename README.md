@@ -7,6 +7,6 @@
 
 ---
 
-_"Force has no place where there is need of skill.  — *Herodotus*"_
+_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
 
 ---
