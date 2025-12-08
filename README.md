@@ -7,6 +7,6 @@
 
 ---
 
-_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
+_"Honor is the foundation of courage. — *Amelia Earhart*"_
 
 ---
