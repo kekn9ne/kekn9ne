@@ -7,6 +7,6 @@
 
 ---
 
-_"The guest will judge better of a feast than the cook. — *Aristotle*"_
+_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
 
 ---
