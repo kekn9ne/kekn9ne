@@ -7,6 +7,6 @@
 
 ---
 
-_"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine. — *Brian Tracy*"_
+_"Opportunity comes when you continually push forward. — *Sonia Ricotti*"_
 
 ---
