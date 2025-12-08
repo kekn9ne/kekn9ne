@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless someone truly has the power to say no, they never truly have the power to say yes. — *Dan Millman*"_
+_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
 
 ---
