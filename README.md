@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
+_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
 
 ---
