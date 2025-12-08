@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
+_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
 
 ---
