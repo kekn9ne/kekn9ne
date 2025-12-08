@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
+_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
 
 ---
