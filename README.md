@@ -7,6 +7,6 @@
 
 ---
 
-_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
+_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
 
 ---
