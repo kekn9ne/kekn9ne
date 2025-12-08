@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn off your mind, relax, and float downstream. — *John Lennon*"_
+_"Enthusiasm makes up for a host of deficiencies. — *Barack Obama*"_
 
 ---
