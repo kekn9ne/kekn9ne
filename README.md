@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Double B** by *EGE!* 🎶
 
 ---
 
-_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
+_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
 
 ---
