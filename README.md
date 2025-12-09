@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **6.4 MM** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A different result requires doing something different. — *Gary Keller*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
