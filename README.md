@@ -7,6 +7,6 @@
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"Absence makes the heart grow fonder. — *Eleanor Roosevelt*"_
 
 ---
