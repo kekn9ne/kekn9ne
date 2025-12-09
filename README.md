@@ -7,6 +7,6 @@
 
 ---
 
-_"A different result requires doing something different. — *Gary Keller*"_
+_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
 
 ---
