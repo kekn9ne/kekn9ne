@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: **6.4 MM** by *UZI* 🎶
 
 ---
 
-_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
+_"A different result requires doing something different. — *Gary Keller*"_
 
 ---
