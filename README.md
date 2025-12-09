@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
+_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
 
 ---
