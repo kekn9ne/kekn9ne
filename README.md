@@ -7,6 +7,6 @@
 
 ---
 
-_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
+_"Success is nothing more than a few simple disciplines practiced every day. — *Jim Rohn*"_
 
 ---
