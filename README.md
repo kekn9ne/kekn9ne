@@ -7,6 +7,6 @@
 
 ---
 
-_"You can only be afraid of what you think you know. — *Jiddu Krishnamurti*"_
+_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
 
 ---
