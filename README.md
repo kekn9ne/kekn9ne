@@ -7,6 +7,6 @@
 
 ---
 
-_"The road to success and the road to failure are almost exactly the same. — *Colin R. Davis*"_
+_"Conflict cannot survive without your participation.  — *Wayne Dyer*"_
 
 ---
