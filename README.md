@@ -7,6 +7,6 @@
 
 ---
 
-_"All men are equal before fish. — *Herbert Hoover*"_
+_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
 
 ---
