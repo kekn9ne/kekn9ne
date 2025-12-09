@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
+_"Friendship takes time and energy if it's going to work. — *Betty White*"_
 
 ---
