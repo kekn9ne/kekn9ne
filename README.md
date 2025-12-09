@@ -7,6 +7,6 @@
 
 ---
 
-_"Observe things as they are and don't pay attention to other people. — *Huang Po*"_
+_"You can only be afraid of what you think you know. — *Jiddu Krishnamurti*"_
 
 ---
