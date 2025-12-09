@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. — *Steve Maraboli*"_
+_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
 
 ---
