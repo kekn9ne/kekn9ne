@@ -7,6 +7,6 @@
 
 ---
 
-_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
