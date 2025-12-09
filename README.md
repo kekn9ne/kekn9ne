@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 09 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
+_"No matter how much preparation we do, in the real tests of our lives, we'll be in unfamiliar terrain. — *Josh Waitzkin*"_
 
 ---
