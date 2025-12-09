@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is never easy, but always possible. — *Barack Obama*"_
+_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
 
 ---
