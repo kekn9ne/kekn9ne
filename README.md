@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
+_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
 
 ---
