@@ -7,6 +7,6 @@
 
 ---
 
-_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
+_"Observe things as they are and don't pay attention to other people. — *Huang Po*"_
 
 ---
