@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
 
 ---
