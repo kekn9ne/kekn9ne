@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
+_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
 
 ---
