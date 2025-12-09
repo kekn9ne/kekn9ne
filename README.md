@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot find peace by avoiding life. — *Virginia Woolf*"_
+_"Your mind will make you rich or poor, depending on the use you put to it. — *Brian Tracy*"_
 
 ---
