@@ -7,6 +7,6 @@
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"Don't be afraid to give up the good to go for the great. — *John D. Rockefeller*"_
 
 ---
