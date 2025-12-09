@@ -7,6 +7,6 @@
 
 ---
 
-_"Setting goals is the first step in turning the invisible into the visible. — *Tony Robbins*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
