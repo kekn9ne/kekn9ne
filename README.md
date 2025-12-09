@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
+_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
 
 ---
