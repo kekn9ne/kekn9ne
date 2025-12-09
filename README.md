@@ -7,6 +7,6 @@
 
 ---
 
-_"Make no small plans for they have no power to stir the soul. — *Niccolo Machiavelli*"_
+_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
 
 ---
