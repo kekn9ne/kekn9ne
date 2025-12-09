@@ -7,6 +7,6 @@
 
 ---
 
-_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
+_"The road to success and the road to failure are almost exactly the same. — *Colin R. Davis*"_
 
 ---
