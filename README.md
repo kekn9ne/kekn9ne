@@ -7,6 +7,6 @@
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"A man has to learn that he cannot command things but that he can command himself; that he cannot coerce the wills of others but that he can mold and master his own will. — *James Allen*"_
 
 ---
