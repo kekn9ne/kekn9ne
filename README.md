@@ -7,6 +7,6 @@
 
 ---
 
-_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
+_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
 
 ---
