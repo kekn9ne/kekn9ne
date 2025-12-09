@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no truth. There is only perception. — *Gustave Flaubert*"_
+_"Realize deeply that the present moment is all you ever have.  — *Eckhart Tolle*"_
 
 ---
