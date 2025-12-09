@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
 
 ---
