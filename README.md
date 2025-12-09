@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
+_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
 
 ---
