@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
+_"Letting go means to come to the realization that some people are a part of your history, but not a part of your destiny. — *Steve Maraboli*"_
 
 ---
