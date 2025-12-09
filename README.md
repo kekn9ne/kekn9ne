@@ -7,6 +7,6 @@
 
 ---
 
-_"Talent is luck. The important thing in life is courage. — *Woody Allen*"_
+_"Courage is resistance to fear, mastery of fear - not absence of fear. — *Mark Twain*"_
 
 ---
