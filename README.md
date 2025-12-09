@@ -7,6 +7,6 @@
 
 ---
 
-_"When the fish is caught we pay no more attention to the trap. — *Huang Po*"_
+_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
 
 ---
