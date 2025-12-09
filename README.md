@@ -7,6 +7,6 @@
 
 ---
 
-_"The more often a stupidity is repeated, the more it gets the appearance of wisdom. — *Voltaire*"_
+_"There is no truth. There is only perception. — *Gustave Flaubert*"_
 
 ---
