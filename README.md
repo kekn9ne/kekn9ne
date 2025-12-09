@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 09 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
 
 ---
 
-_"Everything you can imagine is real. — *Pablo Picasso*"_
+_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
 
 ---
