@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't have time to do it right, when will you have time to do it over? — *John Wooden*"_
+_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
 
 ---
