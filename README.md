@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
 
 ---
