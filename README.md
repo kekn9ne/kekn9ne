@@ -7,6 +7,6 @@
 
 ---
 
-_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
+_"Change is never easy, but always possible. — *Barack Obama*"_
 
 ---
