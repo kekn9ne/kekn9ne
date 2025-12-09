@@ -7,6 +7,6 @@
 
 ---
 
-_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
+_"When the fish is caught we pay no more attention to the trap. — *Huang Po*"_
 
 ---
