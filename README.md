@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"Be happy in the moment, that's enough. Each moment is all we need, not more. — *Mother Teresa*"_
 
 ---
