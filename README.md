@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zamansız** by *Şam* 🎶
 
 ---
 
-_"Life is not always a matter of holding good cards, but sometimes, playing a poor hand well.  — *Jack London*"_
+_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
 
 ---
