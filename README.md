@@ -7,6 +7,6 @@
 
 ---
 
-_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
