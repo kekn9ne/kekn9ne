@@ -7,6 +7,6 @@
 
 ---
 
-_"Realize deeply that the present moment is all you ever have.  — *Eckhart Tolle*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
