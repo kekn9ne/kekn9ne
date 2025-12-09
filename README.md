@@ -7,6 +7,6 @@
 
 ---
 
-_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
+_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
 
 ---
