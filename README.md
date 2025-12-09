@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
+_"The day is for honest men, the night for thieves. — *Euripides*"_
 
 ---
