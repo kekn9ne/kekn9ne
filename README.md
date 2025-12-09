@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
+_"Some people feel the rain. Others just get wet.  — *Bob Dylan*"_
 
 ---
