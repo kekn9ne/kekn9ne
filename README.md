@@ -7,6 +7,6 @@
 
 ---
 
-_"Distant water does not put out a nearby fire. — *Chinese Proverb*"_
+_"It is better to offer no excuse than a bad one.  — *George Washington*"_
 
 ---
