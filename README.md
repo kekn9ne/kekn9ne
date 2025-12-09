@@ -7,6 +7,6 @@
 
 ---
 
-_"Conflict cannot survive without your participation.  — *Wayne Dyer*"_
+_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
 
 ---
