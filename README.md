@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Melankoliye Övgü** by *Kanove* 🎶
+🎧 Currently Listening: **Uykusuz Geceler** by *MERO* 🎶
 
 ---
 
-_"Don't be afraid to give up the good to go for the great. — *John D. Rockefeller*"_
+_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
 
 ---
