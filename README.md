@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Gözler** by *cakal* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The essence of the Way is detachment. — *Bodhidharma*"_
+_"Less is more. — *Robert Browning*"_
 
 ---
