@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **☁️   +13°C**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
 
 ---
 
-_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
+_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
 
 ---
