@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KIRIK** by *Keskin* 🎶
 
 ---
 
-_"If you done it, it ain't bragging. — *Walt Whitman*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
