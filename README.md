@@ -7,6 +7,6 @@
 
 ---
 
-_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
+_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
 
 ---
