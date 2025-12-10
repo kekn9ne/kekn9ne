@@ -7,6 +7,6 @@
 
 ---
 
-_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
+_"If we all did the things we are capable of doing, we would literally astound ourselves. — *Thomas Edison*"_
 
 ---
