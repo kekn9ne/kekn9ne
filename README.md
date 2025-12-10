@@ -7,6 +7,6 @@
 
 ---
 
-_"If a thing is worth doing, it is worth doing badly. — *Gilbert Chesterton*"_
+_"Difficult roads often lead to beautiful destinations. — *Unknown*"_
 
 ---
