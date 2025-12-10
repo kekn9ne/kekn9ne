@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Gözler** by *cakal* 🎶
+🎧 Currently Listening: **Partner** by *Organize* 🎶
 
 ---
 
-_"The grass is greener where you water it. — *Neil Barringham*"_
+_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
 
 ---
