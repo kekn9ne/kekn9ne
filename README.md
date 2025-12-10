@@ -7,6 +7,6 @@
 
 ---
 
-_"I do not seek. I find. — *Pablo Picasso*"_
+_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
 
 ---
