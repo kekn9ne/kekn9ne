@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
+_"From a certain point onward there is no longer any turning back. That is the point that must be reached. — *Franz Kafka*"_
 
 ---
