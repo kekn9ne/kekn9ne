@@ -7,6 +7,6 @@
 
 ---
 
-_"Play your part in life, but never forget that it is only a role. — *Paramahansa Yogananda*"_
+_"Fallacies do not cease to be fallacies because they become fashions. — *Gilbert Chesterton*"_
 
 ---
