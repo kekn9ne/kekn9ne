@@ -7,6 +7,6 @@
 
 ---
 
-_"Of all men's miseries the bitterest is this: to know so much and to have control over nothing.  — *Herodotus*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
