@@ -7,6 +7,6 @@
 
 ---
 
-_"Allow motion to equal emotion. — *Elbert Hubbard*"_
+_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
 
 ---
