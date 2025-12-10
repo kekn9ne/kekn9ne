@@ -7,6 +7,6 @@
 
 ---
 
-_"Selfishness and greed, individual or national, cause most of our troubles. — *Harry S. Truman*"_
+_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
 
 ---
