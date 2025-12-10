@@ -7,6 +7,6 @@
 
 ---
 
-_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
+_"Of all men's miseries the bitterest is this: to know so much and to have control over nothing.  — *Herodotus*"_
 
 ---
