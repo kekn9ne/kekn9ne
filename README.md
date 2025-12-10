@@ -7,6 +7,6 @@
 
 ---
 
-_"Tis not too late to seek a newer world. — *Heraclitus*"_
+_"While some of us act without thinking, too many of us think without acting. — *Dan Millman*"_
 
 ---
