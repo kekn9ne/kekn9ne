@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being wise is knowing what to overlook. — *William James*"_
+_"I cannot make my days longer so I strive to make them better. — *Henry David Thoreau*"_
 
 ---
