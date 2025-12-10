@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one thing in the world worse than being talked about, and that is not being talked about.  — *Oscar Wilde*"_
+_"Always try to be a little kinder than necessary. — *James Matthew Barrie*"_
 
 ---
