@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KIRIK** by *Keskin* 🎶
 
 ---
 
-_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
+_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
 
 ---
