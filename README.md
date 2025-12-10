@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
+_"The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it. — *Carl Jung*"_
 
 ---
