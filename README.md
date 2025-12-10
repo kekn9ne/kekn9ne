@@ -7,6 +7,6 @@
 
 ---
 
-_"We create the world and ourselves; — *Ming-Dao Deng*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
