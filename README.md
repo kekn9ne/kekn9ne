@@ -7,6 +7,6 @@
 
 ---
 
-_"While some of us act without thinking, too many of us think without acting. — *Dan Millman*"_
+_"If a thing is worth doing, it is worth doing badly. — *Gilbert Chesterton*"_
 
 ---
