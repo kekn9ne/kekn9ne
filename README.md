@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness depends on your mindset and attitude. — *Roy T. Bennett*"_
+_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
 
 ---
