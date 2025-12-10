@@ -7,6 +7,6 @@
 
 ---
 
-_"Live, travel, adventure, bless, and don't be sorry.   — *Jack Kerouac*"_
+_"Happiness depends on your mindset and attitude. — *Roy T. Bennett*"_
 
 ---
