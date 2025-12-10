@@ -7,6 +7,6 @@
 
 ---
 
-_"Fallacies do not cease to be fallacies because they become fashions. — *Gilbert Chesterton*"_
+_"If you done it, it ain't bragging. — *Walt Whitman*"_
 
 ---
