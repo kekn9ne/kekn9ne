@@ -7,6 +7,6 @@
 
 ---
 
-_"Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable. — *Bhagavad Gita*"_
+_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
 
 ---
