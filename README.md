@@ -7,6 +7,6 @@
 
 ---
 
-_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
+_"Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable. — *Bhagavad Gita*"_
 
 ---
