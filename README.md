@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
+_"Nothing external to you has any power over you. — *Ralph Waldo Emerson*"_
 
 ---
