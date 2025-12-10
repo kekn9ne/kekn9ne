@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There are two things a person should never be angry at, what they can help, and what they cannot. — *Plato*"_
+_"There is only one thing in the world worse than being talked about, and that is not being talked about.  — *Oscar Wilde*"_
 
 ---
