@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The trouble with the rat race is that even if you win, you're still a rat. — *Lily Tomlin*"_
+_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
 
 ---
