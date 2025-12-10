@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are unable to find the truth right where you are, where else do you expect to find it? — *Dogen*"_
+_"Live, travel, adventure, bless, and don't be sorry.   — *Jack Kerouac*"_
 
 ---
