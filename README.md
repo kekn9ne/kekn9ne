@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
+_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
 
 ---
