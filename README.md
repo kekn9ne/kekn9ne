@@ -7,6 +7,6 @@
 
 ---
 
-_"I wasn't brave, I just didn't have time to be scared. — *Amelia Earhart*"_
+_"When it is dark enough, you can see the stars. — *Ralph Waldo Emerson*"_
 
 ---
