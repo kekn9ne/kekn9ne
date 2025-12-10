@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 10 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
+_"It isn't what you do, but how you do it. — *John Wooden*"_
 
 ---
