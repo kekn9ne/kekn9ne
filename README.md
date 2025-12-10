@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **FINISH HIM** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
+_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
 
 ---
