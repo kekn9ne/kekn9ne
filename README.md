@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Dale Don Dale** by *ElMusto* 🎶
+🎧 Currently Listening: **FINISH HIM** by *Mass* 🎶
 
 ---
 
-_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
+_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
 
 ---
