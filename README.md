@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **KIRIK** by *Keskin* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you're afraid - don't do it, - if you're doing it - don't be afraid!  — *Genghis Khan*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
