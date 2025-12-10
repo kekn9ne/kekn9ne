@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
+_"The art of being wise is knowing what to overlook. — *William James*"_
 
 ---
