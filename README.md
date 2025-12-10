@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It isn't what you do, but how you do it. — *John Wooden*"_
+_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
 
 ---
