@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 10 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Partner** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
+_"I wasn't brave, I just didn't have time to be scared. — *Amelia Earhart*"_
 
 ---
