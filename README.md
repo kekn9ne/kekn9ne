@@ -7,6 +7,6 @@
 
 ---
 
-_"Character is destiny. — *Heraclitus*"_
+_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
 
 ---
