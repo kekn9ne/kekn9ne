@@ -7,6 +7,6 @@
 
 ---
 
-_"The art of being wise is knowing what to overlook. — *William James*"_
+_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
 
 ---
