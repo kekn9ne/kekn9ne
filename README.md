@@ -7,6 +7,6 @@
 
 ---
 
-_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
+_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
 
 ---
