@@ -7,6 +7,6 @@
 
 ---
 
-_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
