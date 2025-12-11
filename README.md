@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Git...** by *Sezen Aksu* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
+_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
 
 ---
