@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 December 2025**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
 
 ---
