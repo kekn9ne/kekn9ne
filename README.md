@@ -7,6 +7,6 @@
 
 ---
 
-_"To a mind that is still, the entire universe surrenders. — *Zhuangzi*"_
+_"The idea of ourselves is our escape from the fact of what we really are. — *Jiddu Krishnamurti*"_
 
 ---
