@@ -7,6 +7,6 @@
 
 ---
 
-_"Even though you are on the right track - you will get run over if you just sit there. — *Will Rogers*"_
+_"It doesn't matter where you are coming from. All that matters is where you are going.  — *Brian Tracy*"_
 
 ---
