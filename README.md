@@ -7,6 +7,6 @@
 
 ---
 
-_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
+_"Just trust that everything is unfolding the way it is supposed to. Don't resist... Great things are waiting for you around the corner. — *Sonia Ricotti*"_
 
 ---
