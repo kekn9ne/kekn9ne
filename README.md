@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 11 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"Fear of death is fear of surrender to Infinity. Learn to surrender, to exist at Infinity while alive, and fear of death dissolves. — *Adi Da Samraj*"_
+_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
 
 ---
