@@ -7,6 +7,6 @@
 
 ---
 
-_"No one can hurt you without your consent. — *Eleanor Roosevelt*"_
+_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
 
 ---
