@@ -7,6 +7,6 @@
 
 ---
 
-_"Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself. — *Robert Kiyosaki*"_
+_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
 
 ---
