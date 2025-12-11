@@ -7,6 +7,6 @@
 
 ---
 
-_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
+_"He who laughs at himself never runs out of things to laugh at. — *Epictetus*"_
 
 ---
