@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"If the grass is greener on the other side, maybe that's because you're not taking good care of your grass. — *Unknown*"_
 
 ---
