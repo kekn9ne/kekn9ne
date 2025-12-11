@@ -7,6 +7,6 @@
 
 ---
 
-_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
+_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
 
 ---
