@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
+_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
 
 ---
