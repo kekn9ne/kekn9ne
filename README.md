@@ -7,6 +7,6 @@
 
 ---
 
-_"The idea of ourselves is our escape from the fact of what we really are. — *Jiddu Krishnamurti*"_
+_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
 
 ---
