@@ -7,6 +7,6 @@
 
 ---
 
-_"A lie can travel half way around the world while the truth is putting on its shoes. — *Mark Twain*"_
+_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
 
 ---
