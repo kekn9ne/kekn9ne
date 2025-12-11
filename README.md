@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
+_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
 
 ---
