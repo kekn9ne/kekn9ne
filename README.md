@@ -7,6 +7,6 @@
 
 ---
 
-_"Doing the best at this moment puts you in the best place for the next moment. — *Oprah Winfrey*"_
+_"The quality of your life is determined by the quality of your thoughts. — *Unknown*"_
 
 ---
