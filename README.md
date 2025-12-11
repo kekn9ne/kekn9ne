@@ -7,6 +7,6 @@
 
 ---
 
-_"It doesn't matter where you are coming from. All that matters is where you are going.  — *Brian Tracy*"_
+_"To become what you are not, behave as you do not. — *T.S. Eliot*"_
 
 ---
