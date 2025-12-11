@@ -7,6 +7,6 @@
 
 ---
 
-_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
+_"Character is destiny. — *Heraclitus*"_
 
 ---
