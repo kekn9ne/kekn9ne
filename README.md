@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
+🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
 
 ---
 
-_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
+_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
 
 ---
