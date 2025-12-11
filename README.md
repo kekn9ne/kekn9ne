@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 11 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +11°C**  
+🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be mindful. Be grateful. Be positive. Be true. Be kind. — *Roy T. Bennett*"_
+_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
 
 ---
