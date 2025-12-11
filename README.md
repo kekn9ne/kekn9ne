@@ -7,6 +7,6 @@
 
 ---
 
-_"You have brains in your head. You have feet in your shoes. You can steer yourself any direction you choose. — *Dr. Seuss*"_
+_"Life is a question and how we live it is our answer. — *Gary Keller*"_
 
 ---
