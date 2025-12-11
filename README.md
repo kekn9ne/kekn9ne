@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DAYI** by *Tuhan* 🎶
 
 ---
 
-_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
+_"It's the possibility of having a dream come true that makes life interesting. — *Paulo Coelho*"_
 
 ---
