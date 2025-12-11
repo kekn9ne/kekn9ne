@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
+_"They say love is the best investment; the more you give, the more you get in return. — *Audrey Hepburn*"_
 
 ---
