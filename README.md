@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure means you've now learned another valuable lesson that pushes you one step closer to success. — *Steve Harvey*"_
+_"Always do your best. What you plant now, you will harvest later. — *Og Mandino*"_
 
 ---
