@@ -7,6 +7,6 @@
 
 ---
 
-_"He who laughs at himself never runs out of things to laugh at. — *Epictetus*"_
+_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
 
 ---
