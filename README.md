@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do your best. What you plant now, you will harvest later. — *Og Mandino*"_
+_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
 
 ---
