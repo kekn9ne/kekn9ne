@@ -7,6 +7,6 @@
 
 ---
 
-_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
+_"If a thing is worth doing, it is worth doing badly. — *Gilbert Chesterton*"_
 
 ---
