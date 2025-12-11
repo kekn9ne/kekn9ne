@@ -7,6 +7,6 @@
 
 ---
 
-_"To become what you are not, behave as you do not. — *T.S. Eliot*"_
+_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
 
 ---
