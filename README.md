@@ -7,6 +7,6 @@
 
 ---
 
-_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
+_"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over. — *Joan Rivers*"_
 
 ---
