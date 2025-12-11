@@ -7,6 +7,6 @@
 
 ---
 
-_"Receive without pride, let go without attachment. — *Marcus Aurelius*"_
+_"Once a decision was made, I didn't worry about it afterward. — *Harry S. Truman*"_
 
 ---
