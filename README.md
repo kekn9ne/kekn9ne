@@ -7,6 +7,6 @@
 
 ---
 
-_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
+_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
 
 ---
