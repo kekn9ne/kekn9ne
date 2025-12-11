@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 11 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **AM2TERDAM** by *Jeff Redd* 🎶
+🎧 Currently Listening: **Ne Bakıyon Dayı Dayı** by *Keişan* 🎶
 
 ---
 
-_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
+_"Be mindful. Be grateful. Be positive. Be true. Be kind. — *Roy T. Bennett*"_
 
 ---
