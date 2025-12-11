@@ -7,6 +7,6 @@
 
 ---
 
-_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
