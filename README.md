@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
+_"Within every desire is the mechanics of its fulfillment. — *Deepak Chopra*"_
 
 ---
