@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheresoever you go, go with all your heart. — *Confucius*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
