@@ -7,6 +7,6 @@
 
 ---
 
-_"If your mind is empty, it is always ready for anything, it is open to everything. — *Shunryu Suzuki*"_
+_"Only when one allows themself the right to die, do they then give yourself the permission to live. — *C. Sean McGee*"_
 
 ---
