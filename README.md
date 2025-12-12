@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Patience is a bitter plant, but its fruit is sweet. — *Chinese Proverb*"_
 
 ---
