@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
 
 ---
