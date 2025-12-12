@@ -7,6 +7,6 @@
 
 ---
 
-_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
+_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
 
 ---
