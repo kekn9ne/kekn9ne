@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no excuse for not trying. — *Barack Obama*"_
+_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
 
 ---
