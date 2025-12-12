@@ -7,6 +7,6 @@
 
 ---
 
-_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
+_"A person who does not read is no better than one cannot read. — *Earl Nightingale*"_
 
 ---
