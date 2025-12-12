@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 12 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Our greatest weakness lies in giving up. The most certain way to succeed is always to try just one more time. — *Thomas Edison*"_
+_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
 
 ---
