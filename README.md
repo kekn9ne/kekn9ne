@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
+_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
 
 ---
