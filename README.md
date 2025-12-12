@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
 
 ---
