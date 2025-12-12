@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
+_"We've got to live, no matter how many skies have fallen. — *D. H. Lawrence*"_
 
 ---
