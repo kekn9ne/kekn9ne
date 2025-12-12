@@ -7,6 +7,6 @@
 
 ---
 
-_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
+_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
 
 ---
