@@ -7,6 +7,6 @@
 
 ---
 
-_"Your heart is full of fertile seeds, waiting to sprout. — *Morihei Ueshiba*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
