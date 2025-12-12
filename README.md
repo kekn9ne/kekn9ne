@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"I believe that one of life's greatest risks is never daring to risk. — *Oprah Winfrey*"_
 
 ---
