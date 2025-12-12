@@ -7,6 +7,6 @@
 
 ---
 
-_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
+_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
 
 ---
