@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Böyle İyi** by *No.1* 🎶
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
 
 ---
