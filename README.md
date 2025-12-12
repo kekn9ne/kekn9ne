@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is a bitter plant, but its fruit is sweet. — *Chinese Proverb*"_
+_"You must welcome change as the rule but not as your ruler.  — *Denis Waitley*"_
 
 ---
