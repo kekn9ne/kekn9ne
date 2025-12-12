@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"You are today where your thoughts have brought you. — *James Allen*"_
+_"Decide upon your major definite purpose in life and then organize all your activities around it. — *Brian Tracy*"_
 
 ---
