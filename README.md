@@ -7,6 +7,6 @@
 
 ---
 
-_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
+_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
 
 ---
