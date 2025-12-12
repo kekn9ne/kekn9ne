@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter who you are, we're creatures of habit. The better your habits are, the better they will be in pressure situations. — *Wayne Gretzky*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
