@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligence is the ability to adapt to change. — *Stephen Hawking*"_
+_"Plants grow weak without wind. — *Maxime Lagace*"_
 
 ---
