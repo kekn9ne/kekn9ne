@@ -7,6 +7,6 @@
 
 ---
 
-_"Within every desire is the mechanics of its fulfillment. — *Deepak Chopra*"_
+_"You were put on this earth to achieve your greatest self, to live out your purpose, and to do it courageously. — *Steve Maraboli*"_
 
 ---
