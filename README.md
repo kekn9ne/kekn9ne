@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day a new horizon. — *Christopher McCandless*"_
+_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
 
 ---
