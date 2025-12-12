@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 12 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🗓️ Today is: **Saturday, 13 December 2025**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you can't argue both sides, you can't argue. — *Jack Butcher*"_
+_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
 
 ---
