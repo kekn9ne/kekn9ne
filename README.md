@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 12 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +7°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
+_"Don't spend major time on minor things. — *Jim Rohn*"_
 
 ---
