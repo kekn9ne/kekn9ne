@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop. — *Mother Teresa*"_
+_"He who laughs at himself never runs out of things to laugh at. — *Epictetus*"_
 
 ---
