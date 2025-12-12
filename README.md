@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"The past has no power over the present moment.  — *Eckhart Tolle*"_
 
 ---
