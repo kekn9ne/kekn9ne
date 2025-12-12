@@ -7,6 +7,6 @@
 
 ---
 
-_"I believe that one of life's greatest risks is never daring to risk. — *Oprah Winfrey*"_
+_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
 
 ---
