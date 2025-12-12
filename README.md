@@ -7,6 +7,6 @@
 
 ---
 
-_"Change your thoughts and you change your world. — *Norman Vincent Peale*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
