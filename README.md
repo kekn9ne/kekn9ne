@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"You are today where your thoughts have brought you. — *James Allen*"_
 
 ---
