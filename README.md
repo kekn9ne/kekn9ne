@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"Plants grow weak without wind. — *Maxime Lagace*"_
+_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
 
 ---
