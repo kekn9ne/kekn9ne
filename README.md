@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 12 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Böyle İyi** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
+_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
 
 ---
