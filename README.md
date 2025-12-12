@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
 
 ---
