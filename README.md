@@ -7,6 +7,6 @@
 
 ---
 
-_"He who laughs at himself never runs out of things to laugh at. — *Epictetus*"_
+_"Make each day a new horizon. — *Christopher McCandless*"_
 
 ---
