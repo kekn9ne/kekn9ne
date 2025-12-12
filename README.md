@@ -7,6 +7,6 @@
 
 ---
 
-_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
+_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
 
 ---
