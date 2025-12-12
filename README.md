@@ -7,6 +7,6 @@
 
 ---
 
-_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
+_"A loving heart is the truest wisdom. — *Charles Dickens*"_
 
 ---
