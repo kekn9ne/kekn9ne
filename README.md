@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
+_"Do what is right, not what is easy, nor what is popular. — *Roy T. Bennett*"_
 
 ---
