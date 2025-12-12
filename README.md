@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 12 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A person who does not read is no better than one cannot read. — *Earl Nightingale*"_
+_"The only normal people are the ones you don't know very well. — *Alfred Adler*"_
 
 ---
