@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how smart we may think we are, no matter how committed we are to our truth, we can lose our way. — *Kamal Ravikant*"_
+_"Change your thoughts and you change your world. — *Norman Vincent Peale*"_
 
 ---
