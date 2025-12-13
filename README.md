@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
+_"It isn't what you do, but how you do it. — *John Wooden*"_
 
 ---
