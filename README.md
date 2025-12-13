@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 13 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Andale** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Never let the things you can't do stop you from doing what you can. — *Ronald Reagan*"_
+_"The cost of leadership is self-interest. — *Simon Sinek*"_
 
 ---
