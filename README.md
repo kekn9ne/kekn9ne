@@ -7,6 +7,6 @@
 
 ---
 
-_"Productize your perspective. — *Jack Butcher*"_
+_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
 
 ---
