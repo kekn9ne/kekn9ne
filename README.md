@@ -7,6 +7,6 @@
 
 ---
 
-_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
+_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
 
 ---
