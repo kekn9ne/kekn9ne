@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't wait for inspiration. You have to go after it with a club.  — *Jack London*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
