@@ -7,6 +7,6 @@
 
 ---
 
-_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
+_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
 
 ---
