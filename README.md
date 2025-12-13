@@ -7,6 +7,6 @@
 
 ---
 
-_"To get angry is like to revenge yourself for the guilt of others. — *Jonathan Swift*"_
+_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
 
 ---
