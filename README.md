@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the child of drudgery and perseverance. It cannot be coaxed or bribed; pay the price and it is yours.  — *Orison Swett Marden*"_
+_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
 
 ---
