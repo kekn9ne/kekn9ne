@@ -7,6 +7,6 @@
 
 ---
 
-_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
