@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
+_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
 
 ---
