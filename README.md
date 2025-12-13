@@ -7,6 +7,6 @@
 
 ---
 
-_"If you put water into a cup, it becomes the cup. — *Bruce Lee*"_
+_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
 
 ---
