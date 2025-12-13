@@ -7,6 +7,6 @@
 
 ---
 
-_"The only people without problems are those in cemeteries. — *Tony Robbins*"_
+_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
 
 ---
