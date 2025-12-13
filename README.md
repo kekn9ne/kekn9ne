@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
+_"One day, in retrospect, the years of struggle will strike you as the most beautiful. — *Sigmund Freud*"_
 
 ---
