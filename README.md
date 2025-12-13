@@ -7,6 +7,6 @@
 
 ---
 
-_"In spite of everything, I shall rise again. — *Vincent van Gogh*"_
+_"To do great work one must be very idle as well as very industrious. — *Samuel Butler*"_
 
 ---
