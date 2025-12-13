@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
+_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
 
 ---
