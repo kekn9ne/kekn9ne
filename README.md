@@ -7,6 +7,6 @@
 
 ---
 
-_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
+_"Don't seek, don't avoid, don't expect. Take what comes and be happy. — *Maxime Lagace*"_
 
 ---
