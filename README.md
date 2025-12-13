@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future. — *Earl Nightingale*"_
 
 ---
