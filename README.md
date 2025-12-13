@@ -7,6 +7,6 @@
 
 ---
 
-_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
+_"It's very important to like the people you work with, otherwise life and your job is gonna be quite miserable. — *Elon Musk*"_
 
 ---
