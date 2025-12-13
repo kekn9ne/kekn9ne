@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
