@@ -7,6 +7,6 @@
 
 ---
 
-_"If we know how to adapt, we end up being superior. — *Ming-Dao Deng*"_
+_"Never regret your past. Rather, embrace it as the teacher that it is. — *Robin Sharma*"_
 
 ---
