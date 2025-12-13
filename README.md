@@ -7,6 +7,6 @@
 
 ---
 
-_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
+_"Never allow someone to be your priority while allowing yourself to be their option. — *Mark Twain*"_
 
 ---
