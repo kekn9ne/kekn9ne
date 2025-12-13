@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
