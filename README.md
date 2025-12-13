@@ -7,6 +7,6 @@
 
 ---
 
-_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
+_"To get angry is like to revenge yourself for the guilt of others. — *Jonathan Swift*"_
 
 ---
