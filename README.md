@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're not failing every now and again, it's a sign you're not doing anything very innovative. — *Woody Allen*"_
+_"Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined. — *Deepak Chopra*"_
 
 ---
