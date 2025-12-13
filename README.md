@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the really tough things is figuring out what questions to ask. Once you figure out the question, then the answer is relatively easy. — *Elon Musk*"_
+_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
 
 ---
