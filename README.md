@@ -7,6 +7,6 @@
 
 ---
 
-_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
+_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
 
 ---
