@@ -7,6 +7,6 @@
 
 ---
 
-_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
+_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
 
 ---
