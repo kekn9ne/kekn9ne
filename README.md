@@ -7,6 +7,6 @@
 
 ---
 
-_"Money poisons you when you've got it, and starves you when you haven't. — *D. H. Lawrence*"_
+_"Have the courage to be ignorant of a great number of things, in order to avoid the calamity of being ignorant of everything. — *Sydney Smith*"_
 
 ---
