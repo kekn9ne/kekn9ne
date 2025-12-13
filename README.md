@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
+_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
 
 ---
