@@ -7,6 +7,6 @@
 
 ---
 
-_"You're on earth. There's no cure for that. — *Samuel Beckett*"_
+_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
 
 ---
