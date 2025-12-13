@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 13 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
+_"When you change what you believe, you change what you do. — *Spencer Johnson*"_
 
 ---
