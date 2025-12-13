@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 13 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Wow** by *TRAP ZONE* 🎶
 
 ---
 
-_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
+_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
 
 ---
