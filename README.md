@@ -7,6 +7,6 @@
 
 ---
 
-_"Goodness is the only investment that never fails. — *Henry David Thoreau*"_
+_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
 
 ---
