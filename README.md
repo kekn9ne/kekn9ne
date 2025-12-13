@@ -7,6 +7,6 @@
 
 ---
 
-_"The human mind defines things in relation to one another - without light the notion of darkness would be unintelligible. — *Josh Waitzkin*"_
+_"The only thing new in the world is the history you do not know. — *Harry S. Truman*"_
 
 ---
