@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is not having the strength to go on; it is going on when you don't have the strength. — *Theodore Roosevelt*"_
+_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
 
 ---
