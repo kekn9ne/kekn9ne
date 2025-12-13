@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others for all the times that you have been ignored. Be kind to others, for all the times that you have been scorned. — *Ming-Dao Deng*"_
+_"Do not wait for leaders; do it alone, person to person. — *Mother Teresa*"_
 
 ---
