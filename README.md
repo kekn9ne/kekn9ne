@@ -7,6 +7,6 @@
 
 ---
 
-_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
+_"Act the way you want to be and soon you'll be the way you act. — *Les Brown*"_
 
 ---
