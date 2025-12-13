@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity comes when you continually push forward. — *Sonia Ricotti*"_
+_"Goodness is the only investment that never fails. — *Henry David Thoreau*"_
 
 ---
