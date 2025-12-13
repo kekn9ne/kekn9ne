@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes out of your biggest misery, comes your greatest gain. — *Steve Harvey*"_
+_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
 
 ---
