@@ -7,6 +7,6 @@
 
 ---
 
-_"Do your duty and a little more and the future will take care of itself. — *Andrew Carnegie*"_
+_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
 
 ---
