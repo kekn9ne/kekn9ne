@@ -7,6 +7,6 @@
 
 ---
 
-_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
+_"To raise your consciousness, surround yourself with people of higher consciousness. — *Celestine Chua*"_
 
 ---
