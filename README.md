@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future. — *Earl Nightingale*"_
+_"Chase your passion, not your pension.  — *Denis Waitley*"_
 
 ---
