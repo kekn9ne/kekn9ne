@@ -7,6 +7,6 @@
 
 ---
 
-_"Never regret your past. Rather, embrace it as the teacher that it is. — *Robin Sharma*"_
+_"You can't wait for inspiration. You have to go after it with a club.  — *Jack London*"_
 
 ---
