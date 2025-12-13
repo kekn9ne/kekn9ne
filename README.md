@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire is suffering. — *Naval Ravikant*"_
+_"If you do not change direction, you may end up where you are heading. — *Lao Tzu*"_
 
 ---
