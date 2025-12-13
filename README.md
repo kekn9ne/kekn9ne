@@ -7,6 +7,6 @@
 
 ---
 
-_"Be true to yourself, help others, make each day your masterpiece — *John Wooden*"_
+_"Dream big and dare to fail. — *Norman Vaughan*"_
 
 ---
