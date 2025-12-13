@@ -7,6 +7,6 @@
 
 ---
 
-_"Act the way you want to be and soon you'll be the way you act. — *Les Brown*"_
+_"We must create our own world or we will die from inaction. — *Robert Greene*"_
 
 ---
