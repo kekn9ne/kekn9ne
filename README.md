@@ -7,6 +7,6 @@
 
 ---
 
-_"To do great work one must be very idle as well as very industrious. — *Samuel Butler*"_
+_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
 
 ---
