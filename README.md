@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
+_"Not why the addiction but why the pain. — *Gabor Mate*"_
 
 ---
