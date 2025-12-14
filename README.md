@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
+_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
 
 ---
