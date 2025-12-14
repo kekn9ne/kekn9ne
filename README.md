@@ -7,6 +7,6 @@
 
 ---
 
-_"Write to help yourself, publish to help others. — *Jack Butcher*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
