@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not pray for an easy life, pray for the strength to endure a difficult one.   — *Bruce Lee*"_
+_"Avoiding failure is to avoid progress. — *Unknown*"_
 
 ---
