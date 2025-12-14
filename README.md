@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **pr** by *Muti* 🎶
 
 ---
 
-_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
+_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
 
 ---
