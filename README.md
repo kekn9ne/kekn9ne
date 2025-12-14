@@ -7,6 +7,6 @@
 
 ---
 
-_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
+_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
 
 ---
