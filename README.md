@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
+_"The single biggest problem in communication is the illusion that it has taken place. — *George Bernard Shaw*"_
 
 ---
