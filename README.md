@@ -7,6 +7,6 @@
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
