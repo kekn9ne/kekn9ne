@@ -7,6 +7,6 @@
 
 ---
 
-_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
+_"Believe that life is worth living and your belief will help create the fact. — *William James*"_
 
 ---
