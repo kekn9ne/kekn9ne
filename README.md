@@ -7,6 +7,6 @@
 
 ---
 
-_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
+_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
 
 ---
