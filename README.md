@@ -7,6 +7,6 @@
 
 ---
 
-_"There are three classes of people: those who see. Those who see when they are shown. Those who do not see. — *Leonardo da Vinci*"_
+_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
 
 ---
