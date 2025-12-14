@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of change is to focus all your energy not on fighting the old, but on building the new. — *Dan Millman*"_
+_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
 
 ---
