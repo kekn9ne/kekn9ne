@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Mani** by *Ceg* 🎶
+🎧 Currently Listening: **SLM** by *Batuflex* 🎶
 
 ---
 
-_"Against the assault of laughter nothing can stand. — *Mark Twain*"_
+_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
 
 ---
