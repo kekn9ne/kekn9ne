@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 14 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"By changing nothing, nothing changes. — *Celestine Chua*"_
+_"The size of your success is measured by the strength of your desire; the size of your dream; and how you handle disappointment along the way. — *Robert Kiyosaki*"_
 
 ---
