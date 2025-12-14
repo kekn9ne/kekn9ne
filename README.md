@@ -7,6 +7,6 @@
 
 ---
 
-_"You use a glass mirror to see your face; you use works of art to see your soul. — *George Bernard Shaw*"_
+_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
 
 ---
