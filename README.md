@@ -7,6 +7,6 @@
 
 ---
 
-_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
+_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
 
 ---
