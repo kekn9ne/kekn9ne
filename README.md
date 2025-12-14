@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Rs6 2.0** by *buko c5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everyone you meet is fighting a battle you know nothing about. Be kind. Always. — *Robin Williams*"_
+_"Man suffers only because he takes seriously what the gods made for fun. — *Alan Watts*"_
 
 ---
