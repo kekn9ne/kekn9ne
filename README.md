@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear can hold you prisoner. Hope can set you free. — *Stephen King*"_
+_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
 
 ---
