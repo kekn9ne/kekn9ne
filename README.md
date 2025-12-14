@@ -7,6 +7,6 @@
 
 ---
 
-_"Let the beauty of what you love be what you do. — *Rumi*"_
+_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
 
 ---
