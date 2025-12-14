@@ -7,6 +7,6 @@
 
 ---
 
-_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
+_"Where there's life, there's hope. — *Stephen Hawking*"_
 
 ---
