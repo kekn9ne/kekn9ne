@@ -7,6 +7,6 @@
 
 ---
 
-_"Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry. — *Celestine Chua*"_
+_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
 
 ---
