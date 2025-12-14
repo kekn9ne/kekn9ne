@@ -7,6 +7,6 @@
 
 ---
 
-_"Not why the addiction but why the pain. — *Gabor Mate*"_
+_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
 
 ---
