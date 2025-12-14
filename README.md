@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
 
 ---
