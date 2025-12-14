@@ -7,6 +7,6 @@
 
 ---
 
-_"Where there's life, there's hope. — *Stephen Hawking*"_
+_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
 
 ---
