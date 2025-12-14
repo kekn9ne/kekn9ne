@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one thing that makes a dream impossible to achieve: the fear of failure. — *Paulo Coelho*"_
+_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
 
 ---
