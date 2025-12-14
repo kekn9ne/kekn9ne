@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Beni Unutma** by *Demet Akalın* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Faith means believing the unbelievable. — *Gilbert Chesterton*"_
+_"By changing nothing, nothing changes. — *Celestine Chua*"_
 
 ---
