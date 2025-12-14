@@ -7,6 +7,6 @@
 
 ---
 
-_"Time heals what reason cannot.   — *Seneca*"_
+_"How you think is as important as as what you think. — *Unknown*"_
 
 ---
