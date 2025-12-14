@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
+_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
 
 ---
