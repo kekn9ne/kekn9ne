@@ -7,6 +7,6 @@
 
 ---
 
-_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
+_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
 
 ---
