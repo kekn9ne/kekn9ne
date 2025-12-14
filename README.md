@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
 
 ---
