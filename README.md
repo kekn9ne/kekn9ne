@@ -7,6 +7,6 @@
 
 ---
 
-_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
+_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
 
 ---
