@@ -7,6 +7,6 @@
 
 ---
 
-_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
+_"There are three classes of people: those who see. Those who see when they are shown. Those who do not see. — *Leonardo da Vinci*"_
 
 ---
