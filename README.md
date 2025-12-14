@@ -7,6 +7,6 @@
 
 ---
 
-_"The reward of suffering is experience. — *Harry S. Truman*"_
+_"Forgive those who have hurt you. — *Les Brown*"_
 
 ---
