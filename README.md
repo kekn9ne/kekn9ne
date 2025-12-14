@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties. — *Harry S. Truman*"_
 
 ---
