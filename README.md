@@ -7,6 +7,6 @@
 
 ---
 
-_"Of all men's miseries the bitterest is this: to know so much and to have control over nothing.  — *Herodotus*"_
+_"If you pray for rain, be prepared to deal with some mud. — *Mary Engelbreit*"_
 
 ---
