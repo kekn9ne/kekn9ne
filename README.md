@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
+_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
 
 ---
