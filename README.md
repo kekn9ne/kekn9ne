@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
+_"Stop acting so small. You are the universe in ecstatic motion. — *Rumi*"_
 
 ---
