@@ -7,6 +7,6 @@
 
 ---
 
-_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
+_"Write to help yourself, publish to help others. — *Jack Butcher*"_
 
 ---
