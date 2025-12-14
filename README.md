@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is when what you think, what you say, and what you do are in harmony. — *Mahatma Gandhi*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
