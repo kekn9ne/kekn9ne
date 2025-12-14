@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think is as important as as what you think. — *Unknown*"_
+_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
 
 ---
