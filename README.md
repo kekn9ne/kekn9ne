@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 14 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rs6 2.0** by *buko c5* 🎶
 
 ---
 
-_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
+_"Everyone you meet is fighting a battle you know nothing about. Be kind. Always. — *Robin Williams*"_
 
 ---
