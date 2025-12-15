@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easier to lose than to win.   — *Wayne Gretzky*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
