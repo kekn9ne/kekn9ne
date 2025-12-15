@@ -7,6 +7,6 @@
 
 ---
 
-_"Children are our greatest natural resource. — *Herbert Hoover*"_
+_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
 
 ---
