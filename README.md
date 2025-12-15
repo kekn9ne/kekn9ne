@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
+_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
 
 ---
