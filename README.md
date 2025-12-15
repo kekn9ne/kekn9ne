@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
+_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
 
 ---
