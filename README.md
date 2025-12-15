@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day is lost in which we do not learn something useful. Man has no nobler or more valuable possession than time. — *Thomas Jefferson*"_
+_"Many a man has failed because he had his wishbone where his backbone should have been. — *Ronald Reagan*"_
 
 ---
