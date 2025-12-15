@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
+_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
 
 ---
