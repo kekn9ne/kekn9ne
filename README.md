@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 15 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +6°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **93**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Adventure is worthwhile in itself. — *Amelia Earhart*"_
+_"Reality is the leading cause of stress among those in touch with it. — *Lily Tomlin*"_
 
 ---
