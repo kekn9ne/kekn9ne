@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 15 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **Susma - Y-Emre Music Remix** by *Catwork* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"By changing nothing, nothing changes. — *Celestine Chua*"_
+_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
 
 ---
