@@ -7,6 +7,6 @@
 
 ---
 
-_"Many a man has failed because he had his wishbone where his backbone should have been. — *Ronald Reagan*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
