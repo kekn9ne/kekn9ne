@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"It doesn't matter how much you want. What really matters is how much you want it. — *Ralph Marston*"_
 
 ---
