@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
 
 ---
