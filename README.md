@@ -7,6 +7,6 @@
 
 ---
 
-_"Presents are made for the pleasure of who gives them, not the merits of who receives them. — *Carlos Ruiz Zafon*"_
+_"We suffer more often in imagination than in reality. — *Seneca*"_
 
 ---
