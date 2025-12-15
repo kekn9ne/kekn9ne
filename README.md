@@ -7,6 +7,6 @@
 
 ---
 
-_"Never be bored, and you will never be boring. — *Eleanor Roosevelt*"_
+_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
 
 ---
