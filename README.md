@@ -7,6 +7,6 @@
 
 ---
 
-_"Closing your eyes and listening to silence is self-care. — *Maxime Lagace*"_
+_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
 
 ---
