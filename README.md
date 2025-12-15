@@ -7,6 +7,6 @@
 
 ---
 
-_"Deliberately seek the company of people who influence you to think and act on building the life you desire. — *Napoleon Hill*"_
+_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
 
 ---
