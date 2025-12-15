@@ -7,6 +7,6 @@
 
 ---
 
-_"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.  — *St. Jerome*"_
+_"Closing your eyes and listening to silence is self-care. — *Maxime Lagace*"_
 
 ---
