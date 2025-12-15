@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 15 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: **BATUFLEX** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
+_"He will win who knows when to fight and when not to fight. — *Sun Tzu*"_
 
 ---
