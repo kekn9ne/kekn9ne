@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is good at any age, but the sooner you find it, the longer you will enjoy it. — *Napoleon Hill*"_
+_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
 
 ---
