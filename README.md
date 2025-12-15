@@ -7,6 +7,6 @@
 
 ---
 
-_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
+_"Be not glad at the misfortune of another, though he may be your enemy.  — *George Washington*"_
 
 ---
