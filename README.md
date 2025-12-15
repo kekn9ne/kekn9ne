@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave. Take risks. Nothing can substitute experience. — *Paulo Coelho*"_
+_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
 
 ---
