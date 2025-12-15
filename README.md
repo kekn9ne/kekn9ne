@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
 
 ---
