@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer more often in imagination than in reality. — *Seneca*"_
+_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
 
 ---
