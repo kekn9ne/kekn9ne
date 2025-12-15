@@ -7,6 +7,6 @@
 
 ---
 
-_"Be not glad at the misfortune of another, though he may be your enemy.  — *George Washington*"_
+_"Wake up and smile! Wake up and be grateful! — *Steve Harvey*"_
 
 ---
