@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
+_"Success is good at any age, but the sooner you find it, the longer you will enjoy it. — *Napoleon Hill*"_
 
 ---
