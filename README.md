@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 15 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BATUFLEX** by *Batuflex* 🎶
 
 ---
 
-_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
+_"Stop being a prisoner of your past. Become the architect of your future. — *Robin Sharma*"_
 
 ---
