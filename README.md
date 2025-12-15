@@ -7,6 +7,6 @@
 
 ---
 
-_"Life without love is like a tree without blossoms or fruit. — *Kahlil Gibran*"_
+_"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.  — *St. Jerome*"_
 
 ---
