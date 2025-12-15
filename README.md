@@ -7,6 +7,6 @@
 
 ---
 
-_"We are always complaining that our days are few, and acting as though there would be no end of them.   — *Seneca*"_
+_"Throw your heart over the bar and your body will follow. — *Norman Vincent Peale*"_
 
 ---
