@@ -7,6 +7,6 @@
 
 ---
 
-_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
+_"Action is the foundational key to all success. — *Pablo Picasso*"_
 
 ---
