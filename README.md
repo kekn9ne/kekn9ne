@@ -7,6 +7,6 @@
 
 ---
 
-_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
+_"Success and failure come and go, but don't let them define you. It's who you are that matters. — *Kamal Ravikant*"_
 
 ---
