@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw your heart over the bar and your body will follow. — *Norman Vincent Peale*"_
+_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
 
 ---
