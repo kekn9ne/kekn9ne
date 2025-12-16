@@ -7,6 +7,6 @@
 
 ---
 
-_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
+_"If you want to know what God thinks about money just look at the people He gives it to. — *Alexander Pope*"_
 
 ---
