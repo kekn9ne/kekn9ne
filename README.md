@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 16 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +4°C**  
+🌤️ Weather in Istanbul: **☀️   +5°C**  
 📊 GitHub Contributions: **93**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **16-24** by *Wegh* 🎶
 
 ---
 
-_"The only way it gets better for you is when you get better. Better is not something you wish, it's something you become. — *Jim Rohn*"_
+_"Nothing in this world is worth having or worth doing unless it means effort, pain, difficulty. — *Theodore Roosevelt*"_
 
 ---
