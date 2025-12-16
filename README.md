@@ -7,6 +7,6 @@
 
 ---
 
-_"Ideas do not reach perfection in a day, no matter how much study is put upon them. — *Alexander Graham Bell*"_
+_"Bloom where you are planted! — *Mary Engelbreit*"_
 
 ---
