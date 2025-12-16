@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
+_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
 
 ---
