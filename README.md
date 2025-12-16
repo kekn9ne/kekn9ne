@@ -7,6 +7,6 @@
 
 ---
 
-_"I do not seek. I find. — *Pablo Picasso*"_
+_"The only way it gets better for you is when you get better. Better is not something you wish, it's something you become. — *Jim Rohn*"_
 
 ---
