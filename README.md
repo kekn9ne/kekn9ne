@@ -7,6 +7,6 @@
 
 ---
 
-_"A heart is not judged by how much you love, but by how much you are loved by others. — *Judy Garland*"_
+_"Remember that sometimes not getting what you want is a wonderful stroke of luck. — *Dalai Lama*"_
 
 ---
