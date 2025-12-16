@@ -7,6 +7,6 @@
 
 ---
 
-_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
+_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
 
 ---
