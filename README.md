@@ -7,6 +7,6 @@
 
 ---
 
-_"If you have to be in a soap opera try not to be cast in the worst role. — *Judy Garland*"_
+_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
 
 ---
