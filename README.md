@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
 
 ---
