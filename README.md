@@ -7,6 +7,6 @@
 
 ---
 
-_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
+_"I do not seek. I find. — *Pablo Picasso*"_
 
 ---
