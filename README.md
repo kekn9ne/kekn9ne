@@ -7,6 +7,6 @@
 
 ---
 
-_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
+_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
 
 ---
