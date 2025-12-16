@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
 
 ---
