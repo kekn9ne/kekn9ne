@@ -7,6 +7,6 @@
 
 ---
 
-_"Fishing is much more than fish. — *Herbert Hoover*"_
+_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
 
 ---
