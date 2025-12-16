@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
