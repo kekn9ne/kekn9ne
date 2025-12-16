@@ -7,6 +7,6 @@
 
 ---
 
-_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
+_"Incredible change happens in your life when you decide to take control of what you do have power over instead of craving control over what you don't. — *Steve Maraboli*"_
 
 ---
