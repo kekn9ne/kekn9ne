@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
+_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
 
 ---
