@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
+_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
 
 ---
