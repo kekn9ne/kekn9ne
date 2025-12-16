@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
+_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
 
 ---
