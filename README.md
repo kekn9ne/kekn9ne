@@ -7,6 +7,6 @@
 
 ---
 
-_"Bloom where you are planted! — *Mary Engelbreit*"_
+_"Life and the simple beauty of it is too good to pass up. — *Christopher McCandless*"_
 
 ---
