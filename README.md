@@ -7,6 +7,6 @@
 
 ---
 
-_"Trying to define yourself is like trying to bite your own teeth. — *Alan Watts*"_
+_"I discovered a long time ago that if I helped enough people get what they wanted, I would always get what I wanted and I would never have to worry. — *Tony Robbins*"_
 
 ---
