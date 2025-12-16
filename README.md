@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is useless and add what is specifically your own.   — *Bruce Lee*"_
+_"The more you give, the more comes back to you. — *Napoleon Hill*"_
 
 ---
