@@ -7,6 +7,6 @@
 
 ---
 
-_"Tall oaks grow from little acorns. — *Andrew Carnegie*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
