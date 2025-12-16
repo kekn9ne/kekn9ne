@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Tuesday, 16 December 2025**  
+🗓️ Today is: **Wednesday, 17 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +8°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Remember that sometimes not getting what you want is a wonderful stroke of luck. — *Dalai Lama*"_
+_"If you want to see things just as they are, then you yourself must practice just as you are. — *Dogen*"_
 
 ---
