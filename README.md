@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to understanding is a few good examples. — *Isaac Newton*"_
+_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
 
 ---
