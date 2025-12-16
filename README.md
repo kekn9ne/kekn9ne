@@ -7,6 +7,6 @@
 
 ---
 
-_"The golden opportunity you are seeking is in yourself. It is not in your environment; it is not in luck or chance, or the help of others; it is in yourself alone.  — *Orison Swett Marden*"_
+_"If you have to be in a soap opera try not to be cast in the worst role. — *Judy Garland*"_
 
 ---
