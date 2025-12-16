@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day do something that will inch you closer to a better tomorrow. — *Unknown*"_
+_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
 
 ---
