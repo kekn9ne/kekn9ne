@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"Let not your mind run on what you lack as much as on what you have already. — *Marcus Aurelius*"_
 
 ---
