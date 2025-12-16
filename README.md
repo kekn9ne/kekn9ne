@@ -7,6 +7,6 @@
 
 ---
 
-_"Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along. — *Celestine Chua*"_
+_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
 
 ---
