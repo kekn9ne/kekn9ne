@@ -7,6 +7,6 @@
 
 ---
 
-_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
+_"A heart is not judged by how much you love, but by how much you are loved by others. — *Judy Garland*"_
 
 ---
