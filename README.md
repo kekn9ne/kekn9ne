@@ -7,6 +7,6 @@
 
 ---
 
-_"If you truly love Nature, you will find beauty everywhere.  — *Vincent van Gogh*"_
+_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
 
 ---
