@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
+_"He who hesitates is a damned fool. — *Mae West*"_
 
 ---
