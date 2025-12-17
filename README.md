@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no shortcuts to any place worth going.  — *Beverly Sills*"_
+_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
 
 ---
