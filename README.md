@@ -7,6 +7,6 @@
 
 ---
 
-_"This is the most simple and basic component of life: our struggles determine our successes. — *Mark Manson*"_
+_"Stay away from people who makes you feel like you are wasting their time. — *Paulo Coelho*"_
 
 ---
