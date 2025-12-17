@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 17 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +11°C**  
+🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"The only lost cause is one we give up on before we enter the struggle. — *Vaclav Havel*"_
 
 ---
