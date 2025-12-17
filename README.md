@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen King*"_
+_"Your only obligation in any lifetime is to be true to yourself. — *Richard Bach*"_
 
 ---
