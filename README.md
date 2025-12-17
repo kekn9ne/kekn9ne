@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Demiştim Ben** by *İkra* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you want to achieve anything in this world, you have to get used to the idea that not everyone will like you. — *Simon Sinek*"_
+_"The best way to not feel hopeless is to get up and do something. — *Barack Obama*"_
 
 ---
