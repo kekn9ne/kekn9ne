@@ -7,6 +7,6 @@
 
 ---
 
-_"Fools read fast. Geniuses reread. — *Maxime Lagace*"_
+_"Conflict cannot survive without your participation.  — *Wayne Dyer*"_
 
 ---
