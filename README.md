@@ -7,6 +7,6 @@
 
 ---
 
-_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
+_"Those who are possessed by nothing possess everything. — *Morihei Ueshiba*"_
 
 ---
