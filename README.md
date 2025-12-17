@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a question and how we live it is our answer. — *Gary Keller*"_
+_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
 
 ---
