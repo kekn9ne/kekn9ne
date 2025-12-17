@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't hate the player. Change the game. — *Steve Harvey*"_
+_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
 
 ---
