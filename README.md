@@ -7,6 +7,6 @@
 
 ---
 
-_"The few who do are the envy of the many who only watch. — *Jim Rohn*"_
+_"When you move beyond your fear, you feel free. — *Spencer Johnson*"_
 
 ---
