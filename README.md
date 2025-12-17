@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, you travel, and as you love, you attract. — *James Allen*"_
+_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
 
 ---
