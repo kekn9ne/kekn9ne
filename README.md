@@ -7,6 +7,6 @@
 
 ---
 
-_"A goal is a dream with a deadline. — *Napoleon Hill*"_
+_"Don't hate the player. Change the game. — *Steve Harvey*"_
 
 ---
