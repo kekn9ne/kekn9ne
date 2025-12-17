@@ -7,6 +7,6 @@
 
 ---
 
-_"Curiosity is the most powerful thing you own. — *James Cameron*"_
+_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
 
 ---
