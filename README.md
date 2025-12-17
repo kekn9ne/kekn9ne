@@ -7,6 +7,6 @@
 
 ---
 
-_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
+_"Curiosity is the most powerful thing you own. — *James Cameron*"_
 
 ---
