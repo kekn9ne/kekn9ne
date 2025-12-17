@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 17 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +12°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you are far from the enemy, make him believe you are near. — *Sun Tzu*"_
+_"Failure is the highway to success. — *Og Mandino*"_
 
 ---
