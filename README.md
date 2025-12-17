@@ -7,6 +7,6 @@
 
 ---
 
-_"To be angry is to revenge the faults of others on ourselves. — *Alexander Pope*"_
+_"Show me a hero, and I'll write you a tragedy. — *F. Scott Fitzgerald*"_
 
 ---
