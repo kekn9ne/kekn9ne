@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 17 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RS6** by *Era7capone* 🎶
 
 ---
 
-_"He who hesitates is a damned fool. — *Mae West*"_
+_"Wishing to be friends is quick work, but friendship is a slow ripening fruit. — *Aristotle*"_
 
 ---
