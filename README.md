@@ -7,6 +7,6 @@
 
 ---
 
-_"The only lost cause is one we give up on before we enter the struggle. — *Vaclav Havel*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
