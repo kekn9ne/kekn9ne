@@ -7,6 +7,6 @@
 
 ---
 
-_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
+_"Do good, live in the most positive and joyful way possible every day. — *Roy T. Bennett*"_
 
 ---
