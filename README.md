@@ -7,6 +7,6 @@
 
 ---
 
-_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
+_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
 
 ---
