@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a gift and the trick is not to expect it, but to delight in it when it comes. — *Charles Dickens*"_
+_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
 
 ---
