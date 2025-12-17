@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
+_"Your work is to discover your work and then, with all your heart, to give yourself to it. — *Buddha*"_
 
 ---
