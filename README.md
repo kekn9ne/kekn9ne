@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is the highway to success. — *Og Mandino*"_
+_"Children are our greatest natural resource. — *Herbert Hoover*"_
 
 ---
