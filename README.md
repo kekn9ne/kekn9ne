@@ -7,6 +7,6 @@
 
 ---
 
-_"Conflict cannot survive without your participation.  — *Wayne Dyer*"_
+_"Quiet people have the loudest minds. — *Stephen King*"_
 
 ---
