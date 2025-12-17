@@ -7,6 +7,6 @@
 
 ---
 
-_"Your only obligation in any lifetime is to be true to yourself. — *Richard Bach*"_
+_"When you know what you want, and want it bad enough, you will find a way to get it. — *Jim Rohn*"_
 
 ---
