@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
