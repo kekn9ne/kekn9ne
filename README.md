@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 17 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +8°C**  
+🗓️ Today is: **Thursday, 18 December 2025**  
+🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is during our darkest moments that we must focus to see the light. — *Aristotle*"_
+_"Life is a question and how we live it is our answer. — *Gary Keller*"_
 
 ---
