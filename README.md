@@ -7,6 +7,6 @@
 
 ---
 
-_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
+_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
 
 ---
