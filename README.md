@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 18 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **GASP ET** by *Rackzen* 🎶
 
 ---
 
-_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
+_"By changing nothing, nothing changes. — *Celestine Chua*"_
 
 ---
