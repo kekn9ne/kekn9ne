@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing will work unless you do. — *Maya Angelou*"_
+_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
 
 ---
