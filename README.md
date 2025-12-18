@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 December 2025**  
 🌤️ Weather in Istanbul: **🌫  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Şeytan ve Melekler** by *Heja* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
+_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
 
 ---
