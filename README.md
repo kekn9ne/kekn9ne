@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything starts with a dream. A particle of our imagination that teases us of what the future could be like, as long as we fight for it. — *Gurbaksh Chahal*"_
+_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
 
 ---
