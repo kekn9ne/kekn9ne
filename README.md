@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
+_"Whether you have a problem in your life or not depends upon your own attitude, your own understanding. — *Shunryu Suzuki*"_
 
 ---
