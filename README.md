@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
+_"A life without a cause is a life without effect. — *Paulo Coelho*"_
 
 ---
