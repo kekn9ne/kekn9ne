@@ -7,6 +7,6 @@
 
 ---
 
-_"Your spirit is the true shield. — *Morihei Ueshiba*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
