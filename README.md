@@ -7,6 +7,6 @@
 
 ---
 
-_"A hero is an ordinary person doing things in an extra ordinary way. — *Christopher Reeve*"_
+_"When you're curious, you find lots of interesting things to do. — *Walt Disney*"_
 
 ---
