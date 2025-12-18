@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 18 December 2025**  
 🌤️ Weather in Istanbul: **🌫  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **CISTAK** by *Era7capone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
+_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
 
 ---
