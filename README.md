@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"One must be poor to know the luxury of giving. — *George Eliot*"_
 
 ---
