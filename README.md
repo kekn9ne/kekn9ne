@@ -7,6 +7,6 @@
 
 ---
 
-_"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — *William James*"_
+_"Every act of creation is first an act of destruction. — *Pablo Picasso*"_
 
 ---
