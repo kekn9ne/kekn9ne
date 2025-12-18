@@ -7,6 +7,6 @@
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"You don't have to control your thoughts; you just have to stop letting them control you. — *Dan Millman*"_
 
 ---
