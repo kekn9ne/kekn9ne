@@ -7,6 +7,6 @@
 
 ---
 
-_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
+_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
 
 ---
