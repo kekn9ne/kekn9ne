@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 December 2025**  
 🌤️ Weather in Istanbul: **🌫  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şeytan ve Melekler** by *Heja* 🎶
 
 ---
 
-_"A life without a cause is a life without effect. — *Paulo Coelho*"_
+_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
 
 ---
