@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
+_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
 
 ---
