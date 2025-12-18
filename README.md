@@ -7,6 +7,6 @@
 
 ---
 
-_"Today you are you, that is truer than true. There is no one alive who is you-er than you. — *Dr. Seuss*"_
+_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
 
 ---
