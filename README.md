@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"The highest level of wisdom is when you not only accept but love adversity. — *Maxime Lagace*"_
 
 ---
