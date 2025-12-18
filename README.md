@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 18 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +11°C**  
+🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"Procrastination is attitude's natural assassin. There's nothing so fatiguing as an uncompleted task. — *William James*"_
 
 ---
