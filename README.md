@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 18 December 2025**  
 🌤️ Weather in Istanbul: **🌫  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **CISTAK** by *Era7capone* 🎶
 
 ---
 
-_"The sculptor produces the beautiful statue by chipping away such parts of the marble block as are not needed - it is a process of elimination. — *Elbert Hubbard*"_
+_"He who knows best knows how little he knows. — *Thomas Jefferson*"_
 
 ---
