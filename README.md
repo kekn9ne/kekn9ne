@@ -7,6 +7,6 @@
 
 ---
 
-_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
+_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
 
 ---
