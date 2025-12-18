@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are ever the smartest person in the room, you are in the wrong room. — *C. Sean McGee*"_
+_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
 
 ---
