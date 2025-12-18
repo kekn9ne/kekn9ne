@@ -7,6 +7,6 @@
 
 ---
 
-_"The least deviation from truth will be multiplied later. — *Aristotle*"_
+_"Every blessing ignored becomes a curse. — *Paulo Coelho*"_
 
 ---
