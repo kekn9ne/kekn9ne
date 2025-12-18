@@ -7,6 +7,6 @@
 
 ---
 
-_"Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad. — *Harry S. Truman*"_
+_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
 
 ---
