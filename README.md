@@ -7,6 +7,6 @@
 
 ---
 
-_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
+_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
 
 ---
