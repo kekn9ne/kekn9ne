@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 18 December 2025**  
-🌤️ Weather in Istanbul: **🌫  +8°C**  
+🌤️ Weather in Istanbul: **🌫  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bia 2.0** by *Dark Sensei* 🎶
 
 ---
 
-_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
+_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
 
 ---
