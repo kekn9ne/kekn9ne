@@ -7,6 +7,6 @@
 
 ---
 
-_"You want to live but do you know how to live? You are scared of dying and tell me, is the kind of life you lead really any different from being dead? — *Seneca*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
