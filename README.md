@@ -7,6 +7,6 @@
 
 ---
 
-_"Whether you have a problem in your life or not depends upon your own attitude, your own understanding. — *Shunryu Suzuki*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
