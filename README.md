@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
+_"Everything you can imagine is real. — *Pablo Picasso*"_
 
 ---
