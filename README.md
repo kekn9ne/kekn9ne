@@ -7,6 +7,6 @@
 
 ---
 
-_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
+_"No matter how tall the mountain is, it cannot block the sun. — *Chinese Proverb*"_
 
 ---
