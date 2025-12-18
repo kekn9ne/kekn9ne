@@ -7,6 +7,6 @@
 
 ---
 
-_"One must be poor to know the luxury of giving. — *George Eliot*"_
+_"Confidence is consistency of thinking about what is possible and how to make it possible. — *John Eliot*"_
 
 ---
