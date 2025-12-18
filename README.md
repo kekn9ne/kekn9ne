@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
+_"We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change. — *Mark Manson*"_
 
 ---
