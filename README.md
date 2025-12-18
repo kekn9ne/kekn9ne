@@ -7,6 +7,6 @@
 
 ---
 
-_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
+_"Character is destiny. — *Heraclitus*"_
 
 ---
