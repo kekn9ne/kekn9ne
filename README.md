@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"You will have bad times, but they will always wake you up to the stuff you weren't paying attention to. — *Robin Williams*"_
 
 ---
