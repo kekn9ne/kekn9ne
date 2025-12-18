@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"Preoccupied with a single leaf you won't see the tree. — *Unknown*"_
 
 ---
