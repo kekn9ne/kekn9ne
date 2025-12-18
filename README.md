@@ -7,6 +7,6 @@
 
 ---
 
-_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
+_"Help others and give something back. — *Arnold Schwarzenegger*"_
 
 ---
