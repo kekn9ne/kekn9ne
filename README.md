@@ -7,6 +7,6 @@
 
 ---
 
-_"The older you get the stronger the wind gets - and it's always in your face. — *Pablo Picasso*"_
+_"All problems are interpersonal relationship problems. — *Alfred Adler*"_
 
 ---
