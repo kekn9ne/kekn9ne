@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
+_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
 
 ---
