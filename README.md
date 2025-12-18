@@ -7,6 +7,6 @@
 
 ---
 
-_"When you're curious, you find lots of interesting things to do. — *Walt Disney*"_
+_"If you are ever the smartest person in the room, you are in the wrong room. — *C. Sean McGee*"_
 
 ---
