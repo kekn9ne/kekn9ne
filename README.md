@@ -7,6 +7,6 @@
 
 ---
 
-_"Get mad, then get over it. — *Colin Powell*"_
+_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
 
 ---
