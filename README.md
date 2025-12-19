@@ -7,6 +7,6 @@
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"If you put yourself in a position where you have to stretch outside your comfort zone, then you are forced to expand your consciousness. — *Unknown*"_
 
 ---
