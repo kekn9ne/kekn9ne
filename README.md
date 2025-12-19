@@ -7,6 +7,6 @@
 
 ---
 
-_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
+_"A Hero is an ordinary individual who finds the strength to persevere and endure in spite of overwhelming obstacles. — *Christopher Reeve*"_
 
 ---
