@@ -7,6 +7,6 @@
 
 ---
 
-_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
+_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
 
 ---
