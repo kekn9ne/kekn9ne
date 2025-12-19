@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 19 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +10°C**  
+🌤️ Weather in Istanbul: **☀️   +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Notre Dame** by *Ceg* 🎶
+🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"You cannot change your destination overnight but you can change your direction overnight. — *Jim Rohn*"_
 
 ---
