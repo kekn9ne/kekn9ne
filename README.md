@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Notre Dame** by *Ceg* 🎶
 
 ---
 
-_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
+_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
 
 ---
