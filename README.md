@@ -7,6 +7,6 @@
 
 ---
 
-_"You can, you should, and if you're brave enough to start, you will. — *Stephen King*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
