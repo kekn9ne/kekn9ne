@@ -7,6 +7,6 @@
 
 ---
 
-_"One loses many laughs by not laughing at oneself. — *Mary Engelbreit*"_
+_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
 
 ---
