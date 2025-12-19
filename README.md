@@ -7,6 +7,6 @@
 
 ---
 
-_"The day is for honest men, the night for thieves. — *Euripides*"_
+_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
 
 ---
