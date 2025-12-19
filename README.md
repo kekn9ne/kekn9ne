@@ -7,6 +7,6 @@
 
 ---
 
-_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
