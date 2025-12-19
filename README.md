@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 19 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌫  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **TOPSHOTTA** by *Yung Ouzo* 🎶
 
 ---
 
-_"Age is a very high price to pay for maturity. — *William James*"_
+_"Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine. — *Zen Proverb*"_
 
 ---
