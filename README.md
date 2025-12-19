@@ -7,6 +7,6 @@
 
 ---
 
-_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
+_"Never regret your past. Rather, embrace it as the teacher that it is. — *Robin Sharma*"_
 
 ---
