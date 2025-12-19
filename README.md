@@ -7,6 +7,6 @@
 
 ---
 
-_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
+_"Take the attitude of a student. Never be too big to ask questions. Never know too much to learn something new. — *Og Mandino*"_
 
 ---
