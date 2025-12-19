@@ -7,6 +7,6 @@
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"Get mad, then get over it. — *Colin Powell*"_
 
 ---
