@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
+_"Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad. — *Harry S. Truman*"_
 
 ---
