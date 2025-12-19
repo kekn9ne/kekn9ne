@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
