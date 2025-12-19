@@ -7,6 +7,6 @@
 
 ---
 
-_"Nearly every crisis seems to be the worst one, but after it's over, it isn't so bad. — *Harry S. Truman*"_
+_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
 
 ---
