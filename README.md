@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 19 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **HUQQA** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You cannot change your destination overnight but you can change your direction overnight. — *Jim Rohn*"_
+_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
 
 ---
