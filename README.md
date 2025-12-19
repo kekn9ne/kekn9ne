@@ -7,6 +7,6 @@
 
 ---
 
-_"The only problem we really have is we think we're not supposed to have problems! Problems call us to higher level- - face & solve them now! — *Tony Robbins*"_
+_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
 
 ---
