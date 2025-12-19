@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
+_"A liar knows that he is a liar, but one who speaks mere portions of truth in order to deceive is a craftsman of destruction. — *Criss Jami*"_
 
 ---
