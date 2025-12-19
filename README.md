@@ -7,6 +7,6 @@
 
 ---
 
-_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
+_"Wherever you are, and whatever you do, be in love. — *Rumi*"_
 
 ---
