@@ -7,6 +7,6 @@
 
 ---
 
-_"He that can have patience can have what he will. — *Benjamin Franklin*"_
+_"When one door closes another door opens.  — *Alexander Graham Bell*"_
 
 ---
