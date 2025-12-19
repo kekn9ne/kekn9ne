@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you do in life, surround yourself with smart people who'll argue with you. — *John Wooden*"_
+_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
 
 ---
