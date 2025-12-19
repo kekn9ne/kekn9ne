@@ -7,6 +7,6 @@
 
 ---
 
-_"Realize deeply that the present moment is all you have. Make the NOW the primary focus of your life.  — *Eckhart Tolle*"_
+_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
 
 ---
