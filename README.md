@@ -7,6 +7,6 @@
 
 ---
 
-_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
+_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
 
 ---
