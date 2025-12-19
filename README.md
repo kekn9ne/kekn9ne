@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 19 December 2025**  
-🌤️ Weather in Istanbul: **🌫  +6°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
+_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
 
 ---
