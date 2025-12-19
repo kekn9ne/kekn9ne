@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
+_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
 
 ---
