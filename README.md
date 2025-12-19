@@ -7,6 +7,6 @@
 
 ---
 
-_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
+_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
 
 ---
