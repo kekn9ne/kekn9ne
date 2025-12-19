@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
+_"You are the sky. Everything else - it's just the weather. — *Pema Chodron*"_
 
 ---
