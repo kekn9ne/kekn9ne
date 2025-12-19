@@ -7,6 +7,6 @@
 
 ---
 
-_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
+_"The meaning of life is just to be alive. It is so plain and so obvious and so simple. — *Alan Watts*"_
 
 ---
