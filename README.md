@@ -7,6 +7,6 @@
 
 ---
 
-_"Never regret your past. Rather, embrace it as the teacher that it is. — *Robin Sharma*"_
+_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
 
 ---
