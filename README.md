@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
+_"When we strive to become better than we are, everything around us becomes better, too. — *Paulo Coelho*"_
 
 ---
