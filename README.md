@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 19 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +8°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"The Art of Peace begins with you. — *Morihei Ueshiba*"_
 
 ---
