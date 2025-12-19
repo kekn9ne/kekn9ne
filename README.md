@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 19 December 2025**  
-🌤️ Weather in Istanbul: **🌫  +5°C**  
+🌤️ Weather in Istanbul: **🌫  +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **TOPSHOTTA** by *Yung Ouzo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Always look on the bright side of things. If you can't comprehend this, polish that which has become dull until it begins to shine. — *Zen Proverb*"_
+_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
 
 ---
