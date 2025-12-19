@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing can dim the light which shines from within. — *Maya Angelou*"_
+_"Make improvements, not excuses. Seek respect, not attention. — *Roy T. Bennett*"_
 
 ---
