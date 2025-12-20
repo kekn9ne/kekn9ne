@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Sanki Bir Halkın** by *Gazapizm* 🎶
+🎧 Currently Listening: **Onlar Anlamaz** by *No.1* 🎶
 
 ---
 
-_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
+_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
 
 ---
