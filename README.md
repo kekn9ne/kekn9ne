@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
+_"I love fools' experiments. I am always making them. — *Charles Darwin*"_
 
 ---
