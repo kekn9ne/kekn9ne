@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not something ready made. It comes from your own actions. — *Dalai Lama*"_
+_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
 
 ---
