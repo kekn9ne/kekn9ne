@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Sahilevleri** by *KAVAK* 🎶
+🎧 Currently Listening: **Anladım Seni Candy Shop Hoodtrap** by *xryomeister* 🎶
 
 ---
 
-_"Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on. — *Criss Jami*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
