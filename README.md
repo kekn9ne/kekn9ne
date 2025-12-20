@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Bana Birseyler Soyle** by *Kartax* 🎶
+🎧 Currently Listening: **Veda Mektubu** by *ElMusto* 🎶
 
 ---
 
-_"If you want to make God laugh, tell him about your plans.  — *Woody Allen*"_
+_"Fools read fast. Geniuses reread. — *Maxime Lagace*"_
 
 ---
