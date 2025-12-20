@@ -7,6 +7,6 @@
 
 ---
 
-_"If you aim at nothing, you will hit it every time.   — *Zig Ziglar*"_
+_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
 
 ---
