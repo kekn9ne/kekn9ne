@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
+_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
 
 ---
