@@ -7,6 +7,6 @@
 
 ---
 
-_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
