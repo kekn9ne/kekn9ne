@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
+_"Great deeds are usually wrought at great risks. — *Herodotus*"_
 
 ---
