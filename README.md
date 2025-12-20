@@ -7,6 +7,6 @@
 
 ---
 
-_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
+_"No one can confidently say that he will still be living tomorrow. — *Euripides*"_
 
 ---
