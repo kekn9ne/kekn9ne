@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mektup** by *Motive* 🎶
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"Emancipate yourself from mental slavery, none but ourselves can free our mind. — *Bob Marley*"_
 
 ---
