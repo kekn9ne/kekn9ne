@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
+_"Every defeat, every heartbreak every loss, contains its own seed, its own lesson on how to improve your performance the next time. — *Og Mandino*"_
 
 ---
