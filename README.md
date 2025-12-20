@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
