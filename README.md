@@ -7,6 +7,6 @@
 
 ---
 
-_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
+_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
 
 ---
