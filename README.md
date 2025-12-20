@@ -7,6 +7,6 @@
 
 ---
 
-_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
+_"A dream you dream alone is only a dream. A dream you dream together is reality. — *Yoko Ono*"_
 
 ---
