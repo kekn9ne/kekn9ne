@@ -7,6 +7,6 @@
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
