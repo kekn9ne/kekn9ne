@@ -7,6 +7,6 @@
 
 ---
 
-_"Even a hare will bite when it is cornered.  — *Chinese Proverb*"_
+_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
 
 ---
