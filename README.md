@@ -7,6 +7,6 @@
 
 ---
 
-_"I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams. — *D. H. Lawrence*"_
+_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
 
 ---
