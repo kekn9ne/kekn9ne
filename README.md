@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything is in your own heart. — *Thich Nhat Hanh*"_
+_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
 
 ---
