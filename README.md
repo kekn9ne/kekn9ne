@@ -7,6 +7,6 @@
 
 ---
 
-_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
+_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
 
 ---
