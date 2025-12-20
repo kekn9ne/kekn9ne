@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything great that has ever happened to humanity has begun as a single thought in someone's mind. — *Yanni*"_
+_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
 
 ---
