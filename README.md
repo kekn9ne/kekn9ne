@@ -7,6 +7,6 @@
 
 ---
 
-_"Music is like creating an emotional painting. The sounds are the colors. — *Yanni*"_
+_"Doubt is an uncomfortable condition, but certainty is a ridiculous one. — *Voltaire*"_
 
 ---
