@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 20 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Onlar Anlamaz** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everyone must choose one of two pains: The pain of discipline or the pain of regret. — *Jim Rohn*"_
+_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
 
 ---
