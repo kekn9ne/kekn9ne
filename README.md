@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Great deeds are usually wrought at great risks. — *Herodotus*"_
+_"The destiny of man is in his own soul.  — *Herodotus*"_
 
 ---
