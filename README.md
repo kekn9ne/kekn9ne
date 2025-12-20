@@ -7,6 +7,6 @@
 
 ---
 
-_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
+_"I can never decide whether my dreams are the result of my thoughts or my thoughts the result of my dreams. — *D. H. Lawrence*"_
 
 ---
