@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to be great to start, but you have to start to be great.   — *Zig Ziglar*"_
+_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
 
 ---
