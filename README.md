@@ -7,6 +7,6 @@
 
 ---
 
-_"No one can confidently say that he will still be living tomorrow. — *Euripides*"_
+_"All great truths begin as blasphemies. — *George Bernard Shaw*"_
 
 ---
