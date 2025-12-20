@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **MASERATI** by *Organize* 🎶
 
 ---
 
-_"A man has to learn that he cannot command things but that he can command himself; that he cannot coerce the wills of others but that he can mold and master his own will. — *James Allen*"_
+_"Wisdom is doing now what you are going to be happy with later on. — *Joyce Meyer*"_
 
 ---
