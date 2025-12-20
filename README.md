@@ -7,6 +7,6 @@
 
 ---
 
-_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
+_"If you're afraid to die, you're afraid to live. You can't have one without the other. — *Rita Mae Brown*"_
 
 ---
