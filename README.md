@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Beni Boş Yere Yorma** by *Gripin* 🎶
 
 ---
 
-_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
+_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
 
 ---
