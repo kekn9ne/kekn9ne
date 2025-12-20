@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yıldızlara Doğru** by *yigitflex* 🎶
 
 ---
 
-_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
+_"Happiness is only real, when shared. — *Christopher McCandless*"_
 
 ---
