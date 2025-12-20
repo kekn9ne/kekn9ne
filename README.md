@@ -7,6 +7,6 @@
 
 ---
 
-_"Insanity: doing the same thing over and over again and expecting different results. — *Albert Einstein*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
