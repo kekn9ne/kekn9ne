@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 20 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Olmadı** by *Velet* 🎶
 
 ---
 
-_"Here and now...breathe and relax...in battle and in life. — *Dan Millman*"_
+_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
 
 ---
