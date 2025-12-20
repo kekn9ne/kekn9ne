@@ -7,6 +7,6 @@
 
 ---
 
-_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
+_"Insanity: doing the same thing over and over again and expecting different results. — *Albert Einstein*"_
 
 ---
