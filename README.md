@@ -7,6 +7,6 @@
 
 ---
 
-_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
+_"You don't have to be great to start, but you have to start to be great.   — *Zig Ziglar*"_
 
 ---
