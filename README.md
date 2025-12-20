@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're afraid to die, you're afraid to live. You can't have one without the other. — *Rita Mae Brown*"_
+_"Everything that is made beautiful and fair and lovely is made for the eye of one who sees. — *Rumi*"_
 
 ---
