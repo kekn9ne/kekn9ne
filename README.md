@@ -7,6 +7,6 @@
 
 ---
 
-_"The destiny of man is in his own soul.  — *Herodotus*"_
+_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
 
 ---
