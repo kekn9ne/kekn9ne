@@ -7,6 +7,6 @@
 
 ---
 
-_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
+_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
 
 ---
