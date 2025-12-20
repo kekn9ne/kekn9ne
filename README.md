@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
+_"Creative people are often found either disagreeable or intimidating by mediocrities. — *Criss Jami*"_
 
 ---
