@@ -7,6 +7,6 @@
 
 ---
 
-_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
+_"You can never get enough of what you don't need to make you happy. — *Eric Hoffer*"_
 
 ---
