@@ -7,6 +7,6 @@
 
 ---
 
-_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
+_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
 
 ---
