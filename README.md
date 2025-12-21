@@ -7,6 +7,6 @@
 
 ---
 
-_"If we are not able to smile, then the world will not have peace. — *Thich Nhat Hanh*"_
+_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
 
 ---
