@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
+_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
 
 ---
