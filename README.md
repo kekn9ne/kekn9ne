@@ -7,6 +7,6 @@
 
 ---
 
-_"No amount of regretting can change the past, and no amount of worrying can change the future. — *Roy T. Bennett*"_
+_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
 
 ---
