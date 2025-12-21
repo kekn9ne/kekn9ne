@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is one who knows the way, goes the way, and shows the way. — *Unknown*"_
+_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
 
 ---
