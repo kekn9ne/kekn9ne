@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
+_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
 
 ---
