@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
+_"The ego wants comfort and certainty. The soul wants to live fully. — *Maxime Lagace*"_
 
 ---
