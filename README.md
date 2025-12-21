@@ -7,6 +7,6 @@
 
 ---
 
-_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
+_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
 
 ---
