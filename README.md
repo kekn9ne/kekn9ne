@@ -7,6 +7,6 @@
 
 ---
 
-_"Formal education will make you a living, self-education will make you a fortune. — *Jim Rohn*"_
+_"Each time we don't say what we wanna say, we're dying. — *Yoko Ono*"_
 
 ---
