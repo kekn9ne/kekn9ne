@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Dönüyo Başım - Piyasa Remix** by *Batuflex* 🎶
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"Every man gotta right to decide his own destiny. — *Bob Marley*"_
 
 ---
