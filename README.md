@@ -7,6 +7,6 @@
 
 ---
 
-_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
+_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
 
 ---
