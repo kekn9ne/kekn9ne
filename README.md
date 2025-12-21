@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
 
 ---
