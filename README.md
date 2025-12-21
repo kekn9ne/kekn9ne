@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are tempted to give up, your breakthrough is probably just around the corner. — *Joyce Meyer*"_
+_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
 
 ---
