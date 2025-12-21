@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
+_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
 
 ---
