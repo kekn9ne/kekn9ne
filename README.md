@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 21 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Geri Ver** by *Murda* 🎶
 
 ---
 
-_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
+_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
 
 ---
