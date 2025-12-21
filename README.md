@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
+_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
 
 ---
