@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
+_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
 
 ---
