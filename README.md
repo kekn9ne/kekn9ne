@@ -7,6 +7,6 @@
 
 ---
 
-_"Realistic people do not accomplish extraordinary things. — *John Eliot*"_
+_"When you are tempted to give up, your breakthrough is probably just around the corner. — *Joyce Meyer*"_
 
 ---
