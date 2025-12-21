@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is a game played beautifully by children. — *Heraclitus*"_
+_"Failure is the highway to success. — *Og Mandino*"_
 
 ---
