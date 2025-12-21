@@ -7,6 +7,6 @@
 
 ---
 
-_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
+_"The greatest test of courage on earth is to bear defeat without losing heart. — *Robert Greene*"_
 
 ---
