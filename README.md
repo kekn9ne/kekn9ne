@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **SEVGİ** by *Murda* 🎶
+🎧 Currently Listening: **ALÆCARTE-X** by *DEHA INC.* 🎶
 
 ---
 
-_"If you think you can do a thing or think you can't do a thing, you're right. — *Henry Ford*"_
+_"The past has no power over the present moment.  — *Eckhart Tolle*"_
 
 ---
