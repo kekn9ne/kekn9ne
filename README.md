@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
+_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
 
 ---
