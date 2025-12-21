@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 21 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Partner** by *Organize* 🎶
 
 ---
 
-_"Failure is the highway to success. — *Og Mandino*"_
+_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
 
 ---
