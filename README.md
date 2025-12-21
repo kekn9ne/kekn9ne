@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
+_"All religions, arts and sciences are branches of the same tree.  — *Albert Einstein*"_
 
 ---
