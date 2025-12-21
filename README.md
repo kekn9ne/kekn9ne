@@ -7,6 +7,6 @@
 
 ---
 
-_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
+_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
 
 ---
