@@ -7,6 +7,6 @@
 
 ---
 
-_"Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean. — *Paramahansa Yogananda*"_
+_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
 
 ---
