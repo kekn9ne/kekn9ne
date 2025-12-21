@@ -7,6 +7,6 @@
 
 ---
 
-_"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road. — *Henry Ward Beecher*"_
+_"A leader is one who knows the way, goes the way, and shows the way. — *Unknown*"_
 
 ---
