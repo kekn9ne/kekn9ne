@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest test of courage on earth is to bear defeat without losing heart. — *Robert Greene*"_
+_"In the beginner's mind there are many possibilities, but in the expert's mind there are few. — *Shunryu Suzuki*"_
 
 ---
