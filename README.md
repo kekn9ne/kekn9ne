@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Partner** by *Organize* 🎶
+🎧 Currently Listening: **Çürümüş Bahçeler** by *Ceg* 🎶
 
 ---
 
-_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
+_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
 
 ---
