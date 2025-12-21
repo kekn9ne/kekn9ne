@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KAYKAY** by *Era7capone* 🎶
 
 ---
 
-_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
+_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
 
 ---
