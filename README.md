@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try, you might get exactly what you want. If you don't, you don't. — *Unknown*"_
+_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
 
 ---
