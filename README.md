@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
+_"Coming together is a beginning, staying together is progress, and working together is success.  — *Henry Ford*"_
 
 ---
