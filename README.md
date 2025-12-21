@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Dönüyo Başım - Piyasa Remix** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every man gotta right to decide his own destiny. — *Bob Marley*"_
+_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
 
 ---
