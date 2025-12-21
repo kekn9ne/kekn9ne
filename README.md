@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
+_"A gentleman accepts the responsibility of his actions and bears the burden of their consequences. — *William Faulkner*"_
 
 ---
