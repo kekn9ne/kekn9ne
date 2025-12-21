@@ -7,6 +7,6 @@
 
 ---
 
-_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
