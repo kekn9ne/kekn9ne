@@ -7,6 +7,6 @@
 
 ---
 
-_"Integrity is the ability to stand by an idea. — *Ayn Rand*"_
+_"Time is a game played beautifully by children. — *Heraclitus*"_
 
 ---
