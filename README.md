@@ -7,6 +7,6 @@
 
 ---
 
-_"Give so much away people insist on paying you. — *Jack Butcher*"_
+_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
 
 ---
