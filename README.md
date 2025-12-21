@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way it gets better for you is when you get better. Better is not something you wish, it's something you become. — *Jim Rohn*"_
+_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
 
 ---
