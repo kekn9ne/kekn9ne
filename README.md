@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste your energy on being angry at something that somebody did six months ago or a year ago. It's over. — *Joan Rivers*"_
+_"No amount of regretting can change the past, and no amount of worrying can change the future. — *Roy T. Bennett*"_
 
 ---
