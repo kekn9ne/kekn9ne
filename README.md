@@ -7,6 +7,6 @@
 
 ---
 
-_"Discipline is the bridge between goals and accomplishment. — *Jim Rohn*"_
+_"Having lots of money while not having inner peace is like dying of thirst while bathing in the ocean. — *Paramahansa Yogananda*"_
 
 ---
