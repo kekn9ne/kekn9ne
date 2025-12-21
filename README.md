@@ -7,6 +7,6 @@
 
 ---
 
-_"Each time we don't say what we wanna say, we're dying. — *Yoko Ono*"_
+_"The truly rich men are the ones who have health, loved ones and a work they love. — *Maxime Lagace*"_
 
 ---
