@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 21 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ALÆCARTE-X** by *DEHA INC.* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The past has no power over the present moment.  — *Eckhart Tolle*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
