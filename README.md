@@ -7,6 +7,6 @@
 
 ---
 
-_"Never confuse a single defeat with a final defeat. — *F. Scott Fitzgerald*"_
+_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
 
 ---
