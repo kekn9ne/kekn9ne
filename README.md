@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
+_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
 
 ---
