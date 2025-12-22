@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is a long lesson in humility.  — *James Matthew Barrie*"_
+_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
 
 ---
