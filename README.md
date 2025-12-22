@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 22 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
+_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
 
 ---
