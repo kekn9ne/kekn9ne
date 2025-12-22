@@ -7,6 +7,6 @@
 
 ---
 
-_"Question everything. Learn something. Answer nothing. — *Euripides*"_
+_"I never said it would be easy, I only said it would be worth it. — *Mae West*"_
 
 ---
