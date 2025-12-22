@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
+_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
 
 ---
