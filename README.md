@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
+_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
 
 ---
