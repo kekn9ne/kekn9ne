@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is everything. It is the preview of life's coming attractions. — *Albert Einstein*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
