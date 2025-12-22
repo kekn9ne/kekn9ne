@@ -7,6 +7,6 @@
 
 ---
 
-_"What are we doing here, that is the question. — *Samuel Beckett*"_
+_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
 
 ---
