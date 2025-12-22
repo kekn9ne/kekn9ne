@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
+_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
 
 ---
