@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
 
 ---
