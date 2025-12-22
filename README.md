@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
+_"You don't need to be better than anyone else, you just need to be better than you used to be. — *Wayne Dyer*"_
 
 ---
