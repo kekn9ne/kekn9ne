@@ -7,6 +7,6 @@
 
 ---
 
-_"You can live a whole life time never being awake. — *Dan Millman*"_
+_"A man who cannot tolerate small misfortunes can never accomplish great things. — *Chinese Proverb*"_
 
 ---
