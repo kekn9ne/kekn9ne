@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless someone truly has the power to say no, they never truly have the power to say yes. — *Dan Millman*"_
+_"Take care of your body. It's the only place you have to live. — *Jim Rohn*"_
 
 ---
