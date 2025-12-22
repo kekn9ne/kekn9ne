@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
+_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
 
 ---
