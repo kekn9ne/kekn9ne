@@ -7,6 +7,6 @@
 
 ---
 
-_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
+_"Life is much more successfully looked at from a single window. — *F. Scott Fitzgerald*"_
 
 ---
