@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
+_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
 
 ---
