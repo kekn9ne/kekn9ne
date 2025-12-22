@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 22 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Caliente** by *INNA* 🎶
 
 ---
 
-_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
+_"A path is made by walking on it. — *Zhuangzi*"_
 
 ---
