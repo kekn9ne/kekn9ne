@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing more frustrating than slanderers is those foolish enough to listen to them. — *Criss Jami*"_
+_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
 
 ---
