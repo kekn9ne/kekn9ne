@@ -7,6 +7,6 @@
 
 ---
 
-_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
+_"Do not look upon this world with fear and loathing. Bravely face whatever the gods offer. — *Morihei Ueshiba*"_
 
 ---
