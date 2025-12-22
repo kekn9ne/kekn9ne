@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
+_"Even the smallest person can change the course of the future. — *J.R.R. Tolkien*"_
 
 ---
