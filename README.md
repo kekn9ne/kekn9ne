@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
+_"When you're at the end of your rope, tie a knot and hold on. — *Theodore Roosevelt*"_
 
 ---
