@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 22 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BATUFLEX** by *Batuflex* 🎶
 
 ---
 
-_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
+_"I don't pretend to know everything; I just only speak on matters I know I'll win. — *Criss Jami*"_
 
 ---
