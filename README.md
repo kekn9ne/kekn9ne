@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a quality of the soul...not a function of one's material circumstances. — *Aristotle*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
