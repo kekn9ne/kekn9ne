@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will. — *Epictetus*"_
+_"What are we doing here, that is the question. — *Samuel Beckett*"_
 
 ---
