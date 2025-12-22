@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **I Know You Want Me (Calle Ocho)** by *Pitbull* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
+_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
 
 ---
