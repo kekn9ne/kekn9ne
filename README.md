@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look upon this world with fear and loathing. Bravely face whatever the gods offer. — *Morihei Ueshiba*"_
+_"There are two kinds of perfect people: those who are dead, and those who have not been born yet. — *Chinese Proverb*"_
 
 ---
