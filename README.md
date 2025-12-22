@@ -7,6 +7,6 @@
 
 ---
 
-_"All that a man achieves and all that he fails to achieve is the direct result of his own thoughts. — *James Allen*"_
+_"Stress happens when the mind resists what is. — *Dan Millman*"_
 
 ---
