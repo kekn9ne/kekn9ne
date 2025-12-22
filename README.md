@@ -7,6 +7,6 @@
 
 ---
 
-_"Stress happens when the mind resists what is. — *Dan Millman*"_
+_"You can't tell big dreams to small minded people. — *Steve Harvey*"_
 
 ---
