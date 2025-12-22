@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 22 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
+_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
 
 ---
