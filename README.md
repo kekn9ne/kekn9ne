@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
 
 ---
 
-_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
+_"Life is a long lesson in humility.  — *James Matthew Barrie*"_
 
 ---
