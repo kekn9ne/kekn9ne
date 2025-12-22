@@ -7,6 +7,6 @@
 
 ---
 
-_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
+_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
 
 ---
