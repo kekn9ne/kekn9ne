@@ -7,6 +7,6 @@
 
 ---
 
-_"The heart wants what it wants. There's no logic.  — *Woody Allen*"_
+_"If you get up one more time than you fall, you will make it through. — *Chinese Proverb*"_
 
 ---
