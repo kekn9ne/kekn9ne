@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 23 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you're at the end of your rope, tie a knot and hold on. — *Theodore Roosevelt*"_
+_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
 
 ---
