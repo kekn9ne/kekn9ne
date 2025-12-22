@@ -7,6 +7,6 @@
 
 ---
 
-_"Dream big. Start small. But most of all, start. — *Simon Sinek*"_
+_"You can live a whole life time never being awake. — *Dan Millman*"_
 
 ---
