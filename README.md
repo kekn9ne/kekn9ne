@@ -7,6 +7,6 @@
 
 ---
 
-_"Without education, we are in a horrible and deadly danger of taking educated people seriously. — *Gilbert Chesterton*"_
+_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
 
 ---
