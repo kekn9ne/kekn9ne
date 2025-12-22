@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 22 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Rock My Body** by *R3HAB* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you judge others, you do not define them, you define yourself. — *Earl Nightingale*"_
+_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
 
 ---
