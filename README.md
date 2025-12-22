@@ -7,6 +7,6 @@
 
 ---
 
-_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
+_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
 
 ---
