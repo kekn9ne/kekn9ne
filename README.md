@@ -7,6 +7,6 @@
 
 ---
 
-_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
+_"Without education, we are in a horrible and deadly danger of taking educated people seriously. — *Gilbert Chesterton*"_
 
 ---
