@@ -7,6 +7,6 @@
 
 ---
 
-_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
