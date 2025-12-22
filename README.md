@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't tell big dreams to small minded people. — *Steve Harvey*"_
+_"Happiness is a quality of the soul...not a function of one's material circumstances. — *Aristotle*"_
 
 ---
