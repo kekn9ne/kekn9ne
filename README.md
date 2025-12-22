@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Monday, 22 December 2025**  
+🗓️ Today is: **Tuesday, 23 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
+_"There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will. — *Epictetus*"_
 
 ---
