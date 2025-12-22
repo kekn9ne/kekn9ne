@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe you can and you're halfway there. — *Theodore Roosevelt*"_
+_"Whatever you think the world is withholding from you, you are withholding from the world. — *Eckhart Tolle*"_
 
 ---
