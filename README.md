@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't need to be better than anyone else, you just need to be better than you used to be. — *Wayne Dyer*"_
+_"Tension is who you think you should be. Relaxation is who you are. — *Chinese Proverb*"_
 
 ---
