@@ -7,6 +7,6 @@
 
 ---
 
-_"Words without actions are the assassins of idealism. — *Herbert Hoover*"_
+_"One must be deeply aware of the impermanence of the world. — *Dogen*"_
 
 ---
