@@ -7,6 +7,6 @@
 
 ---
 
-_"Awaken. Take heed, do not squander your life. — *Dogen*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
