@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
+_"Don't let the noise of others opinions drown out your inner voice. — *Steve Jobs*"_
 
 ---
