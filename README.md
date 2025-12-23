@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you think the world is withholding from you, you are withholding from the world. — *Eckhart Tolle*"_
+_"Desire is suffering. — *Naval Ravikant*"_
 
 ---
