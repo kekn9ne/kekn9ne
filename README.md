@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 23 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Dünya Gül Bana** by *No.1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
+_"Laziness may appear attractive, but work gives satisfaction. — *Anne Frank*"_
 
 ---
