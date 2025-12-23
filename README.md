@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
+_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
 
 ---
