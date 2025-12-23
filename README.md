@@ -7,6 +7,6 @@
 
 ---
 
-_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
+_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
 
 ---
