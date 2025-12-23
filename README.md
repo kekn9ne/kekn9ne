@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
+_"A strong man overcomes an obstacle, a wise man goes the whole way. — *Zen Proverb*"_
 
 ---
