@@ -7,6 +7,6 @@
 
 ---
 
-_"Experience is simply the name we give our mistakes.  — *Oscar Wilde*"_
+_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
 
 ---
