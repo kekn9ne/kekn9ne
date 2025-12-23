@@ -7,6 +7,6 @@
 
 ---
 
-_"At the center of your being you have the answer; you know who you are and you know what you want. — *Lao Tzu*"_
+_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
 
 ---
