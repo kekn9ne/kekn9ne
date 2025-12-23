@@ -7,6 +7,6 @@
 
 ---
 
-_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
+_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
 
 ---
