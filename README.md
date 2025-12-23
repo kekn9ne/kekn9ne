@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Günahsız** by *Keişan* 🎶
+🎧 Currently Listening: **minör depresyon** by *Ravend* 🎶
 
 ---
 
-_"What the mind can conceive and believe, and the heart desire, you can achieve. — *Norman Vincent Peale*"_
+_"You can often change your circumstances by changing your attitude. — *Eleanor Roosevelt*"_
 
 ---
