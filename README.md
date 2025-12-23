@@ -7,6 +7,6 @@
 
 ---
 
-_"When you rise in the morning, form a resolution to make the day a happy one for a fellow creature. — *Sydney Smith*"_
+_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
 
 ---
