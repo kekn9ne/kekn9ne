@@ -7,6 +7,6 @@
 
 ---
 
-_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
+_"When you rise in the morning, form a resolution to make the day a happy one for a fellow creature. — *Sydney Smith*"_
 
 ---
