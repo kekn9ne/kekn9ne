@@ -7,6 +7,6 @@
 
 ---
 
-_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
+_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
 
 ---
