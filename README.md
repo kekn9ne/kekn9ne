@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
+_"Experience is simply the name we give our mistakes.  — *Oscar Wilde*"_
 
 ---
