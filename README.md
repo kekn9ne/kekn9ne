@@ -7,6 +7,6 @@
 
 ---
 
-_"Never do to others what you would not like them to do to you.  — *Confucius*"_
+_"Write to help yourself, publish to help others. — *Jack Butcher*"_
 
 ---
