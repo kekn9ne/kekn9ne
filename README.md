@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
+_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
 
 ---
