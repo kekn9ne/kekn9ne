@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
+_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
 
 ---
