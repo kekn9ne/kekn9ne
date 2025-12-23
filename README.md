@@ -7,6 +7,6 @@
 
 ---
 
-_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
