@@ -7,6 +7,6 @@
 
 ---
 
-_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
+_"Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present. — *George Bernard Shaw*"_
 
 ---
