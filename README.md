@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
+_"Never do to others what you would not like them to do to you.  — *Confucius*"_
 
 ---
