@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't let your failures define you. You have to let your failures teach you. — *Barack Obama*"_
+_"Life is and will ever remain an equation incapable of solution, but it contains certain known factors.  — *Nikola Tesla*"_
 
 ---
