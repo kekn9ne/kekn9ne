@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"At the center of your being you have the answer; you know who you are and you know what you want. — *Lao Tzu*"_
 
 ---
