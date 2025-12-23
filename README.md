@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do what you've always done, you'll get what you've always gotten. — *Tony Robbins*"_
+_"Awaken. Take heed, do not squander your life. — *Dogen*"_
 
 ---
