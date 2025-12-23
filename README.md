@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
+_"Life is a series of choices and all we can do is make them. — *Kamal Ravikant*"_
 
 ---
