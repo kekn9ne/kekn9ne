@@ -7,6 +7,6 @@
 
 ---
 
-_"Yesterday is the past, tomorrow is the future, today is a gift - that's why it's called the present. — *George Bernard Shaw*"_
+_"True knowledge exists in knowing that you know nothing. — *Socrates*"_
 
 ---
