@@ -7,6 +7,6 @@
 
 ---
 
-_"Give so much away people insist on paying you. — *Jack Butcher*"_
+_"Today is plenty; right now is enough. Tomorrow will come in good time. Until it does, live the depth of now. — *Ralph Marston*"_
 
 ---
