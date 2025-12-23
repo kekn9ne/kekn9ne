@@ -7,6 +7,6 @@
 
 ---
 
-_"Whenever you do a thing, act as if all the world were watching. — *Thomas Jefferson*"_
+_"The key to success is action. — *Brian Tracy*"_
 
 ---
