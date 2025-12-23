@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is a great teacher. If you're open to it every mistake has a lesson to offer. — *Oprah Winfrey*"_
+_"It is important to fight and fight again, and keep fighting, for only then can evil be kept at bay though never quite eradicated. — *Albus Dumbledore*"_
 
 ---
