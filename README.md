@@ -7,6 +7,6 @@
 
 ---
 
-_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
+_"Projecting your mind into a successful situation is the most powerful means to achieve goals.   — *Estee Lauder*"_
 
 ---
