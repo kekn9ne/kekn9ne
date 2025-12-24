@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **TOPSHOTTA** by *Yung Ouzo* 🎶
 
 ---
 
-_"Change is never easy, but always possible. — *Barack Obama*"_
+_"Science can flourish only in an atmosphere of free speech.  — *Albert Einstein*"_
 
 ---
