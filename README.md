@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **I WANNA DANCE** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"There is no absolute success in the world, only constant progress. — *Jonathan Swift*"_
 
 ---
