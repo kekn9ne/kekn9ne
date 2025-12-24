@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom itself demands discomfort. — *Mark Manson*"_
+_"Peace begins with a smile. — *Mother Teresa*"_
 
 ---
