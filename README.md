@@ -7,6 +7,6 @@
 
 ---
 
-_"Realize deeply that the present moment is all you ever have.  — *Eckhart Tolle*"_
+_"Do not bite at the bait of pleasure, till you know there is no hook beneath it. — *Thomas Jefferson*"_
 
 ---
