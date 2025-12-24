@@ -7,6 +7,6 @@
 
 ---
 
-_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
