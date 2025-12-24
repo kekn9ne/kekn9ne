@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is sometimes the best answer. — *Dalai Lama*"_
+_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
 
 ---
