@@ -7,6 +7,6 @@
 
 ---
 
-_"Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt. — *Honore de Balzac*"_
+_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
 
 ---
