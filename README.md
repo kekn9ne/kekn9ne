@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder the conflict, the greater the triumph.  — *George Washington*"_
+_"Time you enjoy wasting, was not wasted. — *John Lennon*"_
 
 ---
