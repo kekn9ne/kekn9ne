@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Because a thing seems difficult for you, do not think it impossible. — *Marcus Aurelius*"_
+_"Great loves too must be endured. — *Coco Chanel*"_
 
 ---
