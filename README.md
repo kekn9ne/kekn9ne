@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace begins with a smile. — *Mother Teresa*"_
+_"Change is never easy, but always possible. — *Barack Obama*"_
 
 ---
