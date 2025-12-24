@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
 
 ---
