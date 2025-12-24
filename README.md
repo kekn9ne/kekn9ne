@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no absolute success in the world, only constant progress. — *Jonathan Swift*"_
+_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
 
 ---
