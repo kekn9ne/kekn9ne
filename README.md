@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like a wheel. Sooner or later, it always comes around to where you started again. — *Stephen King*"_
+_"The purpose of life is the life of purpose. — *Robin Sharma*"_
 
 ---
