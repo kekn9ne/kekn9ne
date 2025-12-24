@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
+_"Anything becomes interesting if you look at it long enough.. — *Gustave Flaubert*"_
 
 ---
