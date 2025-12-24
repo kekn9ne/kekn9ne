@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is like money, easier made than kept. — *Samuel Butler*"_
+_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
 
 ---
