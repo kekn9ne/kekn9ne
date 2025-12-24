@@ -7,6 +7,6 @@
 
 ---
 
-_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
+_"I am thankful to all who said no to me. It is because of them that I'm doing it myself. — *Albert Einstein*"_
 
 ---
