@@ -7,6 +7,6 @@
 
 ---
 
-_"This is such a short and precious life that it's really important that you don't spend it being unhappy. — *Naval Ravikant*"_
+_"Start each day with a positive thought and a grateful heart. — *Roy T. Bennett*"_
 
 ---
