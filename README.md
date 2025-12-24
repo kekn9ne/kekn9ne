@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SAFI TMM 2.0** by *scixdd* 🎶
 
 ---
 
-_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
+_"In spite of everything, I shall rise again. — *Vincent van Gogh*"_
 
 ---
