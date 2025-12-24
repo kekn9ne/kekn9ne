@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
 
 ---
