@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Man should fear never beginning to live. — *Marcus Aurelius*"_
+_"The less people know, the more stubbornly they know it. — *Osho*"_
 
 ---
