@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 24 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
 
 ---
 
-_"Getting lost along your path is a part of finding the path you are meant to be on. — *Robin Sharma*"_
+_"Given the choice between the experience of pain and nothing, I would choose pain. — *William Faulkner*"_
 
 ---
