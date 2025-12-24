@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **dubaiiiiii** by *Lvbel C5* 🎶
 
 ---
 
-_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
+_"Man should fear never beginning to live. — *Marcus Aurelius*"_
 
 ---
