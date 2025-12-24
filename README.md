@@ -7,6 +7,6 @@
 
 ---
 
-_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
+_"One small positive thought can change your whole day. — *Zig Ziglar*"_
 
 ---
