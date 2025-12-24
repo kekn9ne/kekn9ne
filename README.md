@@ -7,6 +7,6 @@
 
 ---
 
-_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
