@@ -7,6 +7,6 @@
 
 ---
 
-_"One small positive thought can change your whole day. — *Zig Ziglar*"_
+_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
 
 ---
