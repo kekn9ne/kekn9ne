@@ -7,6 +7,6 @@
 
 ---
 
-_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
+_"This is such a short and precious life that it's really important that you don't spend it being unhappy. — *Naval Ravikant*"_
 
 ---
