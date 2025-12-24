@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not bite at the bait of pleasure, till you know there is no hook beneath it. — *Thomas Jefferson*"_
+_"People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. — *Franklin D. Roosevelt*"_
 
 ---
