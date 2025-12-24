@@ -7,6 +7,6 @@
 
 ---
 
-_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
