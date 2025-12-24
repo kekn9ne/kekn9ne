@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
+_"You can tell more about a person by what he says about others than you can by what others say about him. — *Audrey Hepburn*"_
 
 ---
