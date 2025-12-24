@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Because a thing seems difficult for you, do not think it impossible. — *Marcus Aurelius*"_
 
 ---
