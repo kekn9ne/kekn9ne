@@ -7,6 +7,6 @@
 
 ---
 
-_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
+_"Freedom itself demands discomfort. — *Mark Manson*"_
 
 ---
