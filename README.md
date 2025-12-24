@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to control myself I must first accept myself by going with and not against my nature. — *Bruce Lee*"_
+_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
 
 ---
