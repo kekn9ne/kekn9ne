@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 24 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We're responsible for everything that happens to us. — *Yanni*"_
+_"The secret of happiness, you see, is not found in seeking more, but in developing the capacity to enjoy less. — *Dan Millman*"_
 
 ---
