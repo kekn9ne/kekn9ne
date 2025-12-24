@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the life of purpose. — *Robin Sharma*"_
+_"Guilt is perhaps the most painful companion of death. — *Coco Chanel*"_
 
 ---
