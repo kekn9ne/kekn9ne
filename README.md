@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
+_"No need to hurry. No need to sparkle. No need to be anybody but oneself. — *Virginia Woolf*"_
 
 ---
