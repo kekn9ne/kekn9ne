@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
+_"How many times do you have to get hit over the head until you figure out who's hitting you? — *Harry S. Truman*"_
 
 ---
