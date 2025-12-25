@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
+_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
 
 ---
