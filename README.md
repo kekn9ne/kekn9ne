@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
 
 ---
