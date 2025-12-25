@@ -7,6 +7,6 @@
 
 ---
 
-_"Fishing is much more than fish. — *Herbert Hoover*"_
+_"Don't be pushed by your problems; be led by your dreams. — *Unknown*"_
 
 ---
