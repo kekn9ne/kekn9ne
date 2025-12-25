@@ -7,6 +7,6 @@
 
 ---
 
-_"Our stories may be singular, but our destination is shared. — *Barack Obama*"_
+_"We must cultivate our garden.  — *Voltaire*"_
 
 ---
