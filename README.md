@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything begins with an idea. — *Earl Nightingale*"_
+_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
 
 ---
