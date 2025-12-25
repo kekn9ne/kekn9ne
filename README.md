@@ -7,6 +7,6 @@
 
 ---
 
-_"My guiding principle is this: Guilt is never to be doubted.  — *Franz Kafka*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
