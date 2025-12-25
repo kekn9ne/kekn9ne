@@ -7,6 +7,6 @@
 
 ---
 
-_"It does not matter how slowly you go so long as you do not stop. — *Confucius*"_
+_"My guiding principle is this: Guilt is never to be doubted.  — *Franz Kafka*"_
 
 ---
