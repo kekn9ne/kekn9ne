@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
+_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
 
 ---
