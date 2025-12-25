@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
+_"Chase your passion, not your pension.  — *Denis Waitley*"_
 
 ---
