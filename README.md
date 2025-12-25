@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — *Buddha*"_
 
 ---
