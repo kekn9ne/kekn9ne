@@ -7,6 +7,6 @@
 
 ---
 
-_"Anything becomes interesting if you look at it long enough.. — *Gustave Flaubert*"_
+_"Still your waters. — *Josh Waitzkin*"_
 
 ---
