@@ -7,6 +7,6 @@
 
 ---
 
-_"Live simply, expect little, give much. — *Norman Vincent Peale*"_
+_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
 
 ---
