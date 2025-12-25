@@ -7,6 +7,6 @@
 
 ---
 
-_"Focused, hard work is the real key to success. — *John Carmack*"_
+_"Everything begins with an idea. — *Earl Nightingale*"_
 
 ---
