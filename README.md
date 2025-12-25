@@ -7,6 +7,6 @@
 
 ---
 
-_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
+_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
 
 ---
