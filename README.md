@@ -7,6 +7,6 @@
 
 ---
 
-_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
+_"What the caterpillar calls the end of the world, the master calls a butterfly. — *Richard Bach*"_
 
 ---
