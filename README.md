@@ -7,6 +7,6 @@
 
 ---
 
-_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
+_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
 
 ---
