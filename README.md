@@ -7,6 +7,6 @@
 
 ---
 
-_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
+_"Less is more. — *Robert Browning*"_
 
 ---
