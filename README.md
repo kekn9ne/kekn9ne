@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not bite at the bait of pleasure, till you know there is no hook beneath it. — *Thomas Jefferson*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
