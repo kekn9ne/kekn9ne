@@ -7,6 +7,6 @@
 
 ---
 
-_"Still your waters. — *Josh Waitzkin*"_
+_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
 
 ---
