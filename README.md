@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bigman** by *Heijan* 🎶
 
 ---
 
-_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
+_"If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present. — *Lao Tzu*"_
 
 ---
