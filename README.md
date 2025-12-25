@@ -7,6 +7,6 @@
 
 ---
 
-_"We must cultivate our garden.  — *Voltaire*"_
+_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
 
 ---
