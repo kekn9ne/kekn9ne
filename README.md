@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Bigman** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present. — *Lao Tzu*"_
+_"You have to give up some of the old so that you can make room for the new. — *Yanni*"_
 
 ---
