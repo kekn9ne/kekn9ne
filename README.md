@@ -7,6 +7,6 @@
 
 ---
 
-_"Human happiness and moral duty are inseparably connected.  — *George Washington*"_
+_"To be prepared is half the victory.  — *Miguel de Cervantes*"_
 
 ---
