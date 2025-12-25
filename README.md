@@ -7,6 +7,6 @@
 
 ---
 
-_"A good stance and posture reflect a proper state of mind. — *Morihei Ueshiba*"_
+_"The meaning of life is that it stops. — *Franz Kafka*"_
 
 ---
