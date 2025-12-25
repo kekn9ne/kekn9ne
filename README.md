@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
+_"The measure of who we are is what we do with what we have. — *Vince Lombardi*"_
 
 ---
