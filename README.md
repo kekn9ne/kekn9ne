@@ -7,6 +7,6 @@
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach. — *Benjamin Mays*"_
 
 ---
