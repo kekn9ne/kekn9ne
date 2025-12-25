@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is that it stops. — *Franz Kafka*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
