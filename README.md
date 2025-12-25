@@ -7,6 +7,6 @@
 
 ---
 
-_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
+_"The universe doesn't allow perfection. — *Stephen Hawking*"_
 
 ---
