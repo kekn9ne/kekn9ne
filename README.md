@@ -7,6 +7,6 @@
 
 ---
 
-_"So long as we are being remembered, we remain alive. — *Carlos Ruiz Zafon*"_
+_"Let us always meet each other with smile, for the smile is the beginning of love. — *Mother Teresa*"_
 
 ---
