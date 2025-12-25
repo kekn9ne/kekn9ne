@@ -7,6 +7,6 @@
 
 ---
 
-_"A fool sees himself as another, but a wise man sees others as himself. — *Dogen*"_
+_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
 
 ---
