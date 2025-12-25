@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
+🎧 Currently Listening: **ROMAN HAVASI** by *Era7capone* 🎶
 
 ---
 
-_"An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question. — *John Tukey*"_
+_"Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity. — *Charles Spurgeon*"_
 
 ---
