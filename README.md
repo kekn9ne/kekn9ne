@@ -7,6 +7,6 @@
 
 ---
 
-_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
+_"Wrong turns are as important as right turns. More important, sometimes. — *Richard Bach*"_
 
 ---
