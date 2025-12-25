@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
 
 ---
