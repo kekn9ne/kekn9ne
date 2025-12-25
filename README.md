@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
+_"True friendship ought never to conceal what it thinks.  — *St. Jerome*"_
 
 ---
