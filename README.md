@@ -7,6 +7,6 @@
 
 ---
 
-_"Chase your passion, not your pension.  — *Denis Waitley*"_
+_"Live simply, expect little, give much. — *Norman Vincent Peale*"_
 
 ---
