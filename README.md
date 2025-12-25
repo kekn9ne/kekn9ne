@@ -7,6 +7,6 @@
 
 ---
 
-_"The measure of who we are is what we do with what we have. — *Vince Lombardi*"_
+_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
 
 ---
