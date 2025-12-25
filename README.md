@@ -7,6 +7,6 @@
 
 ---
 
-_"What the caterpillar calls the end of the world, the master calls a butterfly. — *Richard Bach*"_
+_"Do not bite at the bait of pleasure, till you know there is no hook beneath it. — *Thomas Jefferson*"_
 
 ---
