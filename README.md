@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone you admire was once a beginner. — *Jack Butcher*"_
+_"The only thing worse than being blind is having sight but no vision. — *Helen Keller*"_
 
 ---
