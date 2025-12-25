@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes success isn't about making the right decision, it's more about making some decision. — *Robin Sharma*"_
+_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
 
 ---
