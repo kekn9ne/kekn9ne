@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 25 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"The ability to observe without evaluating is the highest form of intelligence. — *Jiddu Krishnamurti*"_
+_"An approximate answer to the right question is worth a great deal more than a precise answer to the wrong question. — *John Tukey*"_
 
 ---
