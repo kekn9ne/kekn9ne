@@ -7,6 +7,6 @@
 
 ---
 
-_"The universe doesn't allow perfection. — *Stephen Hawking*"_
+_"There is no path to Peace. Peace is the path. — *Dan Millman*"_
 
 ---
