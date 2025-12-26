@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
+_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
 
 ---
