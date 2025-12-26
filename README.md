@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
 
 ---
