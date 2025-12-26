@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is the key to success; each mistake teaches us something. — *Morihei Ueshiba*"_
+_"You will have bad times, but they will always wake you up to the stuff you weren't paying attention to. — *Robin Williams*"_
 
 ---
