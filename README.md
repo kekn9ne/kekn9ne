@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 26 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Yemin Ederim** by *Heja* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Wake up and smile! Wake up and be grateful! — *Steve Harvey*"_
+_"The opposite of courage in our society is not cowardice... it is conformity. — *Earl Nightingale*"_
 
 ---
