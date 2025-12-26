@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your outlook on life that counts. — *Betty White*"_
+_"Fools talk, cowards are silent, wise men listen. — *Carlos Ruiz Zafon*"_
 
 ---
