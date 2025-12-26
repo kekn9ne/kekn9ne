@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. — *Sathya Sai Baba*"_
+_"You can't let your failures define you. You have to let your failures teach you. — *Barack Obama*"_
 
 ---
