@@ -7,6 +7,6 @@
 
 ---
 
-_"The only real mistake is the one from which we learn nothing.  — *Henry Ford*"_
+_"When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.  — *Charles Swindoll*"_
 
 ---
