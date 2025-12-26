@@ -7,6 +7,6 @@
 
 ---
 
-_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
+_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
 
 ---
