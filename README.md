@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
+_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
 
 ---
