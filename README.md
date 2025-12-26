@@ -7,6 +7,6 @@
 
 ---
 
-_"Thoughts become things. If you see it in your mind, you will hold it in your hand. — *Bob Proctor*"_
+_"Raise your words, not voice. It is rain that grows flowers, not thunder. — *Rumi*"_
 
 ---
