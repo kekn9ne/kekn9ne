@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
+_"Life is growth. If we stop growing, technically and spiritually, we are as good as dead. — *Morihei Ueshiba*"_
 
 ---
