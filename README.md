@@ -7,6 +7,6 @@
 
 ---
 
-_"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems. — *Robert Kiyosaki*"_
+_"Thoughts become things. If you see it in your mind, you will hold it in your hand. — *Bob Proctor*"_
 
 ---
