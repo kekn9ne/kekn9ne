@@ -7,6 +7,6 @@
 
 ---
 
-_"I have lost friends, some by death...others by sheer inability to cross the street. — *Virginia Woolf*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
