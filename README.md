@@ -7,6 +7,6 @@
 
 ---
 
-_"The wiser you get, the less you care to look like a fool. — *Maxime Lagace*"_
+_"Often we pass beside happiness without seeing it, without looking at it, or even if we have seen and looked at it, without recognizing it. — *Alexandre Dumas*"_
 
 ---
