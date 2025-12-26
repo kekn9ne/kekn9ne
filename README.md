@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **SHOT** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Amazing** by *INNA* 🎶
 
 ---
 
-_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
+_"The only real mistake is the one from which we learn nothing.  — *Henry Ford*"_
 
 ---
