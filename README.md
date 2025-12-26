@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Peace. Peace is the path. — *Dan Millman*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
