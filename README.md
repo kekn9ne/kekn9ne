@@ -7,6 +7,6 @@
 
 ---
 
-_"We need never be ashamed of our tears. — *Charles Dickens*"_
+_"Follow your instincts. That is where true wisdom manifests itself. — *Oprah Winfrey*"_
 
 ---
