@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no scarcity of opportunity to make a living at what you love. There is only a scarcity of resolve to make it happen. — *Wayne Dyer*"_
+_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
 
 ---
