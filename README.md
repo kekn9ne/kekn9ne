@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time defending your problems and work on addressing them instead. — *Celestine Chua*"_
+_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
 
 ---
