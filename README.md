@@ -7,6 +7,6 @@
 
 ---
 
-_"Dream big. Start small. But most of all, start. — *Simon Sinek*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
