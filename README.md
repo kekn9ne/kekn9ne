@@ -7,6 +7,6 @@
 
 ---
 
-_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
+_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
 
 ---
