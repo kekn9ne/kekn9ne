@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't let your failures define you. You have to let your failures teach you. — *Barack Obama*"_
+_"I have lost friends, some by death...others by sheer inability to cross the street. — *Virginia Woolf*"_
 
 ---
