@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
+_"The greatest step towards a life of simplicity is to learn to let go. — *Steve Maraboli*"_
 
 ---
