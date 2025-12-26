@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want, happiness is wanting what you get. — *W.P. Kinsella*"_
+_"The only real mistake is the one from which we learn nothing.  — *Henry Ford*"_
 
 ---
