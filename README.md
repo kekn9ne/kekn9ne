@@ -7,6 +7,6 @@
 
 ---
 
-_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
+_"Some of the greater things in life are unseen; that's why you close your eyes when you kiss, cry, or dream. — *Unknown*"_
 
 ---
