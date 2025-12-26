@@ -7,6 +7,6 @@
 
 ---
 
-_"Every defeat, every heartbreak every loss, contains its own seed, its own lesson on how to improve your performance the next time. — *Og Mandino*"_
+_"Failure is the key to success; each mistake teaches us something. — *Morihei Ueshiba*"_
 
 ---
