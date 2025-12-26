@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
+_"The secret of perfect health lies in keeping the mind always cheerful - never worried, never hurried, never borne down by any fear, thought or anxiety. — *Sathya Sai Baba*"_
 
 ---
