@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole is greater than the sum of its parts. — *Aristotle*"_
+_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
 
 ---
