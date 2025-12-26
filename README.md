@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"If you don't like something, change it. If you can't change it, change your attitude. — *Maya Angelou*"_
 
 ---
