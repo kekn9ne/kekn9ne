@@ -7,6 +7,6 @@
 
 ---
 
-_"Health is the greatest of all possessions. — *Jonathan Swift*"_
+_"Don't let the silly little dramas of each day get you down. For you are here to do great things. — *Ralph Marston*"_
 
 ---
