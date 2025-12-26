@@ -7,6 +7,6 @@
 
 ---
 
-_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
+_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
 
 ---
