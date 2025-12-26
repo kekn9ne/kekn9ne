@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 26 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **YAZ GELDİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Aynen** by *Heijan* 🎶
 
 ---
 
-_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
+_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
 
 ---
