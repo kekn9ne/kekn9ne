@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 26 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +8°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yemin Ederim** by *Heja* 🎶
 
 ---
 
-_"To seek is to suffer. To seek nothing is bliss. — *Bodhidharma*"_
+_"Wake up and smile! Wake up and be grateful! — *Steve Harvey*"_
 
 ---
