@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 26 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Amazing** by *INNA* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The only real mistake is the one from which we learn nothing.  — *Henry Ford*"_
+_"No one has ever become poor by giving. — *Anne Frank*"_
 
 ---
