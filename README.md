@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 26 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +6°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ABV - 2.0** by *yigit!* 🎶
+🎧 Currently Listening: **YAZ GELDİ** by *Lvbel C5* 🎶
 
 ---
 
-_"If light is in your heart, you will find your way home.   — *Rumi*"_
+_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
 
 ---
