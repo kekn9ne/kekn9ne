@@ -7,6 +7,6 @@
 
 ---
 
-_"To succeed takes more than the desire to win. It also takes the acceptance that we could fail. — *Simon Sinek*"_
+_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
 
 ---
