@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
+_"If the plan doesn't work, change the plan, but never the goal. — *Unknown*"_
 
 ---
