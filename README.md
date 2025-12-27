@@ -7,6 +7,6 @@
 
 ---
 
-_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
+_"Every moment is a fresh beginning. — *T.S. Eliot*"_
 
 ---
