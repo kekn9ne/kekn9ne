@@ -7,6 +7,6 @@
 
 ---
 
-_"We are born from a quiet sleep, and we die to a calm awakening — *Zhuangzi*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
