@@ -7,6 +7,6 @@
 
 ---
 
-_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
+_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
 
 ---
