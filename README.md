@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
