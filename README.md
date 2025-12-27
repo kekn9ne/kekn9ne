@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment is a fresh beginning. — *T.S. Eliot*"_
+_"Forever is composed of now's. — *Emily Dickinson*"_
 
 ---
