@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
+_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
 
 ---
