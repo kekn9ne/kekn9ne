@@ -7,6 +7,6 @@
 
 ---
 
-_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
+_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
 
 ---
