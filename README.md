@@ -7,6 +7,6 @@
 
 ---
 
-_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
+_"Where words fail, music speaks. — *Hans Christian Andersen*"_
 
 ---
