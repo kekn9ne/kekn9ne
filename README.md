@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
+_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
 
 ---
