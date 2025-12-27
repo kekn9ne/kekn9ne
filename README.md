@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
+🎧 Currently Listening: **pUTA** by *Jeff Redd* 🎶
 
 ---
 
-_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
+_"There are three classes of people: those who see. Those who see when they are shown. Those who do not see. — *Leonardo da Vinci*"_
 
 ---
