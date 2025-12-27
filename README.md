@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **SUBMARINER** by *AKDO* 🎶
+🎧 Currently Listening: **BAGHDAD** by *D-azy* 🎶
 
 ---
 
-_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
+_"The person who says something is impossible should not interrupt the person who is doing it. — *Chinese Proverb*"_
 
 ---
