@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **Sandın** by *Lero943* 🎶
 
 ---
 
-_"The more you know, the more you know you don't know. — *Aristotle*"_
+_"Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly. — *Marcus Aurelius*"_
 
 ---
