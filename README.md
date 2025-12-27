@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding failure is to avoid progress. — *Unknown*"_
+_"The universe doesn't allow perfection. — *Stephen Hawking*"_
 
 ---
