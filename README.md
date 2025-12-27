@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **D4FT PUNK** by *EGE!* 🎶
+🎧 Currently Listening: **Allahım Beni Sevmiyorlar** by *Tayroa* 🎶
 
 ---
 
-_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
