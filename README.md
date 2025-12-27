@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
 
 ---
