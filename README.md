@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **KIRIK** by *Keskin* 🎶
+🎧 Currently Listening: **SUBMARINER** by *AKDO* 🎶
 
 ---
 
-_"Mastery is not a function of genius or talent, it is a function of time and intense focus applied to a particular field of knowledge. — *Robert Greene*"_
+_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
 
 ---
