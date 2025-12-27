@@ -7,6 +7,6 @@
 
 ---
 
-_"What's obvious to you isn't obvious to most people. Operate from this perspective and you'll help more people. — *Jack Butcher*"_
+_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
 
 ---
