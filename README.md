@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **pUTA** by *Jeff Redd* 🎶
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"There are three classes of people: those who see. Those who see when they are shown. Those who do not see. — *Leonardo da Vinci*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
