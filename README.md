@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
 
 ---
 
-_"Conquer the devils with a little thing called love. — *Bob Marley*"_
+_"If you believe you can, you can. If you believe you can't, then, well you can't. — *Celestine Chua*"_
 
 ---
