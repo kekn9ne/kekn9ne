@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 27 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +6°C**  
+🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Instead of being intimidated by the limitations, be inspired to find new ways around them. — *Ralph Marston*"_
+_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
 
 ---
