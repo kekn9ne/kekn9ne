@@ -7,6 +7,6 @@
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"Live in each season as it passes; breathe the air, drink the drink, taste the fruit, and resign yourself to the influence of the earth. — *Henry David Thoreau*"_
 
 ---
