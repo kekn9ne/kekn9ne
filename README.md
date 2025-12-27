@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 27 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
 
 ---
 
-_"Most people fail in life because they major in minor things. — *Tony Robbins*"_
+_"Many answers to what you seek don't lie 'out there'. If you look inwards, you'll find the answer has been in you all along. — *Celestine Chua*"_
 
 ---
