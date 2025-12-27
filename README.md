@@ -7,6 +7,6 @@
 
 ---
 
-_"If the plan doesn't work, change the plan, but never the goal. — *Unknown*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
