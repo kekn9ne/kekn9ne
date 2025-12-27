@@ -7,6 +7,6 @@
 
 ---
 
-_"Where words fail, music speaks. — *Hans Christian Andersen*"_
+_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
 
 ---
