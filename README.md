@@ -7,6 +7,6 @@
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"Hope means hoping when everything seems hopeless. — *Gilbert Chesterton*"_
 
 ---
