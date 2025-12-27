@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence comes not from always being right but not fearing to be wrong. — *Unknown*"_
+_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
 
 ---
