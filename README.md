@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes it is harder to deprive oneself of a pain than of a pleasure. — *F. Scott Fitzgerald*"_
+_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
 
 ---
