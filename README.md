@@ -7,6 +7,6 @@
 
 ---
 
-_"Still your waters. — *Josh Waitzkin*"_
+_"To succeed takes more than the desire to win. It also takes the acceptance that we could fail. — *Simon Sinek*"_
 
 ---
