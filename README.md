@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 27 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +5°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
+_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
 
 ---
