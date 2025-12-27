@@ -7,6 +7,6 @@
 
 ---
 
-_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
+_"It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime. — *Steve Maraboli*"_
 
 ---
