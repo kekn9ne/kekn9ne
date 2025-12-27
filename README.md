@@ -7,6 +7,6 @@
 
 ---
 
-_"It only takes a split second to smile and forget, yet to someone that needed it, it can last a lifetime. — *Steve Maraboli*"_
+_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
 
 ---
