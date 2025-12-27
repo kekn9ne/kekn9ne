@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no failure except in no longer trying. There is no defeat except from within, no insurmountable barrier except our own inherent weakness of purpose. — *Elbert Hubbard*"_
+_"Sometimes it is harder to deprive oneself of a pain than of a pleasure. — *F. Scott Fitzgerald*"_
 
 ---
