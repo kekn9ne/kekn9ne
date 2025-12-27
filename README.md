@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 28 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +5°C**  
+🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **TAK TAK TAK** by *Lvbel C5* 🎶
+🎧 Currently Listening: **MERMER** by *Lvbel C5* 🎶
 
 ---
 
-_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
+_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
 
 ---
