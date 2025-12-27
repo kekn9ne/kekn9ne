@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 27 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +5°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **BABA** by *Lvbel C5* 🎶
+🎧 Currently Listening: **ROMAN HAVASI** by *Era7capone* 🎶
 
 ---
 
-_"We ourselves feel that what we are doing is just a drop in the ocean. But the ocean would be less because of that missing drop. — *Mother Teresa*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
