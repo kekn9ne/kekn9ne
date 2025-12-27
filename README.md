@@ -7,6 +7,6 @@
 
 ---
 
-_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
