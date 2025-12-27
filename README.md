@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is found in unlikely places. — *J.R.R. Tolkien*"_
+_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
 
 ---
