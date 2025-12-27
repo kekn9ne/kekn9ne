@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 27 December 2025**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Beni Unutma** by *Demet Akalın* 🎶
+🎧 Currently Listening: **Genç Çocuk** by *ARDA ERDEM* 🎶
 
 ---
 
-_"The greatest of empires, is the empire over one's self. — *Publilius Syrus*"_
+_"An inch of time is an inch of gold but you can't buy that inch of time with an inch of gold. — *Chinese Proverb*"_
 
 ---
