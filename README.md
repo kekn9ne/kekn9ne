@@ -7,6 +7,6 @@
 
 ---
 
-_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
+_"You don't get in life what you want; you get in life what you are. — *Les Brown*"_
 
 ---
