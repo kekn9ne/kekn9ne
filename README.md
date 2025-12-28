@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 28 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +4°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Amazing** by *INNA* 🎶
+🎧 Currently Listening: **How Deep Is Your Love** by *Calvin Harris* 🎶
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
 
 ---
