@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 28 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Sosyopat** by *Ceg* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. — *Theodore Roosevelt*"_
+_"Be patient and calm; no one can catch fish in anger. — *Herbert Hoover*"_
 
 ---
