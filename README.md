@@ -7,6 +7,6 @@
 
 ---
 
-_"Always try to be a little kinder than necessary. — *James Matthew Barrie*"_
+_"Time goes from present to past. — *Shunryu Suzuki*"_
 
 ---
