@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is the worst thing about the present. — *Gustave Flaubert*"_
+_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
 
 ---
