@@ -7,6 +7,6 @@
 
 ---
 
-_"Time goes from present to past. — *Shunryu Suzuki*"_
+_"No grand idea was ever born in a conference, but a lot of foolish ideas have died there. — *F. Scott Fitzgerald*"_
 
 ---
