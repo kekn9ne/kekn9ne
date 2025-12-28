@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 28 December 2025**  
 🌤️ Weather in Istanbul: **🌦   +4°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **How Deep Is Your Love** by *Calvin Harris* 🎶
+🎧 Currently Listening: **Alo Dayko** by *Cesiminho* 🎶
 
 ---
 
-_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
+_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
 
 ---
