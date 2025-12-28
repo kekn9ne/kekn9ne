@@ -7,6 +7,6 @@
 
 ---
 
-_"Enlightenment is intimacy with all things. — *Dogen*"_
+_"The score never interested me, only the game. — *Mae West*"_
 
 ---
