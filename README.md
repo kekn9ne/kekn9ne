@@ -7,6 +7,6 @@
 
 ---
 
-_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
+_"Fear is a natural reaction to moving closer to the truth. — *Pema Chodron*"_
 
 ---
