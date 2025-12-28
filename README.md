@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found. — *Alexander Pope*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
