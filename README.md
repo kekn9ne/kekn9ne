@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 28 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +7°C**  
+🌤️ Weather in Istanbul: **🌦   +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"The major difference between the big shot and the little shot is the big shot is just a little shot who kept on shooting. — *Zig Ziglar*"_
+_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
 
 ---
