@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, so shall you become.  — *Bruce Lee*"_
+_"The future is the worst thing about the present. — *Gustave Flaubert*"_
 
 ---
