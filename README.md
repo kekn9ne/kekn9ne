@@ -7,6 +7,6 @@
 
 ---
 
-_"Our virtues and our failings are inseparable, like force and matter. When they separate, man is no more.  — *Nikola Tesla*"_
+_"There is no limitations except those we create for ourselves. — *Lolly Daskal*"_
 
 ---
