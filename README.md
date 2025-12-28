@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is one long process of getting tired. — *Samuel Butler*"_
+_"In all chaos there is a cosmos, in all disorder a secret order. — *Carl Jung*"_
 
 ---
