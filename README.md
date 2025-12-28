@@ -7,6 +7,6 @@
 
 ---
 
-_"You give but little when you give of your possessions. It is when you give of yourself that you truly give. — *Kahlil Gibran*"_
+_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
 
 ---
