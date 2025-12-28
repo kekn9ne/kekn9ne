@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
+_"As you think, so shall you become.  — *Bruce Lee*"_
 
 ---
