@@ -7,6 +7,6 @@
 
 ---
 
-_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
+_"If you look for perfection, you'll never be content. — *Leo Tolstoy*"_
 
 ---
