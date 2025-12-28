@@ -7,6 +7,6 @@
 
 ---
 
-_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
+_"Think of yourself as dead. you have lived your life. Now, take what's left, and live it properly. — *Marcus Aurelius*"_
 
 ---
