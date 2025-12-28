@@ -7,6 +7,6 @@
 
 ---
 
-_"No grand idea was ever born in a conference, but a lot of foolish ideas have died there. — *F. Scott Fitzgerald*"_
+_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
 
 ---
