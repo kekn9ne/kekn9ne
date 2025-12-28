@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sana Güvenmiyorum - Dedub Sessions** by *Dedublüman* 🎶
 
 ---
 
-_"The first rule of business; treat others like they want to treat you. — *Charles Dickens*"_
+_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
 
 ---
