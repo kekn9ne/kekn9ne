@@ -7,6 +7,6 @@
 
 ---
 
-_"My sun sets to rise again. — *Robert Browning*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
