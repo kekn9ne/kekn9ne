@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
+_"Words are like Leaves; and where they most abound, Much Fruit of Sense beneath is rarely found. — *Alexander Pope*"_
 
 ---
