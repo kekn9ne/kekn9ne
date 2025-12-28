@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
+_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
 
 ---
