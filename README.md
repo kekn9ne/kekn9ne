@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 28 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **KARA MAMBA (vamo alla mix)** by *Giancana* 🎶
+🎧 Currently Listening: **I WANNA DANCE** by *Batuflex* 🎶
 
 ---
 
-_"You don't have to be great to start, but you have to start to be great.   — *Zig Ziglar*"_
+_"Actions are the seeds of fate. Deeds grow into destiny. — *Harry S. Truman*"_
 
 ---
