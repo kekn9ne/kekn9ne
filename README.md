@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no limitations except those we create for ourselves. — *Lolly Daskal*"_
+_"Far more crucial than what we know or do not know is what we do not want to know. — *Eric Hoffer*"_
 
 ---
