@@ -7,6 +7,6 @@
 
 ---
 
-_"Love never keeps a man from pursuing his destiny. — *Paulo Coelho*"_
+_"Always try to be a little kinder than necessary. — *James Matthew Barrie*"_
 
 ---
