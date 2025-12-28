@@ -7,6 +7,6 @@
 
 ---
 
-_"The more acquaintances you have, the less you know them. — *Chinese Proverb*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
