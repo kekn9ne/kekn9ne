@@ -7,6 +7,6 @@
 
 ---
 
-_"Human behavior flows from three main sources: desire, emotion, and knowledge. — *Plato*"_
+_"The greatest of all mistakes is to do nothing because you think you can only do a little.   — *Zig Ziglar*"_
 
 ---
