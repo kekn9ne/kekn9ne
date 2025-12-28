@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather die on my feet than live on my knees. — *Euripides*"_
+_"It takes a very long time to become young. — *Pablo Picasso*"_
 
 ---
