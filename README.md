@@ -7,6 +7,6 @@
 
 ---
 
-_"In all chaos there is a cosmos, in all disorder a secret order. — *Carl Jung*"_
+_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
 
 ---
