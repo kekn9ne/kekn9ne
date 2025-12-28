@@ -7,6 +7,6 @@
 
 ---
 
-_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
+_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
 
 ---
