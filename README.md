@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Sana Güvenmiyorum - Dedub Sessions** by *Dedublüman* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Perfectionism is simply putting a limit on your future. — *John Eliot*"_
+_"Don't want anything. Then you get everything. — *Seungsahn*"_
 
 ---
