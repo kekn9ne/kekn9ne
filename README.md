@@ -7,6 +7,6 @@
 
 ---
 
-_"If you love life, don't waste time, for time is what life is made up of.  — *Bruce Lee*"_
+_"The glow of one warm thought is to me worth more than money. — *Thomas Jefferson*"_
 
 ---
