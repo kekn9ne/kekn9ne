@@ -7,6 +7,6 @@
 
 ---
 
-_"When you judge others, you do not define them, you define yourself. — *Earl Nightingale*"_
+_"Show me a hero, and I'll write you a tragedy. — *F. Scott Fitzgerald*"_
 
 ---
