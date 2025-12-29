@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
+_"If you love life, don't waste time, for time is what life is made up of.  — *Bruce Lee*"_
 
 ---
