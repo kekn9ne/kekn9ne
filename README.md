@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know, the thing to do is not to get scared, but to learn. — *Ayn Rand*"_
+_"Remembering that you are going to die is the best way I know to avoid the trap of thinking you have something to lose. — *Steve Jobs*"_
 
 ---
