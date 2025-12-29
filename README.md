@@ -7,6 +7,6 @@
 
 ---
 
-_"Get mad, then get over it. — *Colin Powell*"_
+_"When you judge others, you do not define them, you define yourself. — *Earl Nightingale*"_
 
 ---
