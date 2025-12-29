@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
+_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
 
 ---
