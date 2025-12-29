@@ -7,6 +7,6 @@
 
 ---
 
-_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
+_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
 
 ---
