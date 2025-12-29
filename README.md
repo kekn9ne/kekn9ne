@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **Kısa Keleş ll - Method Remix** by *emirodc* 🎶
 
 ---
 
-_"Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry. — *Celestine Chua*"_
+_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
 
 ---
