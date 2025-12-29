@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 29 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +7°C**  
+🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Tamam 2.0** by *Woohox* 🎶
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"We win by helping each other win. — *Jack Butcher*"_
+_"Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry. — *Celestine Chua*"_
 
 ---
