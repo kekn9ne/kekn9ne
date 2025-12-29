@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
+_"Only when you can be extremely pliable and soft can you be extremely hard and strong. — *Zen Proverb*"_
 
 ---
