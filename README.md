@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Kısa Keleş ll - Method Remix** by *emirodc* 🎶
+🎧 Currently Listening: **BATUFLEX** by *Batuflex* 🎶
 
 ---
 
-_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
+_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
 
 ---
