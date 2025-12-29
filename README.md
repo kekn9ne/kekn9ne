@@ -7,6 +7,6 @@
 
 ---
 
-_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
