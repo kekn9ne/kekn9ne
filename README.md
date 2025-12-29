@@ -7,6 +7,6 @@
 
 ---
 
-_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
+_"Let us always meet each other with smile, for the smile is the beginning of love. — *Mother Teresa*"_
 
 ---
