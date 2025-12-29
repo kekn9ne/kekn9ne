@@ -7,6 +7,6 @@
 
 ---
 
-_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
+_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
 
 ---
