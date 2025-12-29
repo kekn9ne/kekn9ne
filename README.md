@@ -7,6 +7,6 @@
 
 ---
 
-_"If you truly expect something to be difficult, it will be. — *Peter A. Cohen*"_
+_"You are today where your thoughts have brought you. — *James Allen*"_
 
 ---
