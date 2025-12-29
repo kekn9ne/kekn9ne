@@ -7,6 +7,6 @@
 
 ---
 
-_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
+_"To lose your temper is only useful once a year. — *Colin R. Davis*"_
 
 ---
