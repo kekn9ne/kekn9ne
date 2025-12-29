@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 29 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +3°C**  
+🌤️ Weather in Istanbul: **☀️   +4°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only when you can be extremely pliable and soft can you be extremely hard and strong. — *Zen Proverb*"_
+_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
 
 ---
