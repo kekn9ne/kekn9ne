@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things are not accomplished by those who yield to trends and fads and popular opinion. — *Jack Kerouac*"_
+_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
 
 ---
