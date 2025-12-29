@@ -7,6 +7,6 @@
 
 ---
 
-_"The more something scares you, the more you should do it. — *Mark Manson*"_
+_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
 
 ---
