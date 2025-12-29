@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
+🎧 Currently Listening: **Tamam 2.0** by *Woohox* 🎶
 
 ---
 
-_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
+_"We win by helping each other win. — *Jack Butcher*"_
 
 ---
