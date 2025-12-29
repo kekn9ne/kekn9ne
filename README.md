@@ -7,6 +7,6 @@
 
 ---
 
-_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
+_"Investing in yourself is the best investment you will ever make. — *Robin Sharma*"_
 
 ---
