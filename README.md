@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet. — *Thich Nhat Hanh*"_
+_"The road to success is always under construction. — *Steve Harvey*"_
 
 ---
