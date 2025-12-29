@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Good judgment comes from experience, and experience comes from bad judgment. — *Rita Mae Brown*"_
+_"We have to walk in a way that we only print peace and serenity on the Earth. Walk as if you are kissing the Earth with your feet. — *Thich Nhat Hanh*"_
 
 ---
