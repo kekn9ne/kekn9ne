@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 29 December 2025**  
-🌤️ Weather in Istanbul: **☀️   +8°C**  
+🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are today where your thoughts have brought you. — *James Allen*"_
+_"Get mad, then get over it. — *Colin Powell*"_
 
 ---
