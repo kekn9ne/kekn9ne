@@ -7,6 +7,6 @@
 
 ---
 
-_"You are the only real obstacle in your path to a fulfilling life. — *Les Brown*"_
+_"Be strong. Be confident. Be the star of your own life. — *Estee Lauder*"_
 
 ---
