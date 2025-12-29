@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 29 December 2025**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ah Sarılar Vah Sarışınlar** by *kadirvibe* 🎶
+🎧 Currently Listening: **KHRBR** by *Ati242* 🎶
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
 
 ---
