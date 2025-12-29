@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
