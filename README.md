@@ -7,6 +7,6 @@
 
 ---
 
-_"Investing in yourself is the best investment you will ever make. — *Robin Sharma*"_
+_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
 
 ---
