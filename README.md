@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be wonderful if you're not afraid of it. — *Charlie Chaplin*"_
+_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
 
 ---
