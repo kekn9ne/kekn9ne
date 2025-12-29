@@ -7,6 +7,6 @@
 
 ---
 
-_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
+_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
 
 ---
