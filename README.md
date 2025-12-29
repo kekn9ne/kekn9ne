@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing good ever comes of violence. — *Martin Luther*"_
+_"If you truly expect something to be difficult, it will be. — *Peter A. Cohen*"_
 
 ---
