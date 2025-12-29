@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
+_"It is in your moments of decision that your destiny is shaped. — *Tony Robbins*"_
 
 ---
