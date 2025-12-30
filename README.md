@@ -7,6 +7,6 @@
 
 ---
 
-_"Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments. — *Ming-Dao Deng*"_
+_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
 
 ---
