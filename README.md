@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't seek, don't avoid, don't expect. Take what comes and be happy. — *Maxime Lagace*"_
+_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
 
 ---
