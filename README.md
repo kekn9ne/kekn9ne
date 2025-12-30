@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 30 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **7777777** by *DEHA INC.* 🎶
 
 ---
 
-_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
+_"Today you are you, that is truer than true. There is no one alive who is you-er than you. — *Dr. Seuss*"_
 
 ---
