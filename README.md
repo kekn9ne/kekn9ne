@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 December 2025**  
 🌤️ Weather in Istanbul: **🌩  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
+_"Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new. — *Brian Tracy*"_
 
 ---
