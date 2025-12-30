@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **D4FT PUNK** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"True prayer has no set form. — *Morihei Ueshiba*"_
+_"Don't seek, don't avoid, don't expect. Take what comes and be happy. — *Maxime Lagace*"_
 
 ---
