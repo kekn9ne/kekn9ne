@@ -7,6 +7,6 @@
 
 ---
 
-_"Curiosity is the most powerful thing you own. Imagination is a force that can actually manifest a reality. — *James Cameron*"_
+_"Few things are more deceptive than memories. — *Carlos Ruiz Zafon*"_
 
 ---
