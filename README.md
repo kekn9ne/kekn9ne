@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
+_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
 
 ---
