@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
+_"Your hardest times often lead to the greatest moments of your life. Keep going. Tough situations build strong people in the end. — *Roy T. Bennett*"_
 
 ---
