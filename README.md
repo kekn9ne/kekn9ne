@@ -7,6 +7,6 @@
 
 ---
 
-_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
+_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
 
 ---
