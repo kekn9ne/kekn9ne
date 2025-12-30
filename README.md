@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is the spiritual experience of living every minute with love, grace and gratitude. — *Denis Waitley*"_
+_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
 
 ---
