@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
 
 ---
