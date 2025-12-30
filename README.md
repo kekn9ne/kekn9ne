@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 31 December 2025**  
-🌤️ Weather in Istanbul: **🌧   +2°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What most people need to learn in life is how to love people and use things instead of using people and loving things. — *Unknown*"_
+_"Take responsibility of your own happiness, never put it in other people's hands. — *Roy T. Bennett*"_
 
 ---
