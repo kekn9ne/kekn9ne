@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
+_"What most people need to learn in life is how to love people and use things instead of using people and loving things. — *Unknown*"_
 
 ---
