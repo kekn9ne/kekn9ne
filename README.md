@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
