@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 December 2025**  
 🌤️ Weather in Istanbul: **🌩  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"We need never be ashamed of our tears. — *Charles Dickens*"_
+_"The hardest arithmetic to master is that which enables us to count our blessings. — *Eric Hoffer*"_
 
 ---
