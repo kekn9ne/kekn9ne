@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 30 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is filled with secrets. You can't learn them all at once. — *Dan Brown*"_
+_"Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  — *Lao Tzu*"_
 
 ---
