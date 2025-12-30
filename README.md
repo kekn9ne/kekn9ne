@@ -7,6 +7,6 @@
 
 ---
 
-_"Few things are more deceptive than memories. — *Carlos Ruiz Zafon*"_
+_"If you don't know, the thing to do is not to get scared, but to learn. — *Ayn Rand*"_
 
 ---
