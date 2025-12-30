@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
+_"Try not to become a man of success, but rather try to become a man of value. — *Albert Einstein*"_
 
 ---
