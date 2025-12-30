@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 30 December 2025**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **🌧   +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Summertime Sadness** by *Lana Del Rey* 🎶
 
 ---
 
-_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
+_"Your mind is infinite, it's your doubts that are limiting. — *Robert Kiyosaki*"_
 
 ---
