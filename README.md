@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **D4FT PUNK** by *EGE!* 🎶
 
 ---
 
-_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
+_"True prayer has no set form. — *Morihei Ueshiba*"_
 
 ---
