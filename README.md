@@ -7,6 +7,6 @@
 
 ---
 
-_"Move out of your comfort zone. You can only grow if you are willing to feel awkward and uncomfortable when you try something new. — *Brian Tracy*"_
+_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
 
 ---
