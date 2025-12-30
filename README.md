@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
+_"Adversity is the tempering of one's mettle. Without it, we cannot know any true meaning in our accomplishments. — *Ming-Dao Deng*"_
 
 ---
