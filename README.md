@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
