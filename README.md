@@ -7,6 +7,6 @@
 
 ---
 
-_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
