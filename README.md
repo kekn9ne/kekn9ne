@@ -7,6 +7,6 @@
 
 ---
 
-_"Try not to become a man of success, but rather try to become a man of value. — *Albert Einstein*"_
+_"The biggest and only critic lives in your perception of people's perception of you rather than people's perception of you. — *Criss Jami*"_
 
 ---
