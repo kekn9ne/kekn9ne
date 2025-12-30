@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
+_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
 
 ---
