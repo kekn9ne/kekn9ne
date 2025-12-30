@@ -7,6 +7,6 @@
 
 ---
 
-_"Whoever is happy will make others happy too. — *Anne Frank*"_
+_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
 
 ---
