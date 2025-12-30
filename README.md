@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 30 December 2025**  
 🌤️ Weather in Istanbul: **🌧   +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Summertime Sadness** by *Lana Del Rey* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Your mind is infinite, it's your doubts that are limiting. — *Robert Kiyosaki*"_
+_"We can either add to our character each day, or we can fritter away our energies in distractions. — *Ming-Dao Deng*"_
 
 ---
