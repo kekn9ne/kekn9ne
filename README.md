@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 31 December 2025**  
-🌤️ Weather in Istanbul: **🌩  +2°C**  
+🌤️ Weather in Istanbul: **🌧   +2°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
 
 ---
