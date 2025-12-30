@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
+_"You have the ability, now apply yourself. — *Benjamin Mays*"_
 
 ---
