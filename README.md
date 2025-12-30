@@ -7,6 +7,6 @@
 
 ---
 
-_"Silence is a source of great strength. — *Lao Tzu*"_
+_"Our happiness depends on the habit of mind we cultivate. — *Norman Vincent Peale*"_
 
 ---
