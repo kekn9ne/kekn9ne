@@ -7,6 +7,6 @@
 
 ---
 
-_"Being deeply loved by someone gives you strength, while loving someone deeply gives you courage.  — *Lao Tzu*"_
+_"The reward of suffering is experience. — *Harry S. Truman*"_
 
 ---
