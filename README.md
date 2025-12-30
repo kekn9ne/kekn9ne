@@ -7,6 +7,6 @@
 
 ---
 
-_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
+_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
 
 ---
