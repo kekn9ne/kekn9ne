@@ -7,6 +7,6 @@
 
 ---
 
-_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
+_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
 
 ---
