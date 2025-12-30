@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness is the absence of light. — *Kamal Ravikant*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
