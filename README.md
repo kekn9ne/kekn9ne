@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 31 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +4°C**  
+🌤️ Weather in Istanbul: **☀️   +4°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
+_"In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better. — *Spencer Johnson*"_
 
 ---
