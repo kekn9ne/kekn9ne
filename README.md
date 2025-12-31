@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 31 December 2025**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities. — *Charles Dickens*"_
+_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
 
 ---
