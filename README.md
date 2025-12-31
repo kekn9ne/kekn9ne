@@ -7,6 +7,6 @@
 
 ---
 
-_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
+_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
 
 ---
