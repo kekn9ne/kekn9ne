@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way to 'find out if it will work out' is to do it. — *Simon Sinek*"_
+_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
 
 ---
