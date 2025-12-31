@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — *John Lennon*"_
+_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
 
 ---
