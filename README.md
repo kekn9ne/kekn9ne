@@ -7,6 +7,6 @@
 
 ---
 
-_"Time and health are two precious assets that we don't recognize and appreciate until they have been depleted.  — *Denis Waitley*"_
+_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
 
 ---
