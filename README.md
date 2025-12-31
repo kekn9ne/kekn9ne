@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day! — *Og Mandino*"_
+_"Remain calm, serene, always in command of yourself. You will then find out how easy it is to get along.  — *Paramahansa Yogananda*"_
 
 ---
