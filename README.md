@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the absence of judgment. — *Dalai Lama*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
 
 ---
