@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you've ever wanted is on the other side of fear. — *George Addair*"_
+_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
 
 ---
