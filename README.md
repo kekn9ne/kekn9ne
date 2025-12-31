@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"Man's character is his fate. — *Heraclitus*"_
 
 ---
