@@ -7,6 +7,6 @@
 
 ---
 
-_"Life reflects your own thoughts back to you. — *Napoleon Hill*"_
+_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
 
 ---
