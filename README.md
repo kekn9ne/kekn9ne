@@ -7,6 +7,6 @@
 
 ---
 
-_"You change the world by being yourself. — *Yoko Ono*"_
+_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
 
 ---
