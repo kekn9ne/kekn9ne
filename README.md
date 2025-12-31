@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
+_"To succeed takes more than the desire to win. It also takes the acceptance that we could fail. — *Simon Sinek*"_
 
 ---
