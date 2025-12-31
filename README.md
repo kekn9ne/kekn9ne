@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you do, not what you say you'll do. — *Carl Jung*"_
+_"To understand the heart and mind of a person, look not at what he has already achieved, but at what he aspires to. — *Kahlil Gibran*"_
 
 ---
