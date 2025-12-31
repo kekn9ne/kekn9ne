@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
 
 ---
