@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can, does. — *George Bernard Shaw*"_
+_"You change the world by being yourself. — *Yoko Ono*"_
 
 ---
