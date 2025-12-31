@@ -7,6 +7,6 @@
 
 ---
 
-_"In a world that is constantly changing, it is to our advantage to learn how to adapt and enjoy something better. — *Spencer Johnson*"_
+_"Many have died; you also will die. The drum of death is being beaten. The world has fallen in love with a dream. Only sayings of the wise will remain. — *Kabir*"_
 
 ---
