@@ -7,6 +7,6 @@
 
 ---
 
-_"All I can do is be me, whoever that is. — *Bob Dylan*"_
+_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
 
 ---
