@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
+_"Anyone who wants to achieve a dream must stay strong, focused and steady. — *Estee Lauder*"_
 
 ---
