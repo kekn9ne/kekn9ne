@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is ten percent what you experience and ninety percent how you respond to it. — *Unknown*"_
+_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
 
 ---
