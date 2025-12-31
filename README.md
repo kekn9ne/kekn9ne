@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 31 December 2025**  
-🌤️ Weather in Istanbul: **⛅️  +3°C**  
+🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **Ölüme Davet - Remix** by *Decrat* 🎶
 
 ---
 
-_"To succeed takes more than the desire to win. It also takes the acceptance that we could fail. — *Simon Sinek*"_
+_"We must cultivate our garden.  — *Voltaire*"_
 
 ---
