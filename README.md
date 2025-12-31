@@ -7,6 +7,6 @@
 
 ---
 
-_"True it is, we only hate those whom we do not know. — *Andrew Carnegie*"_
+_"You are not the drop in the ocean, but the ocean in the drop. — *Deepak Chopra*"_
 
 ---
