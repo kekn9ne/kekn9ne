@@ -7,6 +7,6 @@
 
 ---
 
-_"There is little success where there is little laughter. — *Andrew Carnegie*"_
+_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
 
 ---
