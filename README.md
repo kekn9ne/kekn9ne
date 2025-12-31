@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest work that kindness does to others is that it makes them kind themselves. — *Amelia Earhart*"_
+_"There is little success where there is little laughter. — *Andrew Carnegie*"_
 
 ---
