@@ -7,6 +7,6 @@
 
 ---
 
-_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
+_"Learn from the mistakes of others. You can't live long enough to make them all yourself. — *Eleanor Roosevelt*"_
 
 ---
