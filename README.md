@@ -7,6 +7,6 @@
 
 ---
 
-_"The shoe that fits one person pinches another; there is no recipe for living that suits all cases. — *Carl Jung*"_
+_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
 
 ---
