@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"People who bite the hand that feeds them usually lick the boot that kicks them. — *Eric Hoffer*"_
 
 ---
