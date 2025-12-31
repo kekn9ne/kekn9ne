@@ -7,6 +7,6 @@
 
 ---
 
-_"A man has to learn that he cannot command things but that he can command himself; that he cannot coerce the wills of others but that he can mold and master his own will. — *James Allen*"_
+_"Receive without complaint, Work with fate. — *Ming-Dao Deng*"_
 
 ---
