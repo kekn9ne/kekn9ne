@@ -7,6 +7,6 @@
 
 ---
 
-_"When you dance, your purpose is not to get to a certain place on the floor. It's to enjoy each step along the way.   — *Wayne Dyer*"_
+_"People often say that motivation doesn't last. Well, neither does bathing - that's why we recommend it daily. — *Zig Ziglar*"_
 
 ---
