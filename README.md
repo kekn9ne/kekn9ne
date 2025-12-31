@@ -7,6 +7,6 @@
 
 ---
 
-_"If you take responsibility for yourself you will develop a hunger to accomplish your dream. — *Les Brown*"_
+_"Do it with passion, or not at all. — *Rosa Nouchette Carey*"_
 
 ---
