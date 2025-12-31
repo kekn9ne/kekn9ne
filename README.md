@@ -7,6 +7,6 @@
 
 ---
 
-_"Victims recite problems, leaders provide solutions. — *Robin Sharma*"_
+_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
 
 ---
