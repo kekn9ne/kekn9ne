@@ -7,6 +7,6 @@
 
 ---
 
-_"Man's character is his fate. — *Heraclitus*"_
+_"The important thing is not what one is born with but what use one makes of that equipment. — *Alfred Adler*"_
 
 ---
