@@ -7,6 +7,6 @@
 
 ---
 
-_"Without education, we are in a horrible and deadly danger of taking educated people seriously. — *Gilbert Chesterton*"_
+_"I put my heart and soul into my work, and I have lost my mind in the process. — *Vincent van Gogh*"_
 
 ---
