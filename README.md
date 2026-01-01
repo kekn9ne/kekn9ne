@@ -7,6 +7,6 @@
 
 ---
 
-_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
+_"Waste no more time arguing about what a good man should be. Be one. — *Marcus Aurelius*"_
 
 ---
