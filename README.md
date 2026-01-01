@@ -7,6 +7,6 @@
 
 ---
 
-_"No one can hurt you without your consent. — *Eleanor Roosevelt*"_
+_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
 
 ---
