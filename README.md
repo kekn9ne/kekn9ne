@@ -7,6 +7,6 @@
 
 ---
 
-_"I am thankful to all those who said no. It's because of them, I did it myself.   — *Wayne Dyer*"_
+_"When at last you are come to the ocean of happiness, do not go back thirsty. — *Kabir*"_
 
 ---
