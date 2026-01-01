@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
+_"What people need and what they want may be very different. — *Elbert Hubbard*"_
 
 ---
