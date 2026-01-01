@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is letting it be. Letting life flow, letting emotions flow through you. — *Kamal Ravikant*"_
+_"Live, travel, adventure, bless, and don't be sorry.   — *Jack Kerouac*"_
 
 ---
