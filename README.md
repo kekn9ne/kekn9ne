@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is what you make it. Always has been, always will be. — *Eleanor Roosevelt*"_
+_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
 
 ---
