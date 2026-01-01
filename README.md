@@ -7,6 +7,6 @@
 
 ---
 
-_"Most of us will do anything to avoid facing ourselves. — *Lolly Daskal*"_
+_"You can only lose something that you have, but you cannot lose something that you are. — *Eckhart Tolle*"_
 
 ---
