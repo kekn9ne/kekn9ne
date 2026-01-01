@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't pretend to know everything; I just only speak on matters I know I'll win. — *Criss Jami*"_
+_"Never say never, because limits, like fears, are often just an illusion. — *Michael Jordan*"_
 
 ---
