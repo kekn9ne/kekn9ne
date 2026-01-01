@@ -7,6 +7,6 @@
 
 ---
 
-_"The more we have the less we own. — *Meister Eckhart*"_
+_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
 
 ---
