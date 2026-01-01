@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 01 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **BYE BYE** by *Era7capone* 🎶
+🎧 Currently Listening: **NEYSE** by *UZI* 🎶
 
 ---
 
-_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
+_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
 
 ---
