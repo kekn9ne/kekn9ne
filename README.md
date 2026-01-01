@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
+_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
 
 ---
