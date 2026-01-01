@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
