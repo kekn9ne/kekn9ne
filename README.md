@@ -7,6 +7,6 @@
 
 ---
 
-_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
