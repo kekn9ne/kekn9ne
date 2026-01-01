@@ -7,6 +7,6 @@
 
 ---
 
-_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
