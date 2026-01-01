@@ -7,6 +7,6 @@
 
 ---
 
-_"I'd rather welcome change than cling to the past. — *Robert Kiyosaki*"_
+_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
 
 ---
