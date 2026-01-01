@@ -7,6 +7,6 @@
 
 ---
 
-_"When you want something in life, you just gotta reach out and grab it. — *Christopher McCandless*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
