@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 01 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BYE BYE** by *Era7capone* 🎶
 
 ---
 
-_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
+_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
 
 ---
