@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 01 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Zaza** by *Chiko* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
+_"Peace is letting it be. Letting life flow, letting emotions flow through you. — *Kamal Ravikant*"_
 
 ---
