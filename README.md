@@ -7,6 +7,6 @@
 
 ---
 
-_"What people need and what they want may be very different. — *Elbert Hubbard*"_
+_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
 
 ---
