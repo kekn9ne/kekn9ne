@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 02 January 2026**  
-🌤️ Weather in Istanbul: **☀️   +2°C**  
+🌤️ Weather in Istanbul: **☀️   +3°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"The secret of getting ahead is getting started. — *Mark Twain*"_
 
 ---
