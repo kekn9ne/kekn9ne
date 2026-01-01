@@ -7,6 +7,6 @@
 
 ---
 
-_"If you genuinely want something, don't wait for it - teach yourself. — *Gurbaksh Chahal*"_
+_"We're responsible for everything that happens to us. — *Yanni*"_
 
 ---
