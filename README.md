@@ -7,6 +7,6 @@
 
 ---
 
-_"Surround yourself with only people who are going to lift you higher.  — *Oprah Winfrey*"_
+_"Be true to yourself, help others, make each day your masterpiece — *John Wooden*"_
 
 ---
