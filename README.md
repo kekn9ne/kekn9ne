@@ -7,6 +7,6 @@
 
 ---
 
-_"You can only lose something that you have, but you cannot lose something that you are. — *Eckhart Tolle*"_
+_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
 
 ---
