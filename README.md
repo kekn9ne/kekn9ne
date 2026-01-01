@@ -7,6 +7,6 @@
 
 ---
 
-_"In the middle of chaos lies opportunity.   — *Bruce Lee*"_
+_"The biggest adventure you can ever take is to live the life of your dreams.  — *Oprah Winfrey*"_
 
 ---
