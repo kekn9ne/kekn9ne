@@ -7,6 +7,6 @@
 
 ---
 
-_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
