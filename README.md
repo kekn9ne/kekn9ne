@@ -7,6 +7,6 @@
 
 ---
 
-_"Live, travel, adventure, bless, and don't be sorry.   — *Jack Kerouac*"_
+_"If you genuinely want something, don't wait for it - teach yourself. — *Gurbaksh Chahal*"_
 
 ---
