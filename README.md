@@ -7,6 +7,6 @@
 
 ---
 
-_"Only the educated are free. — *Epictetus*"_
+_"Most of us will do anything to avoid facing ourselves. — *Lolly Daskal*"_
 
 ---
