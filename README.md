@@ -7,6 +7,6 @@
 
 ---
 
-_"How much pain they have cost us, the evils which have never happened. — *Thomas Jefferson*"_
+_"Only the educated are free. — *Epictetus*"_
 
 ---
