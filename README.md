@@ -7,6 +7,6 @@
 
 ---
 
-_"I put my heart and soul into my work, and I have lost my mind in the process. — *Vincent van Gogh*"_
+_"Opportunities don't often come along. So, when they do, you have to grab them. — *Audrey Hepburn*"_
 
 ---
