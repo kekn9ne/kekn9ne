@@ -7,6 +7,6 @@
 
 ---
 
-_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
+_"Turn your wounds into wisdom.  — *Oprah Winfrey*"_
 
 ---
