@@ -7,6 +7,6 @@
 
 ---
 
-_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
+_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
 
 ---
