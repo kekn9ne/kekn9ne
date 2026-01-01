@@ -7,6 +7,6 @@
 
 ---
 
-_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
