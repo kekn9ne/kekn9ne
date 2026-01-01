@@ -7,6 +7,6 @@
 
 ---
 
-_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
+_"When you want something in life, you just gotta reach out and grab it. — *Christopher McCandless*"_
 
 ---
