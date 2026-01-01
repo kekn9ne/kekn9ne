@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 01 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **NEYSE** by *UZI* 🎶
+🎧 Currently Listening: **Zaza** by *Chiko* 🎶
 
 ---
 
-_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
+_"The art of being happy lies in the power of extracting happiness from common things. — *Henry Ward Beecher*"_
 
 ---
