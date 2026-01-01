@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal is not to show how great you are to others, but how vulnerable you are to yourself. — *Maxime Lagace*"_
+_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
 
 ---
