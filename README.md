@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of getting ahead is getting started. — *Mark Twain*"_
+_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
 
 ---
