@@ -7,6 +7,6 @@
 
 ---
 
-_"Be true to yourself, help others, make each day your masterpiece — *John Wooden*"_
+_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
 
 ---
