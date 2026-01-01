@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't pretend to know everything; I just only speak on matters I know I'll win. — *Criss Jami*"_
+_"Take time like the river that never grows stale. Keep going and steady. No hurry, no rush. — *Rumi*"_
 
 ---
