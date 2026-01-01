@@ -7,6 +7,6 @@
 
 ---
 
-_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
+_"This is such a short and precious life that it's really important that you don't spend it being unhappy. — *Naval Ravikant*"_
 
 ---
