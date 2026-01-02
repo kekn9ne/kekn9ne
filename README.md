@@ -7,6 +7,6 @@
 
 ---
 
-_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
+_"Fear is a natural reaction to moving closer to the truth. — *Pema Chodron*"_
 
 ---
