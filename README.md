@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
+_"Quality means doing it right when no one is looking. — *Henry Ford*"_
 
 ---
