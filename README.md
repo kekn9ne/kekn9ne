@@ -7,6 +7,6 @@
 
 ---
 
-_"The season of failure is the best time for sowing the seeds of success.  — *Paramahansa Yogananda*"_
+_"Every man desires to live long, but no man wishes to be old. — *Jonathan Swift*"_
 
 ---
