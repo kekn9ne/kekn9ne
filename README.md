@@ -7,6 +7,6 @@
 
 ---
 
-_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
+_"Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases. — *Sathya Sai Baba*"_
 
 ---
