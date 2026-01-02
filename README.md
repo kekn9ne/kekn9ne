@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
 
 ---
