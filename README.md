@@ -7,6 +7,6 @@
 
 ---
 
-_"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road. — *Henry Ward Beecher*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
