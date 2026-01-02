@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
