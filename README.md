@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 02 January 2026**  
 🌤️ Weather in Istanbul: **☁️   +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YAZ GELDİ** by *Lvbel C5* 🎶
 
 ---
 
-_"You only live once, but if you do it right, once is enough. — *Mae West*"_
+_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
 
 ---
