@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"We make a living by what we get, but we make a life by what we give. — *Unknown*"_
 
 ---
