@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a balance of holding on and letting go. — *Rumi*"_
+_"Youth has no age. — *Pablo Picasso*"_
 
 ---
