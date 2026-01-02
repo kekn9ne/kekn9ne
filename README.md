@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 02 January 2026**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **VIP - SLOWED Version** by *Tuğrul Bektaş* 🎶
 
 ---
 
-_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
+_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
 
 ---
