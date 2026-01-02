@@ -7,6 +7,6 @@
 
 ---
 
-_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
+_"If you read a lot of books, you're considered well-read. But if you watch a lot of TV, you're not considered well-viewed. — *Lily Tomlin*"_
 
 ---
