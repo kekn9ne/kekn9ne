@@ -7,6 +7,6 @@
 
 ---
 
-_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
+_"Belief creates the actual fact. — *William James*"_
 
 ---
