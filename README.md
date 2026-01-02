@@ -7,6 +7,6 @@
 
 ---
 
-_"I am always doing that which I can not do, in order that I may learn how to do it. — *Pablo Picasso*"_
+_"There are no differences but differences of degree between different degrees of difference and no difference. — *William James*"_
 
 ---
