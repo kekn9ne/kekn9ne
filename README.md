@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
+_"Silence is a source of great strength. — *Lao Tzu*"_
 
 ---
