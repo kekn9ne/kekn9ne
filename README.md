@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise accomplish all that they want without arousing the envy or scorn of others. — *Ming-Dao Deng*"_
+_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
 
 ---
