@@ -7,6 +7,6 @@
 
 ---
 
-_"No great mind has ever existed without a touch of madness. — *Aristotle*"_
+_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
 
 ---
