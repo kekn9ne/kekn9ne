@@ -7,6 +7,6 @@
 
 ---
 
-_"Belief creates the actual fact. — *William James*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
