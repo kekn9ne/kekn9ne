@@ -7,6 +7,6 @@
 
 ---
 
-_"Belief creates the actual fact. — *William James*"_
+_"A random act of kindness, no matter how small, can make a tremendous impact on someone else's life. — *Roy T. Bennett*"_
 
 ---
