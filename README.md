@@ -7,6 +7,6 @@
 
 ---
 
-_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
+_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
 
 ---
