@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 02 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **BIA** by *KAVAK* 🎶
+🎧 Currently Listening: **Ölüme Davet - Remix** by *Decrat* 🎶
 
 ---
 
-_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
+_"Turn your face to the sun, as flowers know how to do. — *Ming-Dao Deng*"_
 
 ---
