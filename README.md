@@ -7,6 +7,6 @@
 
 ---
 
-_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
+_"The wise accomplish all that they want without arousing the envy or scorn of others. — *Ming-Dao Deng*"_
 
 ---
