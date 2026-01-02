@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 02 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ölüme Davet - Remix** by *Decrat* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Turn your face to the sun, as flowers know how to do. — *Ming-Dao Deng*"_
+_"The pessimist sees difficulty in every opportunity. The optimist sees opportunity in every difficulty. — *Winston Churchill*"_
 
 ---
