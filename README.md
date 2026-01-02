@@ -7,6 +7,6 @@
 
 ---
 
-_"They who have conquered doubt and fear have conquered failure. — *James Allen*"_
+_"All has not been said and never will be. — *Samuel Beckett*"_
 
 ---
