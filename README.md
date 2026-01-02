@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"You can calculate the worth of a man by the number of his enemies. — *Gustave Flaubert*"_
 
 ---
