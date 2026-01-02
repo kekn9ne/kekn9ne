@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
+_"A person without a sense of humor is like a wagon without springs, jolted by every pebble in the road. — *Henry Ward Beecher*"_
 
 ---
