@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
+_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
 
 ---
