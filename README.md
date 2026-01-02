@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 02 January 2026**  
-🌤️ Weather in Istanbul: **☁️   +7°C**  
+🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **YAZ GELDİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
+_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
 
 ---
