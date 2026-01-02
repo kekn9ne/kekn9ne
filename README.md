@@ -7,6 +7,6 @@
 
 ---
 
-_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
