@@ -7,6 +7,6 @@
 
 ---
 
-_"Where we fall are the stepping-stones for our journey. — *Lolly Daskal*"_
+_"It's easier to lose than to win.   — *Wayne Gretzky*"_
 
 ---
