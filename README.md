@@ -7,6 +7,6 @@
 
 ---
 
-_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
+_"Life is a balance of holding on and letting go. — *Rumi*"_
 
 ---
