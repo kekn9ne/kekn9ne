@@ -7,6 +7,6 @@
 
 ---
 
-_"What the mind can conceive and believe, and the heart desire, you can achieve. — *Norman Vincent Peale*"_
+_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
 
 ---
