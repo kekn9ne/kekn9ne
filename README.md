@@ -7,6 +7,6 @@
 
 ---
 
-_"Just throw away all thoughts of imaginary things, and stand firm in that which you are. — *Kabir*"_
+_"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse. — *Alfred Adler*"_
 
 ---
