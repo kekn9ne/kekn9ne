@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
+_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
 
 ---
