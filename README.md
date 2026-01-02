@@ -7,6 +7,6 @@
 
 ---
 
-_"There are only two ways to live your life. One is as if nothing is a miracle. The other is as if everything is a miracle. — *Albert Einstein*"_
+_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
 
 ---
