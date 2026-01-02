@@ -7,6 +7,6 @@
 
 ---
 
-_"People do not decide their futures, they decide their habits and their habits decide their futures. — *Gary Keller*"_
+_"Help others and give something back. — *Arnold Schwarzenegger*"_
 
 ---
