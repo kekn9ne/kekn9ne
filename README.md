@@ -7,6 +7,6 @@
 
 ---
 
-_"Absurdity is the ecstasy of intellectualism. — *Criss Jami*"_
+_"What the mind can conceive and believe, and the heart desire, you can achieve. — *Norman Vincent Peale*"_
 
 ---
