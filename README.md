@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 02 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BIA** by *KAVAK* 🎶
 
 ---
 
-_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
