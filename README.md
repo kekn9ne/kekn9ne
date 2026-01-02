@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is not for all men, but for those who seek it. — *Ayn Rand*"_
+_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
 
 ---
