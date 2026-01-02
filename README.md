@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the willingness to engage in a risk-taking behavior regardless of whether the consequences are unknown or possibly adverse. — *Alfred Adler*"_
+_"Amateurs sit and wait for inspiration, the rest of us just get up and got to work. — *Stephen King*"_
 
 ---
