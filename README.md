@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger, ego, jealousy are the biggest diseases,Keep yourself aloof from these three diseases. — *Sathya Sai Baba*"_
+_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
 
 ---
