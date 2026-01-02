@@ -7,6 +7,6 @@
 
 ---
 
-_"All has not been said and never will be. — *Samuel Beckett*"_
+_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
 
 ---
