@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"If you don't know where you're going, you will probably end up somewhere else. — *Laurence J. Peter*"_
 
 ---
