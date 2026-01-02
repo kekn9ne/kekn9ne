@@ -7,6 +7,6 @@
 
 ---
 
-_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
+_"You only live once, but if you do it right, once is enough. — *Mae West*"_
 
 ---
