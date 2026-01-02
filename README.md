@@ -7,6 +7,6 @@
 
 ---
 
-_"Quality means doing it right when no one is looking. — *Henry Ford*"_
+_"Your happiness is what truly matters most. Do what you have to do in order to be happy. — *Brian Tracy*"_
 
 ---
