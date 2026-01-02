@@ -3,7 +3,7 @@
 🗓️ Today is: **Friday, 02 January 2026**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **VIP - SLOWED Version** by *Tuğrul Bektaş* 🎶
+🎧 Currently Listening: **10** by *Tayroa* 🎶
 
 ---
 
