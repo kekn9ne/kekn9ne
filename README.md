@@ -7,6 +7,6 @@
 
 ---
 
-_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
+_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
 
 ---
