@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 03 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bu Sefer Sorun Bende** by *Sokrat St* 🎶
 
 ---
 
-_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
