@@ -7,6 +7,6 @@
 
 ---
 
-_"Your mind is infinite, it's your doubts that are limiting. — *Robert Kiyosaki*"_
+_"I don't pretend to know everything; I just only speak on matters I know I'll win. — *Criss Jami*"_
 
 ---
