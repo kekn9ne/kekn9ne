@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 03 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Daddy Issues - Slowed** by *sanny* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The greatest step towards a life of simplicity is to learn to let go. — *Steve Maraboli*"_
+_"Where does a thought go when it's forgotten? — *Sigmund Freud*"_
 
 ---
