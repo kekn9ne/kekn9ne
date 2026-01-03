@@ -7,6 +7,6 @@
 
 ---
 
-_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
+_"Every day is an opportunity to a make a new happy ending. — *Jonathan Swift*"_
 
 ---
