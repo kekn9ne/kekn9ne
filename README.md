@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and devotion lead to bravery. Bravery leads to the spirit of self-sacrifice. The spirit of self-sacrifice creates trust in the power of love. — *Morihei Ueshiba*"_
+_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
 
 ---
