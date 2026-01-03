@@ -7,6 +7,6 @@
 
 ---
 
-_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
+_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
 
 ---
