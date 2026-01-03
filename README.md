@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 03 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Flow365 - Flow360** by *Kava* 🎶
 
 ---
 
-_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
+_"Art is the signature of civilizations.  — *Beverly Sills*"_
 
 ---
