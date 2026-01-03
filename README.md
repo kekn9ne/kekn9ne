@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 04 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Yıldızlara Doğru** by *yigitflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"He who is untrue to his own cause cannot command the respect of others. — *Albert Einstein*"_
+_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
 
 ---
