@@ -7,6 +7,6 @@
 
 ---
 
-_"We must accept finite disappointment, but never lose infinite hope. — *Martin Luther King, Jr.*"_
+_"Dreams are the royal road to the unconscious.  — *Sigmund Freud*"_
 
 ---
