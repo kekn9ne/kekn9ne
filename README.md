@@ -7,6 +7,6 @@
 
 ---
 
-_"Work is always an antidote to depression. — *Eleanor Roosevelt*"_
+_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
 
 ---
