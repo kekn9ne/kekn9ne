@@ -7,6 +7,6 @@
 
 ---
 
-_"Only the educated are free. — *Epictetus*"_
+_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
 
 ---
