@@ -7,6 +7,6 @@
 
 ---
 
-_"A goal is a dream with a deadline. — *Napoleon Hill*"_
+_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
 
 ---
