@@ -7,6 +7,6 @@
 
 ---
 
-_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
+_"It is not enough to win a war; it is more important to organize the peace. — *Aristotle*"_
 
 ---
