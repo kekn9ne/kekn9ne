@@ -7,6 +7,6 @@
 
 ---
 
-_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
+_"No great discovery was ever made without a bold guess.  — *Isaac Newton*"_
 
 ---
