@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
+_"The only limits in our life are those we impose on ourselves. — *Bob Proctor*"_
 
 ---
