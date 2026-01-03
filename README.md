@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
 
 ---
