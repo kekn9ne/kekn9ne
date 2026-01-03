@@ -7,6 +7,6 @@
 
 ---
 
-_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
