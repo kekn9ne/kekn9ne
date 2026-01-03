@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
+_"The shoe that fits one person pinches another; there is no recipe for living that suits all cases. — *Carl Jung*"_
 
 ---
