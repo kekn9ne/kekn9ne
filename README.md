@@ -7,6 +7,6 @@
 
 ---
 
-_"No great discovery was ever made without a bold guess.  — *Isaac Newton*"_
+_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
 
 ---
