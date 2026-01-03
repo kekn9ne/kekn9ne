@@ -7,6 +7,6 @@
 
 ---
 
-_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
+_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
 
 ---
