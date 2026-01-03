@@ -7,6 +7,6 @@
 
 ---
 
-_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
+_"To live outside the law, you must be honest.  — *Bob Dylan*"_
 
 ---
