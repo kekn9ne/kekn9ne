@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not enough to win a war; it is more important to organize the peace. — *Aristotle*"_
+_"Work is always an antidote to depression. — *Eleanor Roosevelt*"_
 
 ---
