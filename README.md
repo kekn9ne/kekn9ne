@@ -7,6 +7,6 @@
 
 ---
 
-_"Duty makes us do things well, but love makes us do them beautifully.   — *Zig Ziglar*"_
+_"A goal is a dream with a deadline. — *Napoleon Hill*"_
 
 ---
