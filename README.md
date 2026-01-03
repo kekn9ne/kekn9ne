@@ -7,6 +7,6 @@
 
 ---
 
-_"Death is not sad; the sad thing is that most people don't really live at all. — *Dan Millman*"_
+_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
 
 ---
