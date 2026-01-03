@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not absentminded. It is the presence of mind that makes me unaware of everything else. — *Gilbert Chesterton*"_
+_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
 
 ---
