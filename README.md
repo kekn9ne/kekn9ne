@@ -7,6 +7,6 @@
 
 ---
 
-_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
+_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
 
 ---
