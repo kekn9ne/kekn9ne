@@ -7,6 +7,6 @@
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"Your mind is infinite, it's your doubts that are limiting. — *Robert Kiyosaki*"_
 
 ---
