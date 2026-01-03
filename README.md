@@ -7,6 +7,6 @@
 
 ---
 
-_"Leaders spend 5% of their time on the problem & 95% of their time on the solution. Get over it & crush it! — *Tony Robbins*"_
+_"Continuous effort - not strength or intelligence - is the key to unlocking our potential. — *Winston Churchill*"_
 
 ---
