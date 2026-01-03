@@ -7,6 +7,6 @@
 
 ---
 
-_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
+_"Any thought that is passed on to the subconscious often enough and convincingly enough is finally accepted. — *Robert Collier*"_
 
 ---
