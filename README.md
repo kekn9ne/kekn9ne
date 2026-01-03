@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember that the best relationship is one in which your love for each other exceeds your need for each other. — *Dalai Lama*"_
+_"Never to suffer would never to have been blessed. — *Edgar Allan Poe*"_
 
 ---
