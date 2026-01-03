@@ -7,6 +7,6 @@
 
 ---
 
-_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
+_"The greatest deception men suffer is from their own opinions. — *Leonardo da Vinci*"_
 
 ---
