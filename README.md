@@ -7,6 +7,6 @@
 
 ---
 
-_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
+_"Some people are old at 18 and some are young at 90. Time is a concept that humans created. — *Yoko Ono*"_
 
 ---
