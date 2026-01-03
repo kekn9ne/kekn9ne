@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 03 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"At the center of your being you have the answer; you know who you are and you know what you want. — *Lao Tzu*"_
+_"Cherish forever what makes you unique, cuz you're really a yawn if it goes. — *Bette Midler*"_
 
 ---
