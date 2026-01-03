@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing gives one person so much advantage over another as to remain always cool and unruffled under all circumstances. — *Thomas Jefferson*"_
+_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
 
 ---
