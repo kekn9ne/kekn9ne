@@ -7,6 +7,6 @@
 
 ---
 
-_"I don't pretend to know everything; I just only speak on matters I know I'll win. — *Criss Jami*"_
+_"Muddy water is best cleared by leaving it alone. — *Alan Watts*"_
 
 ---
