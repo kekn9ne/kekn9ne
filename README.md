@@ -7,6 +7,6 @@
 
 ---
 
-_"We are willing to believe anything other than the truth. — *Carlos Ruiz Zafon*"_
+_"Champions keep playing until they get it right. — *Billie Jean King*"_
 
 ---
