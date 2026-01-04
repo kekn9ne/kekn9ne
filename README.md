@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
 
 ---
