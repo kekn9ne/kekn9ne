@@ -7,6 +7,6 @@
 
 ---
 
-_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
+_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
 
 ---
