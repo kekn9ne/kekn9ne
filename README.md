@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
+_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
 
 ---
