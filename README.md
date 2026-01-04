@@ -7,6 +7,6 @@
 
 ---
 
-_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
+_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
 
 ---
