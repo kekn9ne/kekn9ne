@@ -7,6 +7,6 @@
 
 ---
 
-_"There are only encounters in history. There are no accidents. — *Pablo Picasso*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
