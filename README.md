@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 04 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☁️   +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"One of the oldest human needs is having someone to wonder where you are when you don't come home at night.  — *Margaret Mead*"_
+_"It is easier to fight for one's principles than to live up to them.  — *Alfred Adler*"_
 
 ---
