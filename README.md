@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 04 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **☁️   +12°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The greatest step towards a life of simplicity is to learn to let go. — *Steve Maraboli*"_
+_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
 
 ---
