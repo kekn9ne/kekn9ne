@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 04 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
 
 ---
 
-_"To know your Enemy, you must become your Enemy. — *Sun Tzu*"_
+_"Wheresoever you go, go with all your heart. — *Confucius*"_
 
 ---
