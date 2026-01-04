@@ -7,6 +7,6 @@
 
 ---
 
-_"What one does is what counts. Not what one had the intention of doing. — *Pablo Picasso*"_
+_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
 
 ---
