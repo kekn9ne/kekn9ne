@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
+_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
 
 ---
