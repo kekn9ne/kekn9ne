@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 05 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Güldüğün Gün** by *Wegh* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Productize your perspective. — *Jack Butcher*"_
+_"Nothing has more strength than dire necessity. — *Euripides*"_
 
 ---
