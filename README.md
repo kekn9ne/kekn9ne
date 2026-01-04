@@ -7,6 +7,6 @@
 
 ---
 
-_"All know the way; few actually walk it.  — *Bodhidharma*"_
+_"Imagination is the true magic carpet. — *Norman Vincent Peale*"_
 
 ---
