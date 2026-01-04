@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
 
 ---
