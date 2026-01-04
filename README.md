@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
+_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
 
 ---
