@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has a sense of humor. If you don't laugh at jokes, you probably laugh at opinions. — *Criss Jami*"_
+_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
 
 ---
