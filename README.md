@@ -7,6 +7,6 @@
 
 ---
 
-_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
+_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
 
 ---
