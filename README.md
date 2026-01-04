@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 04 January 2026**  
-🌤️ Weather in Istanbul: **☁️   +12°C**  
+🌤️ Weather in Istanbul: **☁️   +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
+_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
 
 ---
