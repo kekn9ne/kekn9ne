@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
+_"All know the way; few actually walk it.  — *Bodhidharma*"_
 
 ---
