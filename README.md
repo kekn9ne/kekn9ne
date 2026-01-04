@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 04 January 2026**  
 🌤️ Weather in Istanbul: **☀️   +15°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
+_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
 
 ---
