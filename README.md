@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
