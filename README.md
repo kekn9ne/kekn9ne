@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"You become a worrier by practicing worry. You become free of worry by practicing the opposite. — *Norman Vincent Peale*"_
 
 ---
