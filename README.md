@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall never be disappointed. — *Alexander Pope*"_
+_"When you judge another, you do not define them, you define yourself — *Wayne Dyer*"_
 
 ---
