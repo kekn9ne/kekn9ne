@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 04 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ELMAS** by *Luciano* 🎶
+🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
 
 ---
 
-_"Wheresoever you go, go with all your heart. — *Confucius*"_
+_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
 
 ---
