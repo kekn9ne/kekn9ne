@@ -7,6 +7,6 @@
 
 ---
 
-_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
+_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
 
 ---
