@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 04 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The dead receive more flowers than the living because regret is stronger than gratitude. — *Anne Frank*"_
+_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
 
 ---
