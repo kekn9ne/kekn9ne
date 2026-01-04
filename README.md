@@ -7,6 +7,6 @@
 
 ---
 
-_"To create more positive results in your life, replace 'if only' with 'next time'. — *Celestine Chua*"_
+_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
 
 ---
