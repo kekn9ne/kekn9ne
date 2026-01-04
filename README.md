@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
+_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
 
 ---
