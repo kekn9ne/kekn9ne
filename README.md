@@ -7,6 +7,6 @@
 
 ---
 
-_"You can discover what your enemy fears most by observing the means he uses to frighten you. — *Eric Hoffer*"_
+_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
 
 ---
