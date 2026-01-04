@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
