@@ -7,6 +7,6 @@
 
 ---
 
-_"Sorrow is how we learn to love. — *Rita Mae Brown*"_
+_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
 
 ---
