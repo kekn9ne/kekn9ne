@@ -7,6 +7,6 @@
 
 ---
 
-_"Champions keep playing until they get it right. — *Billie Jean King*"_
+_"Others can stop you temporarily - you are the only one who can do it permanently. — *Zig Ziglar*"_
 
 ---
