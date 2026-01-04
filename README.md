@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
