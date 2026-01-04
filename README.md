@@ -7,6 +7,6 @@
 
 ---
 
-_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
+_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
 
 ---
