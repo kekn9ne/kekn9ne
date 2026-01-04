@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you. — *Paramahansa Yogananda*"_
+_"Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy. — *Ralph Marston*"_
 
 ---
