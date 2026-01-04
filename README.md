@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a choice, not a result. Nothing will make you happy until you choose to be happy. — *Ralph Marston*"_
+_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
 
 ---
