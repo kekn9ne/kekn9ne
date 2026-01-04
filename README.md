@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
+_"If you want to be sad, no one in the world can make you happy. But if you make up your mind to be happy, no one and nothing on earth can take that happiness from you. — *Paramahansa Yogananda*"_
 
 ---
