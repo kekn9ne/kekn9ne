@@ -7,6 +7,6 @@
 
 ---
 
-_"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. — *Lao Tzu*"_
+_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
 
 ---
