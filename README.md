@@ -7,6 +7,6 @@
 
 ---
 
-_"A zen master's life is one continuous mistake. — *Dogen*"_
+_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
 
 ---
