@@ -7,6 +7,6 @@
 
 ---
 
-_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
+_"Act as if what you do makes a difference. It does. — *William James*"_
 
 ---
