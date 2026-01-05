@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 05 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAK KÖŞELERİNDE** by *Şam* 🎶
 
 ---
 
-_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
+_"We are all in the gutter, but some of us are looking at the stars.  — *Oscar Wilde*"_
 
 ---
