@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
+_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
 
 ---
