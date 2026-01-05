@@ -7,6 +7,6 @@
 
 ---
 
-_"Act as if what you do makes a difference. It does. — *William James*"_
+_"Lack of direction, not lack of time, is the problem. We all have twenty-four hour days. — *Zig Ziglar*"_
 
 ---
