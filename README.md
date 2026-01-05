@@ -7,6 +7,6 @@
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"Words are clothes that thoughts wear — *Samuel Butler*"_
 
 ---
