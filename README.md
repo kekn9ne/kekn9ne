@@ -7,6 +7,6 @@
 
 ---
 
-_"Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution. — *Kahlil Gibran*"_
+_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
 
 ---
