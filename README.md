@@ -7,6 +7,6 @@
 
 ---
 
-_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
+_"Be thankful for everything that happens in your life; it's all an experience. — *Roy T. Bennett*"_
 
 ---
