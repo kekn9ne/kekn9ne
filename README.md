@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
+_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
 
 ---
