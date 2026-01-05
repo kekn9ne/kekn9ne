@@ -7,6 +7,6 @@
 
 ---
 
-_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
+_"You are what you believe yourself to be. — *Paulo Coelho*"_
 
 ---
