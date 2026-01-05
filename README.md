@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
+_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
 
 ---
