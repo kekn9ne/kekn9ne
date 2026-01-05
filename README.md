@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 05 January 2026**  
-🌤️ Weather in Istanbul: **☁️   +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be thankful for everything that happens in your life; it's all an experience. — *Roy T. Bennett*"_
+_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
 
 ---
