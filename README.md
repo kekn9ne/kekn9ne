@@ -7,6 +7,6 @@
 
 ---
 
-_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
+_"There are no uninteresting things, only uninterested people. — *Gilbert Chesterton*"_
 
 ---
