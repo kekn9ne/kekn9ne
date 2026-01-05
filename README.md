@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
 
 ---
