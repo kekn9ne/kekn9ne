@@ -7,6 +7,6 @@
 
 ---
 
-_"All things come into being by conflict of opposites. — *Heraclitus*"_
+_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
 
 ---
