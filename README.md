@@ -7,6 +7,6 @@
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
 
 ---
