@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is happy who does not think himself so. — *Norman Vincent Peale*"_
+_"We will now discuss in a little more detail the Struggle for Existence. — *Charles Darwin*"_
 
 ---
