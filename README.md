@@ -7,6 +7,6 @@
 
 ---
 
-_"Lack of direction, not lack of time, is the problem. We all have twenty-four hour days. — *Zig Ziglar*"_
+_"Go confidently in the direction of your dreams. Live the life you've imagined. — *Arnold Schwarzenegger*"_
 
 ---
