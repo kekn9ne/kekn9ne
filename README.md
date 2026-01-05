@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no uninteresting things, only uninterested people. — *Gilbert Chesterton*"_
+_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
 
 ---
