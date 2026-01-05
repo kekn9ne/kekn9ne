@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 05 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **☁️   +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **PAHALI ve KALİTELİ** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It matters not what someone is born, but what they grow to be. — *Albus Dumbledore*"_
+_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
 
 ---
