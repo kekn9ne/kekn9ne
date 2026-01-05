@@ -7,6 +7,6 @@
 
 ---
 
-_"The person who never made a mistake never tried anything new. — *Albert Einstein*"_
+_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
 
 ---
