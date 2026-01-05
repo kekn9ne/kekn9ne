@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you respond to negative people, the more positive your life will become. — *Paulo Coelho*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
