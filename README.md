@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 05 January 2026**  
-🌤️ Weather in Istanbul: **☁️   +14°C**  
+🌤️ Weather in Istanbul: **☁️   +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Müneccim** by *İkra* 🎶
 
 ---
 
-_"Storms don't last forever. — *Unknown*"_
+_"No one ever said life was fair. Just Eventful. — *Carol Burnett*"_
 
 ---
