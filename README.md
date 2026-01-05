@@ -7,6 +7,6 @@
 
 ---
 
-_"A person is only by the thoughts that he chooses. — *James Allen*"_
+_"Tenderness and kindness are not signs of weakness and despair, but manifestations of strength and resolution. — *Kahlil Gibran*"_
 
 ---
