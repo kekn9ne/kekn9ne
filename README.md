@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are clothes that thoughts wear — *Samuel Butler*"_
+_"The less you respond to negative people, the more positive your life will become. — *Paulo Coelho*"_
 
 ---
