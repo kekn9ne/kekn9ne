@@ -7,6 +7,6 @@
 
 ---
 
-_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
+_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
 
 ---
