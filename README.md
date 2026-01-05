@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 05 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☁️   +15°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
+_"A person is only by the thoughts that he chooses. — *James Allen*"_
 
 ---
