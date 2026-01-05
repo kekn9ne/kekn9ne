@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 05 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +14°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Ponder and deliberate before you make a move. — *Sun Tzu*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
 
 ---
