@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 05 January 2026**  
-🌤️ Weather in Istanbul: **☁️   +14°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
+_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
 
 ---
