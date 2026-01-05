@@ -7,6 +7,6 @@
 
 ---
 
-_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
+_"None but ourselves can free our minds. — *Bob Marley*"_
 
 ---
