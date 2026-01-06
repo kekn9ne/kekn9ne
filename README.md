@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 06 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Zaza** by *Chiko* 🎶
 
 ---
 
-_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
+_"You change the world by being yourself. — *Yoko Ono*"_
 
 ---
