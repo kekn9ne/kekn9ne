@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
+_"Only in the agony of parting do we look into the depths of love. — *George Eliot*"_
 
 ---
