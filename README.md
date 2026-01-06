@@ -7,6 +7,6 @@
 
 ---
 
-_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
