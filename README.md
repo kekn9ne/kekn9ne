@@ -7,6 +7,6 @@
 
 ---
 
-_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
