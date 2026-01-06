@@ -7,6 +7,6 @@
 
 ---
 
-_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
+_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
 
 ---
