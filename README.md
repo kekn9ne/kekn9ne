@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 06 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +14°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I do not seek. I find. — *Pablo Picasso*"_
+_"Do not wait for leaders; do it alone, person to person. — *Mother Teresa*"_
 
 ---
