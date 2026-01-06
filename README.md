@@ -7,6 +7,6 @@
 
 ---
 
-_"Get busy living, or get busy dying. — *Stephen King*"_
+_"A journey of a thousand miles must begin with a single step. — *Lao Tzu*"_
 
 ---
