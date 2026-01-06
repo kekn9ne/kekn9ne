@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
+_"Lack of direction, not lack of time, is the problem. We all have twenty-four hour days. — *Zig Ziglar*"_
 
 ---
