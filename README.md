@@ -7,6 +7,6 @@
 
 ---
 
-_"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach. — *Benjamin Mays*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
