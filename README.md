@@ -7,6 +7,6 @@
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"Great minds are always feared by lesser minds. — *Dan Brown*"_
 
 ---
