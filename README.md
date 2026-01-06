@@ -7,6 +7,6 @@
 
 ---
 
-_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
+_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
 
 ---
