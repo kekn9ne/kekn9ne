@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 06 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Notre Dame** by *Ceg* 🎶
+🎧 Currently Listening: **KILLA INTRO** by *AKDO* 🎶
 
 ---
 
-_"If you're not making mistakes, then you're not doing anything. — *John Wooden*"_
+_"The only people without problems are those in cemeteries. — *Tony Robbins*"_
 
 ---
