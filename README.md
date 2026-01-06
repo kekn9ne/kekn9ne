@@ -7,6 +7,6 @@
 
 ---
 
-_"Stay strong. Keep coding. 💪"_
+_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
 
 ---
