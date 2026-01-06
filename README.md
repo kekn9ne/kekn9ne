@@ -7,6 +7,6 @@
 
 ---
 
-_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
