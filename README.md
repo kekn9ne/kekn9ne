@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
+_"You can have it all. You just can't have it all at once.  — *Oprah Winfrey*"_
 
 ---
