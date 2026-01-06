@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not what happened to me, I am what I choose to become. — *Carl Jung*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
