@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 06 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Notre Dame** by *Ceg* 🎶
 
 ---
 
-_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
+_"If you're not making mistakes, then you're not doing anything. — *John Wooden*"_
 
 ---
