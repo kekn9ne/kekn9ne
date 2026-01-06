@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"Get busy living, or get busy dying. — *Stephen King*"_
 
 ---
