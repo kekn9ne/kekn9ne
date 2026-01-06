@@ -7,6 +7,6 @@
 
 ---
 
-_"A day wasted on others is not wasted on one's self. — *Charles Dickens*"_
+_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
 
 ---
