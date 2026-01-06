@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
+_"Little by little, one travels far. — *J.R.R. Tolkien*"_
 
 ---
