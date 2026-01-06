@@ -7,6 +7,6 @@
 
 ---
 
-_"No idea, no matter how good, will work if it doesn't get used. — *Peter A. Cohen*"_
+_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
 
 ---
