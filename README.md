@@ -7,6 +7,6 @@
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"Either write something worth reading or do something worth writing. — *Benjamin Franklin*"_
 
 ---
