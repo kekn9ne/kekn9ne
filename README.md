@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
+_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
 
 ---
