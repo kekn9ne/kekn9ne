@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
 
 ---
