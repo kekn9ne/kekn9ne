@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure means you've now learned another valuable lesson that pushes you one step closer to success. — *Steve Harvey*"_
+_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
 
 ---
