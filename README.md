@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not wait for leaders; do it alone, person to person. — *Mother Teresa*"_
+_"Success is stumbling from failure to failure with no loss of enthusiasm. — *Winston Churchill*"_
 
 ---
