@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is stumbling from failure to failure with no loss of enthusiasm. — *Winston Churchill*"_
+_"We must learn to live together as brothers or perish together as fools. — *Martin Luther King, Jr.*"_
 
 ---
