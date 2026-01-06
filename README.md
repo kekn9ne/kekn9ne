@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot change anything unless we accept it. — *Carl Jung*"_
+_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
 
 ---
