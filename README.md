@@ -7,6 +7,6 @@
 
 ---
 
-_"Live your life as an exclamation rather than an explanation. — *Isaac Newton*"_
+_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
 
 ---
