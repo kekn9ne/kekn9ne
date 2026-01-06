@@ -7,6 +7,6 @@
 
 ---
 
-_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
