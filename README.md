@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is knowing what not to fear. — *Plato*"_
+_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
 
 ---
