@@ -7,6 +7,6 @@
 
 ---
 
-_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
