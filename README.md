@@ -7,6 +7,6 @@
 
 ---
 
-_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
+_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
 
 ---
