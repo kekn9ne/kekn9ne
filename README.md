@@ -7,6 +7,6 @@
 
 ---
 
-_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
+_"Pursue what catches your heart, not what catches your eyes. — *Roy T. Bennett*"_
 
 ---
