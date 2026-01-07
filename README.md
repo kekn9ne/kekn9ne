@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 07 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **⛅️  +16°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A rational person can find peace by cultivating indifference to things outside of their control. — *Naval Ravikant*"_
+_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
 
 ---
