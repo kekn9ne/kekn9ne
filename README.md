@@ -7,6 +7,6 @@
 
 ---
 
-_"To do two things at once is to do neither. — *Publilius Syrus*"_
+_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
 
 ---
