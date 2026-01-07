@@ -7,6 +7,6 @@
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"an action committed in anger is an action doomed to failure.  — *Genghis Khan*"_
 
 ---
