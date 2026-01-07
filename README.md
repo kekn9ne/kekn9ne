@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 07 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bilir O Beni** by *Pinhani* 🎶
 
 ---
 
-_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
+_"A life without a cause is a life without effect. — *Paulo Coelho*"_
 
 ---
