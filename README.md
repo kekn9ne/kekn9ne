@@ -7,6 +7,6 @@
 
 ---
 
-_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
