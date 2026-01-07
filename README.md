@@ -7,6 +7,6 @@
 
 ---
 
-_"Go for it now. The future is promised to no one. — *Wayne Dyer*"_
+_"Imagination is everything. It is the preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
