@@ -7,6 +7,6 @@
 
 ---
 
-_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
+_"We win by helping each other win. — *Jack Butcher*"_
 
 ---
