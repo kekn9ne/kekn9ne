@@ -7,6 +7,6 @@
 
 ---
 
-_"We win by helping each other win. — *Jack Butcher*"_
+_"It's better to stand by someone's side than by yourself. — *Jack London*"_
 
 ---
