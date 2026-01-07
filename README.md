@@ -7,6 +7,6 @@
 
 ---
 
-_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
+_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
 
 ---
