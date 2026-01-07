@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not about what it is, it's about what it can become. — *Dr. Seuss*"_
+_"Art, like morality, consists of drawing the line somewhere. — *Gilbert Chesterton*"_
 
 ---
