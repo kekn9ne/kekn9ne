@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't allow your mind to tell your heart what to do. The mind gives up easily. — *Paulo Coelho*"_
+_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
 
 ---
