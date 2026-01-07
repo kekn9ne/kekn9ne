@@ -7,6 +7,6 @@
 
 ---
 
-_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
+_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
 
 ---
