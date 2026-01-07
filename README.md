@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 07 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +17°C**  
+🌤️ Weather in Istanbul: **⛅️  +18°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RUM RUM RUM** by *Lvbel C5* 🎶
 
 ---
 
-_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
+_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
 
 ---
