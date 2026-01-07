@@ -7,6 +7,6 @@
 
 ---
 
-_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
+_"It's your road, and yours alone, others may walk it with you, but no one can walk it for you. — *Rumi*"_
 
 ---
