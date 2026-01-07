@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"You have to make time, even for something as universal as staring at the stars. — *W.P. Kinsella*"_
 
 ---
