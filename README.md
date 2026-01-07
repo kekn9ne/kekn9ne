@@ -7,6 +7,6 @@
 
 ---
 
-_"Catch, then, O catch the transient hour; Improve each moment as it flies!  — *St. Jerome*"_
+_"Do not think you will necessarily be aware of your own enlightenment. — *Dogen*"_
 
 ---
