@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man is guilty of all the good he did not do.  — *Voltaire*"_
+_"The world would go on even without you. Don't take yourself so seriously. — *Norman Vincent Peale*"_
 
 ---
