@@ -7,6 +7,6 @@
 
 ---
 
-_"We are willing to believe anything other than the truth. — *Carlos Ruiz Zafon*"_
+_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
 
 ---
