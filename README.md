@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
