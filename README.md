@@ -7,6 +7,6 @@
 
 ---
 
-_"Work out your own salvation. Do not depend on others. — *Buddha*"_
+_"Turn the pain into power. — *Unknown*"_
 
 ---
