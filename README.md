@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 07 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Bilir O Beni** by *Pinhani* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A life without a cause is a life without effect. — *Paulo Coelho*"_
+_"I didn't get there by wishing for it or hoping for it, but by working for it. — *Estee Lauder*"_
 
 ---
