@@ -7,6 +7,6 @@
 
 ---
 
-_"He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has. — *Epictetus*"_
+_"Every man is guilty of all the good he did not do.  — *Voltaire*"_
 
 ---
