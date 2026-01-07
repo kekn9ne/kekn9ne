@@ -7,6 +7,6 @@
 
 ---
 
-_"It is up to each of us to sing as we feel moved by the overall song of life. — *Ming-Dao Deng*"_
+_"Art is the signature of civilizations.  — *Beverly Sills*"_
 
 ---
