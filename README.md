@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people do not really want freedom, because freedom involves responsibility, and most people are frightened of responsibility. — *Sigmund Freud*"_
+_"Passion creates, addiction consumes. — *Gabor Mate*"_
 
 ---
