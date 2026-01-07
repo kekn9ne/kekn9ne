@@ -7,6 +7,6 @@
 
 ---
 
-_"The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome. — *Tony Robbins*"_
+_"The fear of death follows from the fear of life. A man who lives fully is prepared to die at any time. — *Mark Twain*"_
 
 ---
