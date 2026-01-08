@@ -7,6 +7,6 @@
 
 ---
 
-_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
+_"To wish you were someone else is to waste the person you are. — *Unknown*"_
 
 ---
