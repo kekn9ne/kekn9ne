@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 09 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Bana Sor** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is. — *Eckhart Tolle*"_
 
 ---
