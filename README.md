@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
