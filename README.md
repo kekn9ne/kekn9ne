@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
+_"It's easier to lose than to win.   — *Wayne Gretzky*"_
 
 ---
