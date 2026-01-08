@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sooner or later discovers that he is the master-gardener of his soul, the director of his life. — *James Allen*"_
+_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
 
 ---
