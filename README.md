@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 09 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Bana Sor** by *Şam* 🎶
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
