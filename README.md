@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything around us is made up of energy. To attract positive things in your life, start by giving off positive energy. — *Celestine Chua*"_
+_"A good character is the best tombstone. Carve your name on hearts, not on marble. — *Charles Spurgeon*"_
 
 ---
