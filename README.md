@@ -7,6 +7,6 @@
 
 ---
 
-_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
+_"When you have a dream, you've got to grab it and never let go. — *Carol Burnett*"_
 
 ---
