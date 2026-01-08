@@ -7,6 +7,6 @@
 
 ---
 
-_"The friendship that can cease has never been real.  — *St. Jerome*"_
+_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
 
 ---
