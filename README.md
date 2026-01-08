@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
+_"Youth has no age. — *Pablo Picasso*"_
 
 ---
