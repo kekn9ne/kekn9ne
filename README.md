@@ -7,6 +7,6 @@
 
 ---
 
-_"A zen master's life is one continuous mistake. — *Dogen*"_
+_"Obstacles can't stop you. Problems can't stop you. Most of all, other people can't stop you. Only you can stop you. — *Jeffrey Gitomer*"_
 
 ---
