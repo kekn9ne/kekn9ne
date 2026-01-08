@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave enough to suck at something new. — *Unknown*"_
+_"I have never let my schooling interfere with my education. — *Mark Twain*"_
 
 ---
