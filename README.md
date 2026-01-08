@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like stepping onto a boat which is about to sail out to sea and sink. — *Shunryu Suzuki*"_
+_"The world doesn't owe you anything. It was here first. — *Mark Twain*"_
 
 ---
