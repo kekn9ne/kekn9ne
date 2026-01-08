@@ -7,6 +7,6 @@
 
 ---
 
-_"Living a life that has a greater purpose and living up to it is the ultimate degree that we should strive for. — *Gurbaksh Chahal*"_
+_"FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours. — *Zig Ziglar*"_
 
 ---
