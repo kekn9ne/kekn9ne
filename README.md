@@ -7,6 +7,6 @@
 
 ---
 
-_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
+_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
 
 ---
