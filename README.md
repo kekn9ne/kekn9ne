@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
+_"Zen insists that the whole trouble is just our failure to realize that there is no problem. — *Bruce Lee*"_
 
 ---
