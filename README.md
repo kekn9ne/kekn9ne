@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
+_"You only live once, but if you do it right, once is enough. — *Mae West*"_
 
 ---
