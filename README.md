@@ -7,6 +7,6 @@
 
 ---
 
-_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
+_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
 
 ---
