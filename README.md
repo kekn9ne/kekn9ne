@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot control the behavior of others, but you can always choose how you respond to it. — *Roy T. Bennett*"_
+_"To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength. — *Criss Jami*"_
 
 ---
