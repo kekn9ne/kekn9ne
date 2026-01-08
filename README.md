@@ -7,6 +7,6 @@
 
 ---
 
-_"Riches don't make a man rich, they only make him busier. — *Christopher Columbus*"_
+_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
 
 ---
