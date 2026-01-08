@@ -7,6 +7,6 @@
 
 ---
 
-_"Too much sanity may be madness and the maddest of all, to see life as it is and not as it should be.  — *Miguel de Cervantes*"_
+_"As a man thinketh in his heart, so shall he be. — *James Allen*"_
 
 ---
