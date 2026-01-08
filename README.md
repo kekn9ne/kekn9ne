@@ -7,6 +7,6 @@
 
 ---
 
-_"To wish you were someone else is to waste the person you are. — *Unknown*"_
+_"Words are clothes that thoughts wear — *Samuel Butler*"_
 
 ---
