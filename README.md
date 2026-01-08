@@ -7,6 +7,6 @@
 
 ---
 
-_"Good luck is opportunity meeting preparedness. — *Deepak Chopra*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
