@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
+_"Those who realize their folly are not true fools. — *Zhuangzi*"_
 
 ---
