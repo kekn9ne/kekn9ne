@@ -7,6 +7,6 @@
 
 ---
 
-_"Making your mark on the world is hard. If it were easy, everybody would do it. — *Barack Obama*"_
+_"Everything will be ok in the end. If it's not ok, it's not the end. — *John Lennon*"_
 
 ---
