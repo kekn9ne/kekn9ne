@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a question and how we live it is our answer. — *Gary Keller*"_
+_"The friendship that can cease has never been real.  — *St. Jerome*"_
 
 ---
