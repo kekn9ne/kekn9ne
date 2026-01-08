@@ -7,6 +7,6 @@
 
 ---
 
-_"A good character is the best tombstone. Carve your name on hearts, not on marble. — *Charles Spurgeon*"_
+_"Genius is one percent inspiration and ninety-nine percent perspiration. — *Thomas Edison*"_
 
 ---
