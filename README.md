@@ -7,6 +7,6 @@
 
 ---
 
-_"Life itself is the most wonderful fairy tale. — *Hans Christian Andersen*"_
+_"Be brave enough to suck at something new. — *Unknown*"_
 
 ---
