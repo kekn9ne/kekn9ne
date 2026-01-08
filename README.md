@@ -7,6 +7,6 @@
 
 ---
 
-_"Words are clothes that thoughts wear — *Samuel Butler*"_
+_"Riches don't make a man rich, they only make him busier. — *Christopher Columbus*"_
 
 ---
