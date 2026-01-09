@@ -7,6 +7,6 @@
 
 ---
 
-_"Arise, slay thy enemies, enjoy a prosperous kingdom. — *Bhagavad Gita*"_
+_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
 
 ---
