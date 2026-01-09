@@ -7,6 +7,6 @@
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
 
 ---
