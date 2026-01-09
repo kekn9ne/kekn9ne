@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose. — *Celestine Chua*"_
+_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
 
 ---
