@@ -7,6 +7,6 @@
 
 ---
 
-_"Failing is another stepping stone to greatness. — *Oprah Winfrey*"_
+_"Where focus goes, energy flows. — *Tony Robbins*"_
 
 ---
