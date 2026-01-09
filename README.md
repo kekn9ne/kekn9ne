@@ -7,6 +7,6 @@
 
 ---
 
-_"The best dreams happen when you're awake. — *Cherie Gilderbloom*"_
+_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
 
 ---
