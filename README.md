@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of change is to focus all your energy not on fighting the old, but on building the new. — *Dan Millman*"_
+_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
 
 ---
