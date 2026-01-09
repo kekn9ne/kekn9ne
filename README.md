@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 09 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **☀️   +9°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
+_"Act as if what you do makes a difference. It does. — *William James*"_
 
 ---
