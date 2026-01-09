@@ -7,6 +7,6 @@
 
 ---
 
-_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
+_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
 
 ---
