@@ -7,6 +7,6 @@
 
 ---
 
-_"All men are equal before fish. — *Herbert Hoover*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
