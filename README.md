@@ -7,6 +7,6 @@
 
 ---
 
-_"The energy of the mind is the essence of life. — *Aristotle*"_
+_"Arise, slay thy enemies, enjoy a prosperous kingdom. — *Bhagavad Gita*"_
 
 ---
