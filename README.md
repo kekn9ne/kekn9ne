@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"The more knowledge you have, the more you're free to rely on your instincts. — *Arnold Schwarzenegger*"_
 
 ---
