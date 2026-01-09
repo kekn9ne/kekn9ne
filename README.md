@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
+_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
 
 ---
