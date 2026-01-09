@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not the love you make. It's the love you give.  — *Nikola Tesla*"_
+_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
 
 ---
