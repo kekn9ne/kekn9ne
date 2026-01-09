@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
+_"Don't stumble over something that's behind you. — *Steve Harvey*"_
 
 ---
