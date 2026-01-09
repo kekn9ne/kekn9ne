@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 09 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only those who dare to fail greatly can ever achieve greatly. — *Robert F. Kennedy*"_
+_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
 
 ---
