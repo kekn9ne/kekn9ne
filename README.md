@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
+_"The farther backward you can look, the farther forward you are likely to see. — *Winston Churchill*"_
 
 ---
