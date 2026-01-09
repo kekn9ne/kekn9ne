@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
+_"Patience is bitter, but its fruit is sweet. — *Aristotle*"_
 
 ---
