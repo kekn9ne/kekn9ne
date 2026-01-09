@@ -7,6 +7,6 @@
 
 ---
 
-_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
+_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
 
 ---
