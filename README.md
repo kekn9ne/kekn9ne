@@ -7,6 +7,6 @@
 
 ---
 
-_"The search for happiness is one of the chief sources of unhappiness. — *Eric Hoffer*"_
+_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
 
 ---
