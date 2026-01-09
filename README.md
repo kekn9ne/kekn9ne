@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty your mind, be formless, shapeless, like water. — *Bruce Lee*"_
+_"Keep others in suspense, cultivate an air of unpredictability. — *Robert Greene*"_
 
 ---
