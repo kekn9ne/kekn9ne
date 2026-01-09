@@ -7,6 +7,6 @@
 
 ---
 
-_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
+_"Failing is another stepping stone to greatness. — *Oprah Winfrey*"_
 
 ---
