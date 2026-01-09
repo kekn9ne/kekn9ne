@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't spend major time on minor things. — *Jim Rohn*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
