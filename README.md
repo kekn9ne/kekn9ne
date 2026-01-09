@@ -7,6 +7,6 @@
 
 ---
 
-_"Act as if what you do makes a difference. It does. — *William James*"_
+_"If you hang out with chickens, you're going to cluck and if you hang out with eagles, you're going to fly. — *Steve Maraboli*"_
 
 ---
