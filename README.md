@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to dance than to march through life. — *Yoko Ono*"_
+_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
 
 ---
