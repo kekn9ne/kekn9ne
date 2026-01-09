@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
+_"Difficulties strengthen the mind, as labor does the body.   — *Seneca*"_
 
 ---
