@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
+_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
 
 ---
