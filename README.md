@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not ignore the passion that burns in you. Spend time to discover your gift. — *Steve Harvey*"_
+_"We have a duty to maintain the light of consciousness to make sure it continues into the future. — *Elon Musk*"_
 
 ---
