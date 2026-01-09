@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
+_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
 
 ---
