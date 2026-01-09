@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stumble over something that's behind you. — *Steve Harvey*"_
+_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
 
 ---
