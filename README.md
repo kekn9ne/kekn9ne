@@ -7,6 +7,6 @@
 
 ---
 
-_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
+_"Productize your perspective. — *Jack Butcher*"_
 
 ---
