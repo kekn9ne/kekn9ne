@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not one person, but three: The one you think you are; The one others think you are; The one you really are. — *Sathya Sai Baba*"_
+_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
 
 ---
