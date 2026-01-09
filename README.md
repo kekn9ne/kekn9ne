@@ -7,6 +7,6 @@
 
 ---
 
-_"Productize your perspective. — *Jack Butcher*"_
+_"The secret of change is to focus all your energy not on fighting the old, but on building the new. — *Dan Millman*"_
 
 ---
