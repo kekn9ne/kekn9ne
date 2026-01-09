@@ -7,6 +7,6 @@
 
 ---
 
-_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
+_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
 
 ---
