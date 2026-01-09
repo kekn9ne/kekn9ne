@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust, like the soul, never returns once it is gone. — *Publilius Syrus*"_
+_"The search for happiness is one of the chief sources of unhappiness. — *Eric Hoffer*"_
 
 ---
