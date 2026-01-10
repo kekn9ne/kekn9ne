@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do the work you get rewarded. There are no shortcuts in life. — *Michael Jordan*"_
+_"All know the way; few actually walk it.  — *Bodhidharma*"_
 
 ---
