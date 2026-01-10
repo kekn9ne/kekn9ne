@@ -7,6 +7,6 @@
 
 ---
 
-_"All know the way; few actually walk it.  — *Bodhidharma*"_
+_"Still your waters. — *Josh Waitzkin*"_
 
 ---
