@@ -7,6 +7,6 @@
 
 ---
 
-_"Creativity is the greatest rebellion in existence. — *Osho*"_
+_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
 
 ---
