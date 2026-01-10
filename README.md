@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 10 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +14°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
+_"Let my soul smile through my heart and my heart smile through my eyes, that I may scatter rich smiles in sad hearts.  — *Paramahansa Yogananda*"_
 
 ---
