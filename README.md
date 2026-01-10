@@ -7,6 +7,6 @@
 
 ---
 
-_"FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours. — *Zig Ziglar*"_
+_"Remain calm. Be kind. — *Colin Powell*"_
 
 ---
