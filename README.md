@@ -7,6 +7,6 @@
 
 ---
 
-_"I am not proud, but I am happy; and happiness blinds, I think, more than pride. — *Alexandre Dumas*"_
+_"FEAR has two meanings: 'Forget Everything And Run' or 'Face Everything And Rise.' The choice is yours. — *Zig Ziglar*"_
 
 ---
