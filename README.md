@@ -7,6 +7,6 @@
 
 ---
 
-_"Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people. — *Roy T. Bennett*"_
+_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
 
 ---
