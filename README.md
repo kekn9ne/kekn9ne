@@ -7,6 +7,6 @@
 
 ---
 
-_"Remain calm. Be kind. — *Colin Powell*"_
+_"Wake up and smile! Wake up and be grateful! — *Steve Harvey*"_
 
 ---
