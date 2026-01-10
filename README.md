@@ -7,6 +7,6 @@
 
 ---
 
-_"The fewer the words, the better the prayer. — *Martin Luther*"_
+_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
 
 ---
