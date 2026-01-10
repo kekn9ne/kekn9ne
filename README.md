@@ -7,6 +7,6 @@
 
 ---
 
-_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
+_"If you don't like something change it; if you can't change it, change the way you think about it. — *Mary Engelbreit*"_
 
 ---
