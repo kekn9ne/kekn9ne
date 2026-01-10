@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
+_"Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight. — *Benjamin Franklin*"_
 
 ---
