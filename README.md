@@ -7,6 +7,6 @@
 
 ---
 
-_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
+_"If you don't like something change it. If you can't change it, change your attitude about it. Don't complain. — *Maya Angelou*"_
 
 ---
