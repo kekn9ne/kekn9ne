@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't like something change it. If you can't change it, change your attitude about it. Don't complain. — *Maya Angelou*"_
+_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
 
 ---
