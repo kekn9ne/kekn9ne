@@ -7,6 +7,6 @@
 
 ---
 
-_"Rewards and punishment is the lowest form of education. — *Zhuangzi*"_
+_"Creativity is the greatest rebellion in existence. — *Osho*"_
 
 ---
