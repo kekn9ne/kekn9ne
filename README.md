@@ -7,6 +7,6 @@
 
 ---
 
-_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
+_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
 
 ---
