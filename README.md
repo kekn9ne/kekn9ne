@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
+_"Be the reason someone smiles. Be the reason someone feels loved and believes in the goodness in people. — *Roy T. Bennett*"_
 
 ---
