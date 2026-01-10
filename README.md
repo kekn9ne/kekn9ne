@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goal. — *Henry Ford*"_
+_"When you make a choice, you change the future. — *Deepak Chopra*"_
 
 ---
