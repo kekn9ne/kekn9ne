@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
+_"We never know the love of a parent till we become parents ourselves. — *Henry Ward Beecher*"_
 
 ---
