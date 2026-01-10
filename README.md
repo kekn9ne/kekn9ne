@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust thyself: every heart vibrates to that iron string. — *Ralph Waldo Emerson*"_
+_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
 
 ---
