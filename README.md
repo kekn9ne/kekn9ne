@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't like something change it; if you can't change it, change the way you think about it. — *Mary Engelbreit*"_
+_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
 
 ---
