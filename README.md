@@ -7,6 +7,6 @@
 
 ---
 
-_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
+_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
 
 ---
