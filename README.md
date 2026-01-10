@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 10 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +15°C**  
+🌤️ Weather in Istanbul: **🌦   +14°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight. — *Benjamin Franklin*"_
+_"Rewards and punishment is the lowest form of education. — *Zhuangzi*"_
 
 ---
