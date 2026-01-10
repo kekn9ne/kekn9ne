@@ -7,6 +7,6 @@
 
 ---
 
-_"You will have bad times, but they will always wake you up to the stuff you weren't paying attention to. — *Robin Williams*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goal. — *Henry Ford*"_
 
 ---
