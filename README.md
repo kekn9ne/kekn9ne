@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"Realize deeply that the present moment is all you ever have.  — *Eckhart Tolle*"_
 
 ---
