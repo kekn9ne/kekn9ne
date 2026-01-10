@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
+_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
 
 ---
