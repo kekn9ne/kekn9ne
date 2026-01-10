@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest miracle is to be alive. — *Thich Nhat Hanh*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
