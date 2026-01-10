@@ -7,6 +7,6 @@
 
 ---
 
-_"Wake up and smile! Wake up and be grateful! — *Steve Harvey*"_
+_"Change yourself - you are in control. — *Mahatma Gandhi*"_
 
 ---
