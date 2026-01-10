@@ -7,6 +7,6 @@
 
 ---
 
-_"When you make a choice, you change the future. — *Deepak Chopra*"_
+_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
 
 ---
