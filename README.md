@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid to go slowly. Be afraid of stopping. — *Zen Proverb*"_
+_"It's not what you've got; it's what you do that makes the difference. — *Celestine Chua*"_
 
 ---
