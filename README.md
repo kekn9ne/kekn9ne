@@ -7,6 +7,6 @@
 
 ---
 
-_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
+_"I am not proud, but I am happy; and happiness blinds, I think, more than pride. — *Alexandre Dumas*"_
 
 ---
