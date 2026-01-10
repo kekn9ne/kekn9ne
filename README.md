@@ -7,6 +7,6 @@
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
 
 ---
