@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
+_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
 
 ---
