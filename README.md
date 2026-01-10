@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest in reason; move in passion. — *Kahlil Gibran*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
