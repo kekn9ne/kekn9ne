@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 10 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +14°C**  
+🌤️ Weather in Istanbul: **🌩  +12°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The salvation of the world lies in the human heart. — *Vaclav Havel*"_
+_"I do not exist to impress the world. I exist to live my life in a way that will make me happy. — *Richard Bach*"_
 
 ---
