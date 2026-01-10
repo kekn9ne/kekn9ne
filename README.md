@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 10 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: Not available 🎧
 
 ---
 
-_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
+_"Be truthful about your emotions, and use your mind and emotions in your favor, not against yourself. — *Robert Kiyosaki*"_
 
 ---
