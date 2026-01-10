@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom lies in being bold. — *Robert Frost*"_
+_"It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — *Steve Maraboli*"_
 
 ---
