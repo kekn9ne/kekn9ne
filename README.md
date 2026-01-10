@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you've got; it's what you do that makes the difference. — *Celestine Chua*"_
+_"Opportunity is missed by most people because it is dressed in overalls and looks like work. — *Thomas Edison*"_
 
 ---
