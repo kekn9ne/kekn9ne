@@ -7,6 +7,6 @@
 
 ---
 
-_"Children are our greatest natural resource. — *Herbert Hoover*"_
+_"The only way round is through. — *Robert Frost*"_
 
 ---
