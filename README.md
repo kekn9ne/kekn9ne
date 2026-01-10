@@ -7,6 +7,6 @@
 
 ---
 
-_"There is little success where there is little laughter. — *Andrew Carnegie*"_
+_"The wise man reads both books and life itself. — *Lin Yutang*"_
 
 ---
