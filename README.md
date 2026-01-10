@@ -7,6 +7,6 @@
 
 ---
 
-_"The Only Thing That Is Constant Is Change — *Heraclitus*"_
+_"Words are clothes that thoughts wear — *Samuel Butler*"_
 
 ---
