@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot always do great things in life, but we can do small things with great love. — *Dan Millman*"_
+_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
 
 ---
