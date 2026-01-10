@@ -7,6 +7,6 @@
 
 ---
 
-_"Give more than you think you can, trusting that you are richer than you think. — *Jon Kabat-Zinn*"_
+_"Unless a man is master of his soul, all other kinds of mastery amount to little. — *Theodore Roosevelt*"_
 
 ---
