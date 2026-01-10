@@ -7,6 +7,6 @@
 
 ---
 
-_"It is important that we forgive ourselves for making mistakes. We need to learn from our errors and move on. — *Steve Maraboli*"_
+_"Rest in reason; move in passion. — *Kahlil Gibran*"_
 
 ---
