@@ -7,6 +7,6 @@
 
 ---
 
-_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
+_"We must not sit down and wait for miracles. Up and be going! — *John Eliot*"_
 
 ---
