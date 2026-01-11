@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is the hardest work there is, which is probably the reason why so few engage in it. — *Henry Ford*"_
+_"The ones who are crazy enough to think they can change the world, are the ones that do. — *Steve Jobs*"_
 
 ---
