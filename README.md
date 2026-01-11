@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
+_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
 
 ---
