@@ -7,6 +7,6 @@
 
 ---
 
-_"The ones who are crazy enough to think they can change the world, are the ones that do. — *Steve Jobs*"_
+_"Forget safety. Live where you fear to live. — *Rumi*"_
 
 ---
