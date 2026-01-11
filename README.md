@@ -7,6 +7,6 @@
 
 ---
 
-_"You may delay, but time will not. — *Benjamin Franklin*"_
+_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
 
 ---
