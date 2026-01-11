@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
+_"Courage Is a Love Affair with the Unknown — *Osho*"_
 
 ---
