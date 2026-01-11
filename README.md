@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 11 January 2026**  
-🌤️ Weather in Istanbul: **🌧   +5°C**  
+🌤️ Weather in Istanbul: **🌦   +5°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
+_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
 
 ---
