@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to know what God thinks about money just look at the people He gives it to. — *Alexander Pope*"_
+_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
 
 ---
