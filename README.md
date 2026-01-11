@@ -7,6 +7,6 @@
 
 ---
 
-_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
+_"The universe doesn't allow perfection. — *Stephen Hawking*"_
 
 ---
