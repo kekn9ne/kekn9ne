@@ -7,6 +7,6 @@
 
 ---
 
-_"Be fascinated instead of frustrated. — *Jim Rohn*"_
+_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
 
 ---
