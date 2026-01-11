@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
+_"Those who are easily shocked should be shocked more often. — *Mae West*"_
 
 ---
