@@ -7,6 +7,6 @@
 
 ---
 
-_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
+_"Reading should be a pleasure, not a chore. — *Joan Rivers*"_
 
 ---
