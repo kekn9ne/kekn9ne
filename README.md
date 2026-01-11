@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 11 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **🌧   +8°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
+_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
 
 ---
