@@ -7,6 +7,6 @@
 
 ---
 
-_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
+_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
 
 ---
