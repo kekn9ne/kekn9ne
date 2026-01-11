@@ -7,6 +7,6 @@
 
 ---
 
-_"Love the life you live, live the life you love. — *Bob Marley*"_
+_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
 
 ---
