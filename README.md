@@ -7,6 +7,6 @@
 
 ---
 
-_"Memory is the scribe of the soul. — *Aristotle*"_
+_"Love the life you live, live the life you love. — *Bob Marley*"_
 
 ---
