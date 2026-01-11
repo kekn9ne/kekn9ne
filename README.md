@@ -7,6 +7,6 @@
 
 ---
 
-_"Never allow someone to be your priority while allowing yourself to be their option. — *Mark Twain*"_
+_"The greatest enemy of knowledge is not ignorance, it's the illusion of knowledge. — *Stephen Hawking*"_
 
 ---
