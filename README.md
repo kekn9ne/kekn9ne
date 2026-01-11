@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"The purpose of life is to contribute in some way to making things better. — *Robert F. Kennedy*"_
 
 ---
