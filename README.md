@@ -7,6 +7,6 @@
 
 ---
 
-_"The measure of who we are is what we do with what we have. — *Vince Lombardi*"_
+_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
 
 ---
