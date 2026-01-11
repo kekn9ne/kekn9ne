@@ -7,6 +7,6 @@
 
 ---
 
-_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
+_"If you want to know what God thinks about money just look at the people He gives it to. — *Alexander Pope*"_
 
 ---
