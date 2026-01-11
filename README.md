@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is a habit, and like any other habit, it can be changed; it just takes effort and repetition. — *John Eliot*"_
+_"Lying can never save us from another lie. — *Vaclav Havel*"_
 
 ---
