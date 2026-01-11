@@ -7,6 +7,6 @@
 
 ---
 
-_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
+_"The only thing more frustrating than slanderers is those foolish enough to listen to them. — *Criss Jami*"_
 
 ---
