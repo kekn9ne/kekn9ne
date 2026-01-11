@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 11 January 2026**  
-🌤️ Weather in Istanbul: **🌧   +6°C**  
+🌤️ Weather in Istanbul: **🌦   +6°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What you get by achieving your goals is not as important as what you become by achieving your goals. — *Henry David Thoreau*"_
+_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
 
 ---
