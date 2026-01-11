@@ -7,6 +7,6 @@
 
 ---
 
-_"Most great people have achieved their greatest success just one step beyond their greatest failure. — *Napoleon Hill*"_
+_"Do Something. If it works, do more of it. If it doesn't, do something else. — *Franklin D. Roosevelt*"_
 
 ---
