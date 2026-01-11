@@ -7,6 +7,6 @@
 
 ---
 
-_"The power of human thought grows exponentially with the number of minds that share that thought. — *Dan Brown*"_
+_"One beam, no matter how big, cannot support an entire house on its own. — *Chinese Proverb*"_
 
 ---
