@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a vision, trust yourself, break some rules, ignore the naysayers, don't be afraid to fail. — *Arnold Schwarzenegger*"_
+_"To achieve, you need thought. You have to know what you are doing and that's real power. — *Ayn Rand*"_
 
 ---
