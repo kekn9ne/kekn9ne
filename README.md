@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
+_"If you want others to be happy, practice compassion. If you want to be happy, practice compassion. — *Dalai Lama*"_
 
 ---
