@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
+_"The only way out is through. — *Robert Frost*"_
 
 ---
