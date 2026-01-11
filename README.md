@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want others to be happy, practice compassion. If you want to be happy, practice compassion. — *Dalai Lama*"_
+_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
 
 ---
