@@ -7,6 +7,6 @@
 
 ---
 
-_"We can spend our whole lives escaping from the monsters of our minds. — *Pema Chodron*"_
+_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
 
 ---
