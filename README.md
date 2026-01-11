@@ -7,6 +7,6 @@
 
 ---
 
-_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
+_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
 
 ---
