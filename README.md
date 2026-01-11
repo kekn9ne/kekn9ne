@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to value yourself, which means: fight for your happiness. — *Ayn Rand*"_
+_"What you get by achieving your goals is not as important as what you become by achieving your goals. — *Henry David Thoreau*"_
 
 ---
