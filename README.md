@@ -7,6 +7,6 @@
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable. — *Maxime Lagace*"_
 
 ---
