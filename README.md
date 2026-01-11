@@ -7,6 +7,6 @@
 
 ---
 
-_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
+_"The measure of who we are is what we do with what we have. — *Vince Lombardi*"_
 
 ---
