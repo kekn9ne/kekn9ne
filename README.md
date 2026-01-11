@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody by your side ain't on your side. — *Steve Harvey*"_
+_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
 
 ---
