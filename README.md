@@ -7,6 +7,6 @@
 
 ---
 
-_"Reading should be a pleasure, not a chore. — *Joan Rivers*"_
+_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
 
 ---
