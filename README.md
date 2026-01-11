@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage Is a Love Affair with the Unknown — *Osho*"_
+_"Never allow someone to be your priority while allowing yourself to be their option. — *Mark Twain*"_
 
 ---
