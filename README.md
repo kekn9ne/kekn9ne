@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
 
 ---
