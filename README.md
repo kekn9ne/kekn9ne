@@ -7,6 +7,6 @@
 
 ---
 
-_"The universe doesn't allow perfection. — *Stephen Hawking*"_
+_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
 
 ---
