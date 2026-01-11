@@ -7,6 +7,6 @@
 
 ---
 
-_"To share your weakness is to make yourself vulnerable; to make yourself vulnerable is to show your strength. — *Criss Jami*"_
+_"It will never rain roses: when we want to have more roses, we must plant more roses. — *George Eliot*"_
 
 ---
