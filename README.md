@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing more frustrating than slanderers is those foolish enough to listen to them. — *Criss Jami*"_
+_"Invisible things are the only realities. — *Edgar Allan Poe*"_
 
 ---
