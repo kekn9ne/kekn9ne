@@ -7,6 +7,6 @@
 
 ---
 
-_"Force has no place where there is need of skill.  — *Herodotus*"_
+_"Concentrated power has always been the enemy of liberty. — *Ronald Reagan*"_
 
 ---
