@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 12 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Yıldızlara Doğru** by *yigitflex* 🎶
 
 ---
 
-_"Creative endeavors are by their nature uncertain. — *Robert Greene*"_
+_"If there's a definition of freedom, I think it's this: living life on your terms. — *Kamal Ravikant*"_
 
 ---
