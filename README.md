@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the fear of losing be greater than the excitement of winning. — *Robert Kiyosaki*"_
+_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
 
 ---
