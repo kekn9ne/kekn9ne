@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't hate the player. Change the game. — *Steve Harvey*"_
+_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
 
 ---
