@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"One day, in retrospect, the years of struggle will strike you as the most beautiful. — *Sigmund Freud*"_
 
 ---
