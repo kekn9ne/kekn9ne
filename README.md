@@ -7,6 +7,6 @@
 
 ---
 
-_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
+_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
 
 ---
