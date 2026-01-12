@@ -7,6 +7,6 @@
 
 ---
 
-_"We can't help everyone, but everyone can help someone. — *Ronald Reagan*"_
+_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
 
 ---
