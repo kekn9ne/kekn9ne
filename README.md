@@ -7,6 +7,6 @@
 
 ---
 
-_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
+_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
 
 ---
