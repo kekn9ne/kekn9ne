@@ -7,6 +7,6 @@
 
 ---
 
-_"He who violates another's honor loses his own. — *Publilius Syrus*"_
+_"Strive for excellence, not perfection, because we don't live in a perfect world. — *Joyce Meyer*"_
 
 ---
