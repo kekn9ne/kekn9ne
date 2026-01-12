@@ -7,6 +7,6 @@
 
 ---
 
-_"Life moves on and so should we. — *Spencer Johnson*"_
+_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
 
 ---
