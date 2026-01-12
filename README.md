@@ -7,6 +7,6 @@
 
 ---
 
-_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
+_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
 
 ---
