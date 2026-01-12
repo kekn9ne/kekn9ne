@@ -7,6 +7,6 @@
 
 ---
 
-_"Live in the sunshine, swim the sea, drink the wild air. — *Ralph Waldo Emerson*"_
+_"Force has no place where there is need of skill.  — *Herodotus*"_
 
 ---
