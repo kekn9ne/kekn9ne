@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is like most opinions - best unexpressed. — *Kenneth Branagh*"_
+_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
 
 ---
