@@ -7,6 +7,6 @@
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"Those who seek the easy way do not seek the true way. — *Dogen*"_
 
 ---
