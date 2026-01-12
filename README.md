@@ -7,6 +7,6 @@
 
 ---
 
-_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
+_"As you think, you travel, and as you love, you attract. — *James Allen*"_
 
 ---
