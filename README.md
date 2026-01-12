@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't criticize what you can't understand.  — *Bob Dylan*"_
+_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
 
 ---
