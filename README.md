@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not be afraid of dreaming the seemingly impossible if we want the seemingly impossible to become a reality. — *Vaclav Havel*"_
+_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
 
 ---
