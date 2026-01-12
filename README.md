@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"I'm an optimist by choice not by stupidity. — *Yanni*"_
 
 ---
