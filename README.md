@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
+_"Real growth comes through intense, difficult, and challenging situations. — *Kamal Ravikant*"_
 
 ---
