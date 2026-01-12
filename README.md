@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
+_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
 
 ---
