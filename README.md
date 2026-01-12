@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, you travel, and as you love, you attract. — *James Allen*"_
+_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
 
 ---
