@@ -7,6 +7,6 @@
 
 ---
 
-_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
+_"Life moves on and so should we. — *Spencer Johnson*"_
 
 ---
