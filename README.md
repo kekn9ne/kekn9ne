@@ -7,6 +7,6 @@
 
 ---
 
-_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
+_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
 
 ---
