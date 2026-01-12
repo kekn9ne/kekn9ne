@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm an optimist by choice not by stupidity. — *Yanni*"_
+_"Man's character is his fate. — *Heraclitus*"_
 
 ---
