@@ -7,6 +7,6 @@
 
 ---
 
-_"One day, in retrospect, the years of struggle will strike you as the most beautiful. — *Sigmund Freud*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
