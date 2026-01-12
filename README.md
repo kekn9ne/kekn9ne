@@ -7,6 +7,6 @@
 
 ---
 
-_"Man's character is his fate. — *Heraclitus*"_
+_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
 
 ---
