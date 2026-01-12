@@ -7,6 +7,6 @@
 
 ---
 
-_"Saying nothing sometimes says the most. — *Emily Dickinson*"_
+_"The highest form of ignorance is when you reject something you don't know anything about.  — *Wayne Dyer*"_
 
 ---
