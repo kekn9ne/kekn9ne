@@ -7,6 +7,6 @@
 
 ---
 
-_"Older men declare war. But it is youth that must fight and die. — *Herbert Hoover*"_
+_"Those who know, do. Those that understand, teach. — *Aristotle*"_
 
 ---
