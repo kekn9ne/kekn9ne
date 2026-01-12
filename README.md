@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens in life, never lose sight of who you are. — *Yanni*"_
+_"Creative endeavors are by their nature uncertain. — *Robert Greene*"_
 
 ---
