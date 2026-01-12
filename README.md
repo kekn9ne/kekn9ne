@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 12 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **kum saati** by *EGE!* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
