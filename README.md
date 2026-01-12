@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who seek the easy way do not seek the true way. — *Dogen*"_
+_"Decide what your truth is. Then live it. — *Kamal Ravikant*"_
 
 ---
