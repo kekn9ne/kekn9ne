@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is one long process of getting tired. — *Samuel Butler*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
