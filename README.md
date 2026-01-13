@@ -7,6 +7,6 @@
 
 ---
 
-_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
+_"Decide whether or not the goal is worth the risks involved. If it is, stop worrying. — *Amelia Earhart*"_
 
 ---
