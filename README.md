@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm an optimist by choice not by stupidity. — *Yanni*"_
+_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
 
 ---
