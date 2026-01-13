@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 13 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +0°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **AKTIV** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Look to the beauty of this day, miracles are all around you. — *Mary Engelbreit*"_
+_"The significance of life is living. — *Jiddu Krishnamurti*"_
 
 ---
