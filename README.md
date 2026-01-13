@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings believe just as they breathe - in order to survive. — *Carlos Ruiz Zafon*"_
+_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
 
 ---
