@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 13 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +3°C**  
+🌤️ Weather in Istanbul: **☁️   +4°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
+_"Plants grow weak without wind. — *Maxime Lagace*"_
 
 ---
