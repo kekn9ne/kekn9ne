@@ -7,6 +7,6 @@
 
 ---
 
-_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
+_"Mastering others is strength, mastering yourself is true power. — *Lao Tzu*"_
 
 ---
