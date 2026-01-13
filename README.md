@@ -7,6 +7,6 @@
 
 ---
 
-_"When you realize you've made a mistake, take immediate steps to correct it. — *Dalai Lama*"_
+_"The only place where success comes before work is in the dictionary. — *Vidal Sassoon*"_
 
 ---
