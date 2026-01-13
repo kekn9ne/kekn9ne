@@ -7,6 +7,6 @@
 
 ---
 
-_"Every great change is preceded by chaos. — *Deepak Chopra*"_
+_"I'm an optimist by choice not by stupidity. — *Yanni*"_
 
 ---
