@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your outlook on life that counts. — *Betty White*"_
+_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
 
 ---
