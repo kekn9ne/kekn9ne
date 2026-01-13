@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Tuesday, 13 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +4°C**  
+🗓️ Today is: **Wednesday, 14 January 2026**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **GASP ET** by *Rackzen* 🎶
+🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
 
 ---
 
-_"Distant water does not put out a nearby fire. — *Chinese Proverb*"_
+_"People are not disturbed by things, but by the views they take of them. — *Epictetus*"_
 
 ---
