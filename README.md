@@ -7,6 +7,6 @@
 
 ---
 
-_"Every strike brings me closer to the next home run.  — *Babe Ruth*"_
+_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
 
 ---
