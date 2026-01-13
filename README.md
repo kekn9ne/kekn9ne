@@ -7,6 +7,6 @@
 
 ---
 
-_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
+_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
 
 ---
