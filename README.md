@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 13 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
 
 ---
 
-_"You have the freedom to be yourself, your true self, here and now, and nothing can stand in your way. — *Richard Bach*"_
+_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
 
 ---
