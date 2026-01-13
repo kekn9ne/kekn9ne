@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 13 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  -1°C**  
+🌤️ Weather in Istanbul: **⛅️  +0°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Caddelerdeyim** by *MARSS* 🎶
 
 ---
 
-_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
+_"A Penny Saved is a Penny Earned — *Benjamin Franklin*"_
 
 ---
