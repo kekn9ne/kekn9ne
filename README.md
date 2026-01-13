@@ -7,6 +7,6 @@
 
 ---
 
-_"Memory is the scribe of the soul. — *Aristotle*"_
+_"There is no such thing as a great talent without great willpower. — *Honore de Balzac*"_
 
 ---
