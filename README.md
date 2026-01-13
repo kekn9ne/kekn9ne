@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 13 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AŞKIM ALLAH KURTARSIN** by *Lvbel C5* 🎶
 
 ---
 
-_"To do two things at once is to do neither. — *Publilius Syrus*"_
+_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
 
 ---
