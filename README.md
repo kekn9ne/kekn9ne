@@ -7,6 +7,6 @@
 
 ---
 
-_"He who fails to plan, plans to fail. — *Unknown*"_
+_"Every great change is preceded by chaos. — *Deepak Chopra*"_
 
 ---
