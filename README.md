@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 13 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **SOKAKLAR** by *Pois* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"In order for you to be the BEST you can be for others, first you must be BEST for yourself. — *Jeffrey Gitomer*"_
+_"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. — *Lao Tzu*"_
 
 ---
