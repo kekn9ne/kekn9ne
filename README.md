@@ -7,6 +7,6 @@
 
 ---
 
-_"The significance of life is living. — *Jiddu Krishnamurti*"_
+_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
 
 ---
