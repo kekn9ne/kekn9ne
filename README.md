@@ -7,6 +7,6 @@
 
 ---
 
-_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
+_"It's your outlook on life that counts. — *Betty White*"_
 
 ---
