@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 13 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **AŞKIM ALLAH KURTARSIN** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I have lived with several Zen masters -- all of them cats. — *Eckhart Tolle*"_
+_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
 
 ---
