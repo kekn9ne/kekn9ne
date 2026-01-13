@@ -7,6 +7,6 @@
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
 
 ---
