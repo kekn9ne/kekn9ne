@@ -7,6 +7,6 @@
 
 ---
 
-_"When you say yes to change, you are choosing to navigate that path peacefully and happily and see where it takes you. — *Sonia Ricotti*"_
+_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
 
 ---
