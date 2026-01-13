@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 14 January 2026**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Eve Geçelim** by *Şam* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People are not disturbed by things, but by the views they take of them. — *Epictetus*"_
+_"Every strike brings me closer to the next home run.  — *Babe Ruth*"_
 
 ---
