@@ -7,6 +7,6 @@
 
 ---
 
-_"No man becomes rich unless he enriches others. — *Andrew Carnegie*"_
+_"People have the illusion that all over the world, all the time, all kinds of fantastic things are happening. — *David Brinkley*"_
 
 ---
