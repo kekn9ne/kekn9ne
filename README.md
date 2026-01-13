@@ -7,6 +7,6 @@
 
 ---
 
-_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
+_"Not all those who wander are lost. — *J.R.R. Tolkien*"_
 
 ---
