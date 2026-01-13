@@ -7,6 +7,6 @@
 
 ---
 
-_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
+_"The significance of life is living. — *Jiddu Krishnamurti*"_
 
 ---
