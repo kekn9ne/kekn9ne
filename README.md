@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place where success comes before work is in the dictionary. — *Vidal Sassoon*"_
+_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
 
 ---
