@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 13 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
 
 ---
 
-_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
+_"When things go wrong, don't go with them. — *Elvis Presley*"_
 
 ---
