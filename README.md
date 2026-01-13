@@ -7,6 +7,6 @@
 
 ---
 
-_"Mastering others is strength, mastering yourself is true power. — *Lao Tzu*"_
+_"When you say yes to change, you are choosing to navigate that path peacefully and happily and see where it takes you. — *Sonia Ricotti*"_
 
 ---
