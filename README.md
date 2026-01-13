@@ -7,6 +7,6 @@
 
 ---
 
-_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
+_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
 
 ---
