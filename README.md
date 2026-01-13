@@ -7,6 +7,6 @@
 
 ---
 
-_"We must not cease from exploration. And the end of all our exploring will be to arrive where we began and to know the place for the first time. — *T.S. Eliot*"_
+_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
 
 ---
