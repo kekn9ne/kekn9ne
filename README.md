@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"We lie the loudest when we lie to ourselves. — *Eric Hoffer*"_
 
 ---
