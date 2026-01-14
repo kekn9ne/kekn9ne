@@ -7,6 +7,6 @@
 
 ---
 
-_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
+_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
 
 ---
