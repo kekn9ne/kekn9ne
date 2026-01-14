@@ -7,6 +7,6 @@
 
 ---
 
-_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
+_"You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. — *Eleanor Roosevelt*"_
 
 ---
