@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
+_"Most of us will do anything to avoid facing ourselves. — *Lolly Daskal*"_
 
 ---
