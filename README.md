@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled. — *Andrew Carnegie*"_
+_"Every person, all the events of your life are there because you have drawn them there. What you choose to do with them is up to you. — *Richard Bach*"_
 
 ---
