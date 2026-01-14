@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep true. Never be ashamed of doing right. Decide what you think is right and stick to it. — *George Eliot*"_
+_"Learn to use your emotions to think, not think with your emotions. — *Robert Kiyosaki*"_
 
 ---
