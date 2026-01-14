@@ -7,6 +7,6 @@
 
 ---
 
-_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
+_"Success seems to be connected to action. Successful people keep moving. They make mistakes, but they don't quit. — *Conrad Hilton*"_
 
 ---
