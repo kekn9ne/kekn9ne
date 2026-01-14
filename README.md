@@ -7,6 +7,6 @@
 
 ---
 
-_"Understanding that rests in what it does not understand is the finest. — *Zhuangzi*"_
+_"You know the more one does the more one can do. — *Amelia Earhart*"_
 
 ---
