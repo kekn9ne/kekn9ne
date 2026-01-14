@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
+_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
 
 ---
