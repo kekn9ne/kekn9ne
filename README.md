@@ -7,6 +7,6 @@
 
 ---
 
-_"Rather than waste time and energy worrying, use that time and energy to constructively deal with whatever is causing the worry. — *Celestine Chua*"_
+_"If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — *Elon Musk*"_
 
 ---
