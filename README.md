@@ -7,6 +7,6 @@
 
 ---
 
-_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
+_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
 
 ---
