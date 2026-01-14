@@ -7,6 +7,6 @@
 
 ---
 
-_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
+_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
 
 ---
