@@ -7,6 +7,6 @@
 
 ---
 
-_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
+_"Be courteous to all, but intimate with few, and let those few be well tried before you give them your confidence.  — *George Washington*"_
 
 ---
