@@ -7,6 +7,6 @@
 
 ---
 
-_"It is passion that makes man live; wisdom makes one only last. — *Nicolas Chamfort*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
