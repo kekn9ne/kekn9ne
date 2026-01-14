@@ -7,6 +7,6 @@
 
 ---
 
-_"If you chase two rabbits, you catch none. — *Confucius*"_
+_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
 
 ---
