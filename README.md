@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn your face to the sun, as flowers know how to do. — *Ming-Dao Deng*"_
+_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
 
 ---
