@@ -7,6 +7,6 @@
 
 ---
 
-_"I begin with an idea and then it becomes something else. — *Pablo Picasso*"_
+_"We forge the chains we wear in life. — *Charles Dickens*"_
 
 ---
