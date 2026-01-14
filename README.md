@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
+_"There is no right or wrong, only a series of possibilities that shift with each thought, feeling, and action that you experience. — *Deepak Chopra*"_
 
 ---
