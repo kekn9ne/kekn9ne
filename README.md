@@ -7,6 +7,6 @@
 
 ---
 
-_"The way out is in. — *Thich Nhat Hanh*"_
+_"To live fully is to be always in no-man's-land, to experience each moment as completely new and fresh. — *Pema Chodron*"_
 
 ---
