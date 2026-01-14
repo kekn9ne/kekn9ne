@@ -7,6 +7,6 @@
 
 ---
 
-_"You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. — *Eleanor Roosevelt*"_
+_"The more you praise and celebrate your life, the more there is in life to celebrate.  — *Oprah Winfrey*"_
 
 ---
