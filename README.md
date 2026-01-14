@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing brings down walls as surely as acceptance. — *Deepak Chopra*"_
+_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
 
 ---
