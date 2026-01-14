@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 14 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
+_"Don't seek, don't avoid, don't expect. Take what comes and be happy. — *Maxime Lagace*"_
 
 ---
