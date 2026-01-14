@@ -7,6 +7,6 @@
 
 ---
 
-_"Change happens when the pain of holding on becomes greater than the fear of letting go. — *Spencer Johnson*"_
+_"The way out is in. — *Thich Nhat Hanh*"_
 
 ---
