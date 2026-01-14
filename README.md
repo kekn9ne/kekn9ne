@@ -7,6 +7,6 @@
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
 
 ---
