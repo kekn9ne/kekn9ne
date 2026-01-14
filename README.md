@@ -7,6 +7,6 @@
 
 ---
 
-_"Identify your problems, but give your power and energy to solutions. — *Tony Robbins*"_
+_"I begin with an idea and then it becomes something else. — *Pablo Picasso*"_
 
 ---
