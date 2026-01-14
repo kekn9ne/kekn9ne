@@ -7,6 +7,6 @@
 
 ---
 
-_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
+_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
 
 ---
