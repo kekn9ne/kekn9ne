@@ -7,6 +7,6 @@
 
 ---
 
-_"Begin now to be what you will be hereafter. — *St. Jerome*"_
+_"Life goes by fast. Enjoy it. Calm down. It's all funny. — *Joan Rivers*"_
 
 ---
