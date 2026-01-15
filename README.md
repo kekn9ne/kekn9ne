@@ -7,6 +7,6 @@
 
 ---
 
-_"If your mind is empty, it is always ready for anything, it is open to everything. — *Shunryu Suzuki*"_
+_"Why fit in when you were born to stand out? — *Dr. Seuss*"_
 
 ---
