@@ -7,6 +7,6 @@
 
 ---
 
-_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
+_"Don´t hesitate or allow yourself to make excuses. Just get out and do it. — *Christopher McCandless*"_
 
 ---
