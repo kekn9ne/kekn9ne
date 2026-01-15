@@ -7,6 +7,6 @@
 
 ---
 
-_"Stop wasting time looking at someone else's reality while doing nothing about yours. — *Steve Harvey*"_
+_"We are most nearly ourselves when we achieve the seriousness of the child at play. — *Heraclitus*"_
 
 ---
