@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 15 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BYE BYE** by *Era7capone* 🎶
 
 ---
 
-_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
+_"The single most powerful asset we all have is our mind. — *Robert Kiyosaki*"_
 
 ---
