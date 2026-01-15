@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 15 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **7777777** by *DEHA INC.* 🎶
 
 ---
 
-_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
+_"Don't want anything. Then you get everything. — *Seungsahn*"_
 
 ---
