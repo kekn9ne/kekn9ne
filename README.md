@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
+_"It is hard to fail, but it is worse never to have tried to succeed. — *Theodore Roosevelt*"_
 
 ---
