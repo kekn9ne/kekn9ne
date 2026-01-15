@@ -7,6 +7,6 @@
 
 ---
 
-_"The only way out is through. — *Robert Frost*"_
+_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
 
 ---
