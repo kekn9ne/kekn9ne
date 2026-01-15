@@ -7,6 +7,6 @@
 
 ---
 
-_"It is children only who enjoy the present; their elders either live on the memory of the past or the hope of the future. — *Nicolas Chamfort*"_
+_"Until you change how you get things done, you'll never know what works best. — *Roy T. Bennett*"_
 
 ---
