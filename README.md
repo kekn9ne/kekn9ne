@@ -7,6 +7,6 @@
 
 ---
 
-_"A Rolling Stone Gathers No Moss. — *Publilius Syrus*"_
+_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
 
 ---
