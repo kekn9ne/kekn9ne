@@ -7,6 +7,6 @@
 
 ---
 
-_"Work as though you would live forever, and live as though you would die today. Go another mile. — *Og Mandino*"_
+_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
 
 ---
