@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear is a natural reaction to moving closer to the truth. — *Pema Chodron*"_
+_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
 
 ---
