@@ -7,6 +7,6 @@
 
 ---
 
-_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
+_"The road to success is always under construction.. — *Lily Tomlin*"_
 
 ---
