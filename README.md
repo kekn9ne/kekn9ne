@@ -7,6 +7,6 @@
 
 ---
 
-_"When you reach the end of your rope, tie a knot in it and hang on. — *Franklin D. Roosevelt*"_
+_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
 
 ---
