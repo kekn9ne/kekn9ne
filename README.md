@@ -7,6 +7,6 @@
 
 ---
 
-_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
+_"Learning is a gift, even when pain is your teacher. — *Michael Jordan*"_
 
 ---
