@@ -7,6 +7,6 @@
 
 ---
 
-_"Not engaging in ignorance is wisdom.  — *Bodhidharma*"_
+_"When you reach the end of your rope, tie a knot in it and hang on. — *Franklin D. Roosevelt*"_
 
 ---
