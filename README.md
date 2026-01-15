@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is the offspring of silence and meditation. — *Isaac Newton*"_
+_"We can know only that we know nothing. And that is the highest degree of human wisdom. — *Leo Tolstoy*"_
 
 ---
