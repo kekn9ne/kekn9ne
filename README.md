@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
+_"He who leaves the game wins it. — *Nicolas Chamfort*"_
 
 ---
