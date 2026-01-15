@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
+_"In the end, it's not the years in your life that count. It's the life in your years. — *Abraham Lincoln*"_
 
 ---
