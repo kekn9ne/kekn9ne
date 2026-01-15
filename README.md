@@ -7,6 +7,6 @@
 
 ---
 
-_"We forge the chains we wear in life. — *Charles Dickens*"_
+_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
 
 ---
