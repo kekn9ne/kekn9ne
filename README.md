@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't worry about being successful, but work toward being significant and the success will naturally follow. — *Oprah Winfrey*"_
+_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
 
 ---
