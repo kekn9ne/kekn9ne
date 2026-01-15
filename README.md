@@ -7,6 +7,6 @@
 
 ---
 
-_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
+_"People should pursue what they're passionate about. That will make them happier than pretty much anything else. — *Elon Musk*"_
 
 ---
