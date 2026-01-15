@@ -7,6 +7,6 @@
 
 ---
 
-_"In the end, it's not the years in your life that count. It's the life in your years. — *Abraham Lincoln*"_
+_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
 
 ---
