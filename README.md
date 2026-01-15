@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
+_"Don't worry about being successful, but work toward being significant and the success will naturally follow. — *Oprah Winfrey*"_
 
 ---
