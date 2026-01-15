@@ -7,6 +7,6 @@
 
 ---
 
-_"Always dream and shoot higher than you know you can do. Do not bother just to be better than your contemporaries or predecessors. Try to be better than yourself. — *William Faulkner*"_
+_"My mind seems to have become a kind of machine for grinding general laws out of large collections of facts. — *Charles Darwin*"_
 
 ---
