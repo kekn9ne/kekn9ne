@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 15 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **TOPSHOTTA** by *Yung Ouzo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To improve is to change, so to be perfect is to change often. — *Winston Churchill*"_
+_"If the only prayer you ever say in your entire life is thank you, it will be enough. — *Meister Eckhart*"_
 
 ---
