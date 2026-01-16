@@ -7,6 +7,6 @@
 
 ---
 
-_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
+_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
 
 ---
