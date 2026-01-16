@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
+_"Treat every moment as your last. It is not preparation for something else. — *Shunryu Suzuki*"_
 
 ---
