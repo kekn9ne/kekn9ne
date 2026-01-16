@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man makes his own decisions, but an ignorant man mindlessly follows the crowd. — *Chinese Proverb*"_
+_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
 
 ---
