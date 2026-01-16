@@ -7,6 +7,6 @@
 
 ---
 
-_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
+_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
 
 ---
