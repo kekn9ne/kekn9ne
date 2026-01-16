@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to offer no excuse than a bad one.  — *George Washington*"_
+_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
 
 ---
