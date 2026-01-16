@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
+_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
 
 ---
