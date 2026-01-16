@@ -7,6 +7,6 @@
 
 ---
 
-_"Take responsibility of your own happiness, never put it in other people's hands. — *Roy T. Bennett*"_
+_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
 
 ---
