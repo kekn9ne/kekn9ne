@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're waiting until you feel talented enough to make it, you'll never make it. — *Criss Jami*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
