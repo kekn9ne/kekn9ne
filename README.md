@@ -7,6 +7,6 @@
 
 ---
 
-_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
+_"When we allow negative messages to fester in our head, they take on a life of their own. — *Lolly Daskal*"_
 
 ---
