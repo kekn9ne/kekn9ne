@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
+_"The most wasted day of all is that on which we have not laughed. — *Nicolas Chamfort*"_
 
 ---
