@@ -7,6 +7,6 @@
 
 ---
 
-_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
+_"A man sees in the world what he carries in his heart. — *Johann Wolfgang von Goethe*"_
 
 ---
