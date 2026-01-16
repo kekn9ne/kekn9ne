@@ -7,6 +7,6 @@
 
 ---
 
-_"The meaning of life is just to be alive. It is so plain and so obvious and so simple. — *Alan Watts*"_
+_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
 
 ---
