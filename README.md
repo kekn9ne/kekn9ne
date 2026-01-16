@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 16 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ÇAKKIDI 2.0** by *Ali Salvatore* 🎶
+🎧 Currently Listening: **BYE BYE** by *Era7capone* 🎶
 
 ---
 
-_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
+_"Victims recite problems, leaders provide solutions. — *Robin Sharma*"_
 
 ---
