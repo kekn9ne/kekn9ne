@@ -7,6 +7,6 @@
 
 ---
 
-_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
+_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
 
 ---
