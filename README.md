@@ -7,6 +7,6 @@
 
 ---
 
-_"To acquire true self power you have to feel beneath no one, be immune to criticism and be fearless. — *Deepak Chopra*"_
+_"The meaning of life is just to be alive. It is so plain and so obvious and so simple. — *Alan Watts*"_
 
 ---
