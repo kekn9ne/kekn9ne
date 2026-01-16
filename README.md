@@ -7,6 +7,6 @@
 
 ---
 
-_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
+_"When you have a dream, you've got to grab it and never let go. — *Carol Burnett*"_
 
 ---
