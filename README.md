@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 16 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **FINISH HIM** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"We have to live life with a sense of urgency so not a minute is wasted. — *Les Brown*"_
 
 ---
