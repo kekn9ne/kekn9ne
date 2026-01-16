@@ -7,6 +7,6 @@
 
 ---
 
-_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
+_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
 
 ---
