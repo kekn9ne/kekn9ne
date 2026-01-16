@@ -7,6 +7,6 @@
 
 ---
 
-_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
+_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
 
 ---
