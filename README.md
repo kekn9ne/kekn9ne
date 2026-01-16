@@ -7,6 +7,6 @@
 
 ---
 
-_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
+_"If I cannot do great things. I can do small things in a great way. — *Martin Luther King, Jr.*"_
 
 ---
