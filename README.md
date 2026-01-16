@@ -7,6 +7,6 @@
 
 ---
 
-_"But better die than live mechanically a life that is a repetition of repetitions. — *D. H. Lawrence*"_
+_"Resentment or grudges do no harm to the person against whom you hold these feelings but every day and every night of your life, they are eating at you. — *Norman Vincent Peale*"_
 
 ---
