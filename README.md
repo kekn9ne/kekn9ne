@@ -7,6 +7,6 @@
 
 ---
 
-_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
