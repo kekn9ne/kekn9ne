@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away. — *John Lennon*"_
+_"Time is more valuable than money. You can get more money, but you cannot get more time. — *Jim Rohn*"_
 
 ---
