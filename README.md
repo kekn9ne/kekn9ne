@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to sit back and observe, not everything needs a reaction. — *Unknown*"_
+_"Success is an iceberg. — *Unknown*"_
 
 ---
