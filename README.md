@@ -7,6 +7,6 @@
 
 ---
 
-_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
+_"If you want peace, accept. If you want suffering, expect. — *Maxime Lagace*"_
 
 ---
