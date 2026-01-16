@@ -7,6 +7,6 @@
 
 ---
 
-_"As you love yourself, life loves you back. — *Kamal Ravikant*"_
+_"If the plan doesn't work, change the plan, but never the goal. — *Unknown*"_
 
 ---
