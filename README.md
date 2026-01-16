@@ -7,6 +7,6 @@
 
 ---
 
-_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
+_"Trust thyself: every heart vibrates to that iron string. — *Ralph Waldo Emerson*"_
 
 ---
