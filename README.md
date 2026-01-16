@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest challenge after success is shutting up about it. — *Criss Jami*"_
+_"People who belittle people, will be LITTLE people, and will accomplish very Little — *Norman Vincent Peale*"_
 
 ---
