@@ -7,6 +7,6 @@
 
 ---
 
-_"When the world pushes you to your knees, you're in the perfect position to pray. — *Rumi*"_
+_"Those who attain the middle Dominate the whole. — *Ming-Dao Deng*"_
 
 ---
