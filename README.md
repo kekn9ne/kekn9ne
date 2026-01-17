@@ -7,6 +7,6 @@
 
 ---
 
-_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
