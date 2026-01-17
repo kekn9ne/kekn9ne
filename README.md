@@ -7,6 +7,6 @@
 
 ---
 
-_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
+_"Everybody has talent, but ability takes hard work. — *Michael Jordan*"_
 
 ---
