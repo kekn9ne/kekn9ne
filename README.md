@@ -7,6 +7,6 @@
 
 ---
 
-_"The businessman's tool is value. — *Ayn Rand*"_
+_"Even if you persuade me, you won't persuade me. — *Aristophanes*"_
 
 ---
