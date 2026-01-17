@@ -7,6 +7,6 @@
 
 ---
 
-_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
+_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
 
 ---
