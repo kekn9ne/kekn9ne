@@ -7,6 +7,6 @@
 
 ---
 
-_"Things do not have meaning. We assign meaning to everything. — *Tony Robbins*"_
+_"Do what you can, with what you have, where you are. — *Theodore Roosevelt*"_
 
 ---
