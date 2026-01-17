@@ -7,6 +7,6 @@
 
 ---
 
-_"Your next step is simple. You are the first domino. — *Gary Keller*"_
+_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
 
 ---
