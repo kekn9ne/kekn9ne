@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody has talent, but ability takes hard work. — *Michael Jordan*"_
+_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
 
 ---
