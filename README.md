@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
+_"If I can pay the bills, I'm happy. — *Morgan Wootten*"_
 
 ---
