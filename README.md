@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
+_"All human beings can alter their lives by altering their attitudes. — *Andrew Carnegie*"_
 
 ---
