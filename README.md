@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not meant to be easy my child, but take courage: it can be delightful. — *George Bernard Shaw*"_
+_"What would you do if you weren't afraid? — *Spencer Johnson*"_
 
 ---
