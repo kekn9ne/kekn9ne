@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"Life is not meant to be easy my child, but take courage: it can be delightful. — *George Bernard Shaw*"_
 
 ---
