@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 17 January 2026**  
 🌤️ Weather in Istanbul: **🌦   +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Family Matters** by *Drake* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"Debt is the slavery of the free. — *Publilius Syrus*"_
 
 ---
