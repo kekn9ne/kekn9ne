@@ -7,6 +7,6 @@
 
 ---
 
-_"To handle yourself, use your head; to handle others, use your heart. — *Eleanor Roosevelt*"_
+_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
 
 ---
