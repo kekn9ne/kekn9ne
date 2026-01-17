@@ -7,6 +7,6 @@
 
 ---
 
-_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
+_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
 
 ---
