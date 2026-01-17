@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you persuade me, you won't persuade me. — *Aristophanes*"_
+_"Older men declare war. But it is youth that must fight and die. — *Herbert Hoover*"_
 
 ---
