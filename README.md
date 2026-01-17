@@ -7,6 +7,6 @@
 
 ---
 
-_"Desire for the fruits of work must never be your motive in working. — *Bhagavad Gita*"_
+_"I thought how unpleasant it is to be locked out; and I thought how it is worse, perhaps, to be locked in. — *Virginia Woolf*"_
 
 ---
