@@ -7,6 +7,6 @@
 
 ---
 
-_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
+_"The biggest mistake we could ever make in our lives is to think we work for anybody but ourselves. — *Brian Tracy*"_
 
 ---
