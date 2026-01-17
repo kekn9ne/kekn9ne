@@ -7,6 +7,6 @@
 
 ---
 
-_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
+_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
 
 ---
