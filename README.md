@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
+_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
 
 ---
