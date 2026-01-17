@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 17 January 2026**  
 🌤️ Weather in Istanbul: **🌦   +5°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Family Matters** by *Drake* 🎶
 
 ---
 
-_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
+_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
 
 ---
