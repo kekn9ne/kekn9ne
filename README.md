@@ -7,6 +7,6 @@
 
 ---
 
-_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
+_"You can't make someone feel good about themselves until you feel good about yourself. — *Robin Sharma*"_
 
 ---
