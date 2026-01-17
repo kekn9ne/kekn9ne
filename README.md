@@ -7,6 +7,6 @@
 
 ---
 
-_"Older men declare war. But it is youth that must fight and die. — *Herbert Hoover*"_
+_"If life were predictable it would cease to be life, and be without flavor. — *Eleanor Roosevelt*"_
 
 ---
