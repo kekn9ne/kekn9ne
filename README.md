@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 17 January 2026**  
-🌤️ Weather in Istanbul: **🌧   +2°C**  
+🗓️ Today is: **Sunday, 18 January 2026**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you believe in a thing, believe in it all the way, implicitly and unquestionable. — *Walt Disney*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
