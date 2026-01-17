@@ -7,6 +7,6 @@
 
 ---
 
-_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
+_"Fear is what stops you. Courage is what keeps you going. — *Unknown*"_
 
 ---
