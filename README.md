@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 17 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +5°C**  
+🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
+_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
 
 ---
