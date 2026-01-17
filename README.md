@@ -7,6 +7,6 @@
 
 ---
 
-_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
+_"Growth comes at the point of resistance. — *Josh Waitzkin*"_
 
 ---
