@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the dancer and you are the dance. — *Eckhart Tolle*"_
+_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
 
 ---
