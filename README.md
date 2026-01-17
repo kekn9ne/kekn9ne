@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't settle, and don't struggle. — *Naval Ravikant*"_
+_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
 
 ---
