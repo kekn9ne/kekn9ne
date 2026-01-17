@@ -7,6 +7,6 @@
 
 ---
 
-_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
+_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
 
 ---
