@@ -7,6 +7,6 @@
 
 ---
 
-_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
+_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
 
 ---
