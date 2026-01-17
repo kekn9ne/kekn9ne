@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 17 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +3°C**  
+🌤️ Weather in Istanbul: **⛅️  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **56** by *KAVAK* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Things do not have meaning. We assign meaning to everything. — *Tony Robbins*"_
+_"Don't change your mind just because people are offended; change your mind if you're wrong. — *Criss Jami*"_
 
 ---
