@@ -7,6 +7,6 @@
 
 ---
 
-_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
+_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
 
 ---
