@@ -7,6 +7,6 @@
 
 ---
 
-_"Hardly anybody recognizes the most significant moments of their life at the time they happen. — *W.P. Kinsella*"_
+_"When you believe in a thing, believe in it all the way, implicitly and unquestionable. — *Walt Disney*"_
 
 ---
