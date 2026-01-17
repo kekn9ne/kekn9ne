@@ -7,6 +7,6 @@
 
 ---
 
-_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
+_"The only thing worse than being blind is having sight but no vision. — *Helen Keller*"_
 
 ---
