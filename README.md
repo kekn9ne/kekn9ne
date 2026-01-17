@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
+_"You will succeed because most people are lazy. — *Shahir Zag*"_
 
 ---
