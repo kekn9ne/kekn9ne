@@ -7,6 +7,6 @@
 
 ---
 
-_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
