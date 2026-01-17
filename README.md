@@ -7,6 +7,6 @@
 
 ---
 
-_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
+_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
 
 ---
