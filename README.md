@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't make someone feel good about themselves until you feel good about yourself. — *Robin Sharma*"_
+_"Trust is built and maintained by many small actions over time. — *Lolly Daskal*"_
 
 ---
