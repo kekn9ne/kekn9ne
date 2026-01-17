@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe that life is worth living and your belief will help create the fact. — *William James*"_
+_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
 
 ---
