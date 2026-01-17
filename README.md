@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
