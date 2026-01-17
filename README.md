@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
+_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
 
 ---
