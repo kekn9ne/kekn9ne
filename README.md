@@ -7,6 +7,6 @@
 
 ---
 
-_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
+_"Everyday you can take a tiny step in the right direction. — *Unknown*"_
 
 ---
