@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember that the best relationship is one in which your love for each other exceeds your need for each other. — *Dalai Lama*"_
+_"The goal of an artist is to create the definitive work that cannot be surpassed. — *George Bernard Shaw*"_
 
 ---
