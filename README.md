@@ -7,6 +7,6 @@
 
 ---
 
-_"Do what you can, with what you have, where you are. — *Theodore Roosevelt*"_
+_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
 
 ---
