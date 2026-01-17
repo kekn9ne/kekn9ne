@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything flows, nothing stands still. — *Heraclitus*"_
+_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
 
 ---
