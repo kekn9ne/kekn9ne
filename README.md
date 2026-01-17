@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't think money does everything or you are going to end up doing everything for money. — *Voltaire*"_
+_"Desire for the fruits of work must never be your motive in working. — *Bhagavad Gita*"_
 
 ---
