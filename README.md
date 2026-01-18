@@ -7,6 +7,6 @@
 
 ---
 
-_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
