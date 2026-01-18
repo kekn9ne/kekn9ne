@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
+_"You may delay, but time will not. — *Benjamin Franklin*"_
 
 ---
