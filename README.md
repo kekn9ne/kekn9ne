@@ -7,6 +7,6 @@
 
 ---
 
-_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
+_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
 
 ---
