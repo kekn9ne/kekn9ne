@@ -7,6 +7,6 @@
 
 ---
 
-_"You may delay, but time will not. — *Benjamin Franklin*"_
+_"The soul is neither born, and nor does it die. — *Bhagavad Gita*"_
 
 ---
