@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
