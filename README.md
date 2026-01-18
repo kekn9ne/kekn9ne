@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
+_"All power is from within and therefore under our control. — *Robert Collier*"_
 
 ---
