@@ -7,6 +7,6 @@
 
 ---
 
-_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
+_"When the time is gone, you can never get it back. — *Stephen King*"_
 
 ---
