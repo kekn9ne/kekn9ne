@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what you say out of your mouth that determines your life, it's what you whisper to yourself that has the most power! — *Robert Kiyosaki*"_
+_"Success is often achieved by those who don't know that failure is inevitable. — *Coco Chanel*"_
 
 ---
