@@ -7,6 +7,6 @@
 
 ---
 
-_"The more we have the less we own. — *Meister Eckhart*"_
+_"To be calm is the highest achievement of the self. — *Zen Proverb*"_
 
 ---
