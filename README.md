@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul is neither born, and nor does it die. — *Bhagavad Gita*"_
+_"Never put off to tomorrow what you can do to-day. — *Thomas Jefferson*"_
 
 ---
