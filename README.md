@@ -7,6 +7,6 @@
 
 ---
 
-_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
