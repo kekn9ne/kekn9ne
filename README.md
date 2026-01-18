@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not absence of conflict, it is the ability to handle conflict by peaceful means. — *Ronald Reagan*"_
+_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
 
 ---
