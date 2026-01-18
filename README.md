@@ -7,6 +7,6 @@
 
 ---
 
-_"It all depends on what you choose to believe. — *Spencer Johnson*"_
+_"Instead of thinking outside the box, get rid of the box. — *Deepak Chopra*"_
 
 ---
