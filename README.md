@@ -7,6 +7,6 @@
 
 ---
 
-_"Good luck is opportunity meeting preparedness. — *Deepak Chopra*"_
+_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
 
 ---
