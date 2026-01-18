@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 18 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **İKİ TANE SARI** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What a liberation to realize that 'the voice in my head' is not who I am. Who am I then? The one who sees that. — *Eckhart Tolle*"_
+_"A loving heart is the truest wisdom. — *Charles Dickens*"_
 
 ---
