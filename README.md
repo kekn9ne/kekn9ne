@@ -7,6 +7,6 @@
 
 ---
 
-_"Men are equal; it is not birth but virtue that makes the difference. — *Voltaire*"_
+_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
 
 ---
