@@ -7,6 +7,6 @@
 
 ---
 
-_"Where violence reigns, reason is weak. — *Nicolas Chamfort*"_
+_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
 
 ---
