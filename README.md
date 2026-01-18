@@ -7,6 +7,6 @@
 
 ---
 
-_"Try all things, hold fast that which is good. — *John Locke*"_
+_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
 
 ---
