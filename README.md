@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of thinking outside the box, get rid of the box. — *Deepak Chopra*"_
+_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
 
 ---
