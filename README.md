@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is not fatal, but failure to change might be. — *John Wooden*"_
+_"Whatever you think the world is withholding from you, you are withholding from the world. — *Eckhart Tolle*"_
 
 ---
