@@ -7,6 +7,6 @@
 
 ---
 
-_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
+_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
 
 ---
