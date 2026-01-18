@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth is exact correspondence with reality.  — *Paramahansa Yogananda*"_
+_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
 
 ---
