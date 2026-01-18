@@ -7,6 +7,6 @@
 
 ---
 
-_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
+_"When you judge others, you do not define them, you define yourself. — *Earl Nightingale*"_
 
 ---
