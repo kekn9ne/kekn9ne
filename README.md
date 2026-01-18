@@ -7,6 +7,6 @@
 
 ---
 
-_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
+_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
 
 ---
