@@ -7,6 +7,6 @@
 
 ---
 
-_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
+_"If what you're doing is not your passion, you have nothing to lose. — *Celestine Chua*"_
 
 ---
