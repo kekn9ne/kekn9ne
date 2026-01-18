@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise man will be master of his mind, a fool will be its slave. — *Publilius Syrus*"_
+_"Man must use what he has, not hope for what is not. — *G.I. Gurdjieff*"_
 
 ---
