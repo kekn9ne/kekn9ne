@@ -7,6 +7,6 @@
 
 ---
 
-_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
+_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
 
 ---
