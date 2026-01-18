@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember, today is the tomorrow you worried about yesterday. — *Dale Carnegie*"_
+_"The mind is the limit. — *Arnold Schwarzenegger*"_
 
 ---
