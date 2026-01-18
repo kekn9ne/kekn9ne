@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you think the world is withholding from you, you are withholding from the world. — *Eckhart Tolle*"_
+_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
 
 ---
