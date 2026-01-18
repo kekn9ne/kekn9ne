@@ -7,6 +7,6 @@
 
 ---
 
-_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
+_"Try all things, hold fast that which is good. — *John Locke*"_
 
 ---
