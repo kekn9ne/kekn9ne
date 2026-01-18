@@ -7,6 +7,6 @@
 
 ---
 
-_"No amount of regretting can change the past, and no amount of worrying can change the future. — *Roy T. Bennett*"_
+_"Speak when you are angry - and you'll make the best speech you'll ever regret. — *Laurence J. Peter*"_
 
 ---
