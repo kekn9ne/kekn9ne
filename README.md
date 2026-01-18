@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"I can live without money, but I cannot live without love. — *Judy Garland*"_
 
 ---
