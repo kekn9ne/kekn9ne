@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 18 January 2026**  
-🌤️ Weather in Istanbul: **🌨  +1°C**  
+🌤️ Weather in Istanbul: **🌨  +0°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When you know what you want, and you want it bad enough, you will find a way to get it. — *Jim Rohn*"_
+_"The world doesn't always give you want, but it often gives you what you need. — *Naval Ravikant*"_
 
 ---
