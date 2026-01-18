@@ -7,6 +7,6 @@
 
 ---
 
-_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
+_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
 
 ---
