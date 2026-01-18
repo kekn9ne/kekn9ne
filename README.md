@@ -7,6 +7,6 @@
 
 ---
 
-_"I can live without money, but I cannot live without love. — *Judy Garland*"_
+_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
 
 ---
