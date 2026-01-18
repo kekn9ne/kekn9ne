@@ -7,6 +7,6 @@
 
 ---
 
-_"All power is from within and therefore under our control. — *Robert Collier*"_
+_"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. — *Lao Tzu*"_
 
 ---
