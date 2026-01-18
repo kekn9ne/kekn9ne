@@ -7,6 +7,6 @@
 
 ---
 
-_"A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy. — *Norman Vincent Peale*"_
+_"It all depends on what you choose to believe. — *Spencer Johnson*"_
 
 ---
