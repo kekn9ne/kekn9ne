@@ -7,6 +7,6 @@
 
 ---
 
-_"The future will be shaped by those willing to commit their minds and their bodies to the task. — *Robert F. Kennedy*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
