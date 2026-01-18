@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't Let Yesterday Take Up Too Much Of Today. — *Will Rogers*"_
+_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
 
 ---
