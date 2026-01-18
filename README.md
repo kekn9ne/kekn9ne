@@ -7,6 +7,6 @@
 
 ---
 
-_"Persistence. Perfection. Patience. Power. Prioritize your passion. It keeps you sane. — *Criss Jami*"_
+_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
 
 ---
