@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone has the right to make his own decisions, but none has the right to force his decision on others. — *Ayn Rand*"_
+_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
 
 ---
