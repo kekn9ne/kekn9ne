@@ -7,6 +7,6 @@
 
 ---
 
-_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
+_"Your greatest asset is your earning ability. Your greatest resource is your time. — *Brian Tracy*"_
 
 ---
