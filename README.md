@@ -7,6 +7,6 @@
 
 ---
 
-_"To be calm is the highest achievement of the self. — *Zen Proverb*"_
+_"We run to win, not just to be in the race.   — *Vince Lombardi*"_
 
 ---
