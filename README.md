@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"The future will be shaped by those willing to commit their minds and their bodies to the task. — *Robert F. Kennedy*"_
 
 ---
