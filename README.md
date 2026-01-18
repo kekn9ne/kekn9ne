@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 18 January 2026**  
 🌤️ Weather in Istanbul: **🌨  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **VIP - SLOWED Version** by *Tuğrul Bektaş* 🎶
 
 ---
 
-_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
+_"It takes half your life before you discover life is a do-it-yourself project. — *Napoleon Hill*"_
 
 ---
