@@ -7,6 +7,6 @@
 
 ---
 
-_"If you run you stand a chance of losing, but if you don't run you've already lost. — *Barack Obama*"_
+_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
 
 ---
