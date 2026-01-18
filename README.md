@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 18 January 2026**  
 🌤️ Weather in Istanbul: **🌨  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **VIP - SLOWED Version** by *Tuğrul Bektaş* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It takes half your life before you discover life is a do-it-yourself project. — *Napoleon Hill*"_
+_"A vital part of the happiness formula is self-discipline. Whoever conquers himself knows deep happiness that fills the heart with joy. — *Norman Vincent Peale*"_
 
 ---
