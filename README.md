@@ -7,6 +7,6 @@
 
 ---
 
-_"To belittle, you have to be little. — *Kahlil Gibran*"_
+_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
 
 ---
