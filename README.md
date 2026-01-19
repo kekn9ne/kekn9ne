@@ -7,6 +7,6 @@
 
 ---
 
-_"Work out your own salvation. Do not depend on others. — *Buddha*"_
+_"Do not be so open-minded that your brains fall out. — *Gilbert Chesterton*"_
 
 ---
