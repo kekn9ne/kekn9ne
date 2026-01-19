@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with ignorance. It only leads to frustration. — *Unknown*"_
+_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
 
 ---
