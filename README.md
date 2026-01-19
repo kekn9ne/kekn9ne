@@ -7,6 +7,6 @@
 
 ---
 
-_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
+_"Every great change is preceded by chaos. — *Deepak Chopra*"_
 
 ---
