@@ -7,6 +7,6 @@
 
 ---
 
-_"Simplicity is a difficult thing to achieve.   — *Charlie Chaplin*"_
+_"People will forget what you said, people will forget what you did, but people will never forget how you made them feel. — *Maya Angelou*"_
 
 ---
