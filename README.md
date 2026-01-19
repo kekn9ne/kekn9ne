@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has more imagination than we carry in our dreams. — *Christopher Columbus*"_
+_"Success is never final; failure is never fatal. — *Conrad Hilton*"_
 
 ---
