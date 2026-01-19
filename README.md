@@ -7,6 +7,6 @@
 
 ---
 
-_"Zen insists that the whole trouble is just our failure to realize that there is no problem. — *Bruce Lee*"_
+_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
 
 ---
