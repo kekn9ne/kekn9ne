@@ -7,6 +7,6 @@
 
 ---
 
-_"A man should do his job so well that the living, the dead, and the unborn could do it no better. — *Martin Luther King, Jr.*"_
+_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
 
 ---
