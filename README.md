@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is never final; failure is never fatal. — *Conrad Hilton*"_
+_"There is no one giant step that does it. It's a lot of little steps. — *Peter A. Cohen*"_
 
 ---
