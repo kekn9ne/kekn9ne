@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism is the faith that leads to achievement. Nothing can be done without hope and confidence. — *Helen Keller*"_
+_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
 
 ---
