@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be so open-minded that your brains fall out. — *Gilbert Chesterton*"_
+_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
 
 ---
