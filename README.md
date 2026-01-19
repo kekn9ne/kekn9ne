@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 19 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +2°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Aynen** by *Heijan* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
+_"If you've made a mistake, it's better just to laugh at it. — *Zen Proverb*"_
 
 ---
