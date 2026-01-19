@@ -7,6 +7,6 @@
 
 ---
 
-_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
+_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
 
 ---
