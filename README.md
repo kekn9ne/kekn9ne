@@ -7,6 +7,6 @@
 
 ---
 
-_"Being wrong brings the opportunity for growth. — *Mark Manson*"_
+_"It is often safer to be in chains than to be free.  — *Franz Kafka*"_
 
 ---
