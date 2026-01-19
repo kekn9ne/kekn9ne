@@ -7,6 +7,6 @@
 
 ---
 
-_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
+_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
 
 ---
