@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
+_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
 
 ---
