@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't know who is important to you until you actually lose them. — *Mahatma Gandhi*"_
+_"Stay strong. Keep coding. 💪"_
 
 ---
