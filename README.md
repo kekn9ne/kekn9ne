@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn from the rejection and turn it into an opportunity! — *Mary Engelbreit*"_
+_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
 
 ---
