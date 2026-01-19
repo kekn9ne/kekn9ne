@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is simply what our feelings do to us. — *Honore de Balzac*"_
+_"Sometimes you have to lose all you have to find out who you truly are. — *Roy T. Bennett*"_
 
 ---
