@@ -7,6 +7,6 @@
 
 ---
 
-_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
+_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
 
 ---
