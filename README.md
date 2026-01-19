@@ -7,6 +7,6 @@
 
 ---
 
-_"Every great change is preceded by chaos. — *Deepak Chopra*"_
+_"Zen insists that the whole trouble is just our failure to realize that there is no problem. — *Bruce Lee*"_
 
 ---
