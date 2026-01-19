@@ -7,6 +7,6 @@
 
 ---
 
-_"Stay strong. Keep coding. 💪"_
+_"I succeeded by saying what everyone else is thinking. — *Joan Rivers*"_
 
 ---
