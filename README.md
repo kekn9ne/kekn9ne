@@ -7,6 +7,6 @@
 
 ---
 
-_"Inner peace is when you realize that, in the end, nothing matters. — *Maxime Lagace*"_
+_"A life spent making mistakes is not only more honorable but more useful than a life spent doing nothing. — *George Bernard Shaw*"_
 
 ---
