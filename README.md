@@ -7,6 +7,6 @@
 
 ---
 
-_"Begin at once to live, and count each separate day as a separate life.   — *Seneca*"_
+_"Men trust their ears less than their eyes. — *Herodotus*"_
 
 ---
