@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't concern yourself with the money. Be of service. Build. Work. Dream. Create. — *Earl Nightingale*"_
+_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
