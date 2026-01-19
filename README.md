@@ -7,6 +7,6 @@
 
 ---
 
-_"The world makes way for the man who knows where he is going. — *Ralph Waldo Emerson*"_
+_"Talk to someone about themselves and they'll listen for hours. — *Dale Carnegie*"_
 
 ---
