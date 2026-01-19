@@ -7,6 +7,6 @@
 
 ---
 
-_"By perseverance the snail reached the ark. — *Charles Spurgeon*"_
+_"The difference between treason and patriotism is only a matter of dates. — *Alexandre Dumas*"_
 
 ---
