@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
 
 ---
