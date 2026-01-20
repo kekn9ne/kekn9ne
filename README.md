@@ -7,6 +7,6 @@
 
 ---
 
-_"Even when you think you have your life all mapped out, things happen that shape your destiny in ways you might never have imagined. — *Deepak Chopra*"_
+_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
 
 ---
