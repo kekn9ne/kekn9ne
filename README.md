@@ -7,6 +7,6 @@
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
 
 ---
