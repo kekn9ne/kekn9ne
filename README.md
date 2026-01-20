@@ -7,6 +7,6 @@
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
 
 ---
