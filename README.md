@@ -7,6 +7,6 @@
 
 ---
 
-_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
+_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
 
 ---
