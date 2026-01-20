@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot change anything unless we accept it. — *Carl Jung*"_
+_"It's the little things done consistently over time, straight from your heart, that have the greatest impact. — *Unknown*"_
 
 ---
