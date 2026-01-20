@@ -7,6 +7,6 @@
 
 ---
 
-_"I take the position that I'm always to some degree wrong, and the aspiration is to be less wrong. — *Elon Musk*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
