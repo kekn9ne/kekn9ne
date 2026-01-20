@@ -7,6 +7,6 @@
 
 ---
 
-_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
+_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
 
 ---
