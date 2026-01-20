@@ -7,6 +7,6 @@
 
 ---
 
-_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
+_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
 
 ---
