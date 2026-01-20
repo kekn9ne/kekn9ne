@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 20 January 2026**  
-🌤️ Weather in Istanbul: **☀️   +3°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If they wrote it to make money, don't read it. — *Naval Ravikant*"_
+_"Ancient Rule of Twenty-one: if you do anything for twenty-one days in a row, it will be installed as a habit. — *Robin Sharma*"_
 
 ---
