@@ -7,6 +7,6 @@
 
 ---
 
-_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
+_"People rarely succeed unless they have fun in what they are doing. — *Dale Carnegie*"_
 
 ---
