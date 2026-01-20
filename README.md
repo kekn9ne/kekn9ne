@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
+_"There is no greatness where there is not simplicity, goodness, and truth. — *Leo Tolstoy*"_
 
 ---
