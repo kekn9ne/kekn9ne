@@ -8,6 +8,6 @@
 
 ---
 
-_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
+_"Never do to others what you would not like them to do to you.  — *Confucius*"_
 
 ---
