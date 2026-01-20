@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
+_"We cannot change anything unless we accept it. — *Carl Jung*"_
 
 ---
