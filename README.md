@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"Confidence is contagious. So is lack of confidence. — *Vince Lombardi*"_
 
 ---
