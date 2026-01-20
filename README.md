@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no greatness where there is not simplicity, goodness, and truth. — *Leo Tolstoy*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
