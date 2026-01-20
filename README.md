@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything begins with an idea. — *Earl Nightingale*"_
+_"To be fully alive is to feel that everything is possible. — *Eric Hoffer*"_
 
 ---
