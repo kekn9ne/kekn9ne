@@ -1,12 +1,13 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 20 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +3°C**  
+🌤️ Weather in Istanbul: **//x.com/igor_chubin for the updates.
+======================================================================================**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
