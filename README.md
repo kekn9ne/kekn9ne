@@ -7,6 +7,6 @@
 
 ---
 
-_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
+_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
 
 ---
