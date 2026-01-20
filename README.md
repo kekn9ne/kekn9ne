@@ -7,6 +7,6 @@
 
 ---
 
-_"Realistic people do not accomplish extraordinary things. — *John Eliot*"_
+_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
 
 ---
