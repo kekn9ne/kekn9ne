@@ -7,6 +7,6 @@
 
 ---
 
-_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
+_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
 
 ---
