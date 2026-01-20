@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
+_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
 
 ---
