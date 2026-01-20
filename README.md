@@ -7,6 +7,6 @@
 
 ---
 
-_"When things go wrong, don't go with them. — *Elvis Presley*"_
+_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
 
 ---
