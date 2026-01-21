@@ -7,6 +7,6 @@
 
 ---
 
-_"Work harder on yourself than you do on your job. — *Jim Rohn*"_
+_"Change the changeable, accept the unchangeable, and remove yourself from the unacceptable.  — *Denis Waitley*"_
 
 ---
