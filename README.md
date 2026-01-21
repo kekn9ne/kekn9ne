@@ -7,6 +7,6 @@
 
 ---
 
-_"Half the world is composed of people who have something to say and can't, and the other half who have nothing to say and keep on saying it. — *Robert Frost*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
