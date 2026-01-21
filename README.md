@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"In the beginner's mind there are many possibilities, but in the expert's mind there are few. — *Shunryu Suzuki*"_
 
 ---
