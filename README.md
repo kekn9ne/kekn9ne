@@ -7,6 +7,6 @@
 
 ---
 
-_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
+_"Knowledge is learning something everyday. Wisdom is letting go of something everyday. — *Unknown*"_
 
 ---
