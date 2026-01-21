@@ -7,6 +7,6 @@
 
 ---
 
-_"When you repeat a mistake, it is not a mistake anymore: it is a decision. — *Paulo Coelho*"_
+_"Work harder on yourself than you do on your job. — *Jim Rohn*"_
 
 ---
