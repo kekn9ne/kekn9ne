@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 21 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +7°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"No amount of regretting can change the past, and no amount of worrying can change the future. — *Roy T. Bennett*"_
+_"The right thing to do and the hard thing to do are usually the same. — *Steve Maraboli*"_
 
 ---
