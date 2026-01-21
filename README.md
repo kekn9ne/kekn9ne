@@ -7,6 +7,6 @@
 
 ---
 
-_"Raise your words, not voice. It is rain that grows flowers, not thunder. — *Rumi*"_
+_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
 
 ---
