@@ -7,6 +7,6 @@
 
 ---
 
-_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
+_"Work harder on yourself than you do on your job. — *Jim Rohn*"_
 
 ---
