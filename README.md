@@ -7,6 +7,6 @@
 
 ---
 
-_"You will not do incredible things without an incredible dream. — *John Eliot*"_
+_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
 
 ---
