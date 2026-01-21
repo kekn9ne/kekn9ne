@@ -7,6 +7,6 @@
 
 ---
 
-_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
+_"You can do two things at once, but you can't focus effectively on two things at once. — *Gary Keller*"_
 
 ---
