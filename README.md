@@ -7,6 +7,6 @@
 
 ---
 
-_"Alone we can do so little; together we can do so much. — *Helen Keller*"_
+_"There is always room in your life for thinking bigger, pushing limits and imagining the impossible. — *Tony Robbins*"_
 
 ---
