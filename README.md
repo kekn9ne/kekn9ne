@@ -7,6 +7,6 @@
 
 ---
 
-_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
+_"No amount of regretting can change the past, and no amount of worrying can change the future. — *Roy T. Bennett*"_
 
 ---
