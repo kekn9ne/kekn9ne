@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
+_"Enjoy when you can, and endure when you must. — *Johann Wolfgang von Goethe*"_
 
 ---
