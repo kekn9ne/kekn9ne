@@ -7,6 +7,6 @@
 
 ---
 
-_"Quiet people have the loudest minds. — *Stephen King*"_
+_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
 
 ---
