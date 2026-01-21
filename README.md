@@ -7,6 +7,6 @@
 
 ---
 
-_"It matters not who you love, where you love, why you love, when you love or how you love, it matters only that you love. — *John Lennon*"_
+_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
 
 ---
