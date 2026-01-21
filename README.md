@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
+_"I have not failed. I've just found 10,000 ways that won't work. — *Thomas Edison*"_
 
 ---
