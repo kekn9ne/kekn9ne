@@ -7,6 +7,6 @@
 
 ---
 
-_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
+_"Mastering others is strength, mastering yourself is true power. — *Lao Tzu*"_
 
 ---
