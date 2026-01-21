@@ -7,6 +7,6 @@
 
 ---
 
-_"You drown not by falling into a river, but by staying submerged in it. — *Paulo Coelho*"_
+_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
 
 ---
