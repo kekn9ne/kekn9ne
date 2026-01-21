@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger exceeding limits causes fear and excessive kindness eliminates respect. — *Euripides*"_
+_"It takes half your life before you discover life is a do-it-yourself project. — *Napoleon Hill*"_
 
 ---
