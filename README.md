@@ -7,6 +7,6 @@
 
 ---
 
-_"It's always to soon to quit! — *Norman Vincent Peale*"_
+_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
 
 ---
