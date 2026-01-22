@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
+_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
 
 ---
