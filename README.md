@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no shortcuts to any place worth going.  — *Beverly Sills*"_
+_"Where there is anger, there is always pain underneath. — *Eckhart Tolle*"_
 
 ---
