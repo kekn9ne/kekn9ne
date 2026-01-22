@@ -7,6 +7,6 @@
 
 ---
 
-_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
+_"It is dangerous to be right in matters on which the established authorities are wrong. — *Voltaire*"_
 
 ---
