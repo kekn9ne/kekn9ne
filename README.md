@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
+_"Anything worth doing is worth doing slowly. — *Mae West*"_
 
 ---
