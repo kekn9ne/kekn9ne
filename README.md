@@ -7,6 +7,6 @@
 
 ---
 
-_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
+_"There is only one thing in the world worse than being talked about, and that is not being talked about.  — *Oscar Wilde*"_
 
 ---
