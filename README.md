@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 22 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There is only one thing in the world worse than being talked about, and that is not being talked about.  — *Oscar Wilde*"_
+_"The Law of Concentration states that whatever you dwell upon grows. The more you think about something, the more it becomes part of your reality. — *Brian Tracy*"_
 
 ---
