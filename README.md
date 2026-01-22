@@ -7,6 +7,6 @@
 
 ---
 
-_"He who can, does. — *George Bernard Shaw*"_
+_"A little impatience will spoil great plans. — *Chinese Proverb*"_
 
 ---
