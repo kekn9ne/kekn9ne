@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
+_"Courage is almost a contradiction in terms. It means a strong desire to live taking the form of a readiness to die. — *Gilbert Chesterton*"_
 
 ---
