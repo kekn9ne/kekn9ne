@@ -7,6 +7,6 @@
 
 ---
 
-_"A leader is best when people barely know he exists, when his work is done, his aim fulfilled, they will say: we did it ourselves. — *Lao Tzu*"_
+_"Time is a game played beautifully by children. — *Heraclitus*"_
 
 ---
