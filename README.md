@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
+_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
 
 ---
