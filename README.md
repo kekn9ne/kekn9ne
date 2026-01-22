@@ -7,6 +7,6 @@
 
 ---
 
-_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
+_"You are always your own best guru, your own best teacher, the answers are always inside you. — *Sathya Sai Baba*"_
 
 ---
