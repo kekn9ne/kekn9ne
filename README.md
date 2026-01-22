@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 23 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Artık Sen Yoksun** by *Poizi* 🎶
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
+_"When you realize you've made a mistake, take immediate steps to correct it. — *Dalai Lama*"_
 
 ---
