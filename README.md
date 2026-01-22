@@ -7,6 +7,6 @@
 
 ---
 
-_"When you view failure as feedback, you get more done. When you view failure as a finality, you get nothing done. — *Jack Butcher*"_
+_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
 
 ---
