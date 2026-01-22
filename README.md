@@ -7,6 +7,6 @@
 
 ---
 
-_"Anything worth doing is worth doing slowly. — *Mae West*"_
+_"When you view failure as feedback, you get more done. When you view failure as a finality, you get nothing done. — *Jack Butcher*"_
 
 ---
