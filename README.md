@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 23 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Babaflow** by *UZI* 🎶
+🎧 Currently Listening: **Cennet** by *UZI* 🎶
 
 ---
 
-_"Where there is anger, there is always pain underneath. — *Eckhart Tolle*"_
+_"Use your smile to change the world but don't let the world change your smile. — *Unknown*"_
 
 ---
