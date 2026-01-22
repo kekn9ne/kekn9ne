@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
+_"You are not stuck where you are unless you decide to be.   — *Wayne Dyer*"_
 
 ---
