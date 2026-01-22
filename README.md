@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 23 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +9°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Babaflow** by *UZI* 🎶
 
 ---
 
-_"Try to be a rainbow in someone's cloud. — *Maya Angelou*"_
+_"There are no shortcuts to any place worth going.  — *Beverly Sills*"_
 
 ---
