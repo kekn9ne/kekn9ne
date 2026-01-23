@@ -7,6 +7,6 @@
 
 ---
 
-_"The only lost cause is one we give up on before we enter the struggle. — *Vaclav Havel*"_
+_"There is no excuse for not trying. — *Barack Obama*"_
 
 ---
