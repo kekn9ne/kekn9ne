@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 23 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
+_"Knowing your own darkness is the best method for dealing with the darknesses of other people. — *Carl Jung*"_
 
 ---
