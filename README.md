@@ -7,6 +7,6 @@
 
 ---
 
-_"All religions, arts and sciences are branches of the same tree.  — *Albert Einstein*"_
+_"The only lost cause is one we give up on before we enter the struggle. — *Vaclav Havel*"_
 
 ---
