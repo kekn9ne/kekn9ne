@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who know, do. Those that understand, teach. — *Aristotle*"_
+_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
 
 ---
