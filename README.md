@@ -7,6 +7,6 @@
 
 ---
 
-_"Try to be a rainbow in someone's cloud. — *Maya Angelou*"_
+_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
 
 ---
