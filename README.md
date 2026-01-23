@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 23 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +9°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
+_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
 
 ---
