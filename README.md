@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 23 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Excellence is not a skill. It is an attitude.  — *Ralph Marston*"_
+_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
 
 ---
