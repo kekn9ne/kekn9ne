@@ -7,6 +7,6 @@
 
 ---
 
-_"A hut full of laughter is richer than a palace full of sadness. — *Zen Proverb*"_
+_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
 
 ---
