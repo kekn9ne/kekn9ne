@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 23 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
+_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
 
 ---
