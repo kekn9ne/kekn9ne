@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 23 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Trap House** by *UZI* 🎶
+🎧 Currently Listening: **Cennet** by *UZI* 🎶
 
 ---
 
-_"Knowing your own darkness is the best method for dealing with the darknesses of other people. — *Carl Jung*"_
+_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
 
 ---
