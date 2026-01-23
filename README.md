@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
+_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
 
 ---
