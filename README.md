@@ -7,6 +7,6 @@
 
 ---
 
-_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
+_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
 
 ---
