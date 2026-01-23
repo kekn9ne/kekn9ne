@@ -7,6 +7,6 @@
 
 ---
 
-_"The privilege of a lifetime is to become who you truly are. — *Carl Jung*"_
+_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
 
 ---
