@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
 
 ---
