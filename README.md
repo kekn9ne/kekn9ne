@@ -7,6 +7,6 @@
 
 ---
 
-_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
+_"It is your attitude, not your aptitude, that determines your altitude. — *Zig Ziglar*"_
 
 ---
