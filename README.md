@@ -7,6 +7,6 @@
 
 ---
 
-_"Each problem has a positive side. — *Og Mandino*"_
+_"Cease striving. Then there will be transformation. — *Zhuangzi*"_
 
 ---
