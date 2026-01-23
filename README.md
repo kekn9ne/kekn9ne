@@ -7,6 +7,6 @@
 
 ---
 
-_"When you lose your desire for things that do not matter, you will be free. — *Morihei Ueshiba*"_
+_"Courage Is a Love Affair with the Unknown — *Osho*"_
 
 ---
