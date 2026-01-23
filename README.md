@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 23 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Giving is the secret of a healthy life. Not necessarily money, but whatever a person has of encouragement, sympathy and understanding. — *John D. Rockefeller*"_
+_"We must be free not because we claim freedom, but because we practice it. — *William Faulkner*"_
 
 ---
