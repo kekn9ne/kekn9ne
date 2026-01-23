@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present. — *Lao Tzu*"_
+_"When you lose your desire for things that do not matter, you will be free. — *Morihei Ueshiba*"_
 
 ---
