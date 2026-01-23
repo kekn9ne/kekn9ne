@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 23 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
+_"Work out your own salvation. Do not depend on others. — *Buddha*"_
 
 ---
