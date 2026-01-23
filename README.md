@@ -7,6 +7,6 @@
 
 ---
 
-_"Let us rather run the risk of wearing out than rusting out. — *Theodore Roosevelt*"_
+_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
 
 ---
