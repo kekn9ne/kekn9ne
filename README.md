@@ -7,6 +7,6 @@
 
 ---
 
-_"Time is a game played beautifully by children. — *Heraclitus*"_
+_"If you can't explain it simply, you don't understand it well enough. — *Albert Einstein*"_
 
 ---
