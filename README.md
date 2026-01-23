@@ -7,6 +7,6 @@
 
 ---
 
-_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
+_"Try to be a rainbow in someone's cloud. — *Maya Angelou*"_
 
 ---
