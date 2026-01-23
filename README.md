@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 23 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"To affect the quality of the day, that is the highest of arts. — *Henry David Thoreau*"_
+_"If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present. — *Lao Tzu*"_
 
 ---
