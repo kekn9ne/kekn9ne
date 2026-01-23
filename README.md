@@ -7,6 +7,6 @@
 
 ---
 
-_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
+_"Be true to yourself, help others, make each day your masterpiece — *John Wooden*"_
 
 ---
