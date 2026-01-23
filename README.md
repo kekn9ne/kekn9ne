@@ -7,6 +7,6 @@
 
 ---
 
-_"A dream doesn't become reality through magic it takes sweat, determination and hard work. — *Colin Powell*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
