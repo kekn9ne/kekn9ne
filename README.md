@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"Always seek out the seed of triumph in every adversity. — *Og Mandino*"_
 
 ---
