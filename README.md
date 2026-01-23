@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 23 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
+_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
 
 ---
