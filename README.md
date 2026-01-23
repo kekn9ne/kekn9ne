@@ -7,6 +7,6 @@
 
 ---
 
-_"Feelings come and go like clouds in a windy sky. Conscious breathing is my anchor. — *Thich Nhat Hanh*"_
+_"Generosity is giving more than you can, and pride is taking less than you need. — *Kahlil Gibran*"_
 
 ---
