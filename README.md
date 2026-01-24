@@ -7,6 +7,6 @@
 
 ---
 
-_"We cannot expect to be happy always... by experiencing evil as well as good we become wise. — *Hans Christian Andersen*"_
+_"Don't stumble over something that's behind you. — *Steve Harvey*"_
 
 ---
