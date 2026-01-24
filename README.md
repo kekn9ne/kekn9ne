@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
+_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
 
 ---
