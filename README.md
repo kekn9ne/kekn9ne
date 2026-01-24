@@ -7,6 +7,6 @@
 
 ---
 
-_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
+_"By seeking and blundering we learn. — *Johann Wolfgang von Goethe*"_
 
 ---
