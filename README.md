@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
+_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
 
 ---
