@@ -7,6 +7,6 @@
 
 ---
 
-_"By seeking and blundering we learn. — *Johann Wolfgang von Goethe*"_
+_"Every limit is a beginning as well as an ending. — *George Eliot*"_
 
 ---
