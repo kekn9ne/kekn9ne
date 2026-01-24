@@ -7,6 +7,6 @@
 
 ---
 
-_"Life begins where fear ends. — *Osho*"_
+_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
 
 ---
