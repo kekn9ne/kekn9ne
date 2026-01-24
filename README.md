@@ -7,6 +7,6 @@
 
 ---
 
-_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
+_"He who loses wealth loses much; he who loses a friend loses more; but he that loses his courage loses all. — *Miguel de Cervantes*"_
 
 ---
