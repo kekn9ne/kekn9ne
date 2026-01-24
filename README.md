@@ -7,6 +7,6 @@
 
 ---
 
-_"Integrity is the ability to stand by an idea. — *Ayn Rand*"_
+_"One machine can do the work of fifty ordinary men. No machine can do the work of one extraordinary man. — *Elbert Hubbard*"_
 
 ---
