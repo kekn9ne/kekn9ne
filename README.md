@@ -7,6 +7,6 @@
 
 ---
 
-_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
+_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
 
 ---
