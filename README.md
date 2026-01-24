@@ -7,6 +7,6 @@
 
 ---
 
-_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
+_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
 
 ---
