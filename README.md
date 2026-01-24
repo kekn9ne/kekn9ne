@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 24 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. — *Earl Nightingale*"_
+_"Fiction is the truth inside the lie. — *Stephen King*"_
 
 ---
