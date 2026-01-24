@@ -7,6 +7,6 @@
 
 ---
 
-_"To be alive - is Power. — *Emily Dickinson*"_
+_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
 
 ---
