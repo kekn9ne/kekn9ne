@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
+_"For your life to be great, your faith must be bigger than your fear. — *Robin Sharma*"_
 
 ---
