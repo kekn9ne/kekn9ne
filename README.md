@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 24 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
+_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
 
 ---
