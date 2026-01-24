@@ -7,6 +7,6 @@
 
 ---
 
-_"Fishing is much more than fish. — *Herbert Hoover*"_
+_"Good things aren't supposed to just fall into your lap. — *Audrey Hepburn*"_
 
 ---
