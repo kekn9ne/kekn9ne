@@ -7,6 +7,6 @@
 
 ---
 
-_"We will act consistently with our view of who we truly are, whether that view is accurate or not. — *Tony Robbins*"_
+_"Be regular and orderly in your life, so that you may be violent and original in your work. — *Gustave Flaubert*"_
 
 ---
