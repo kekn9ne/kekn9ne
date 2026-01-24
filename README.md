@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you like yourself, the less you are like anyone else, which makes you unique. — *Walt Disney*"_
+_"Kind words can be short and easy to speak, but their echoes are truly endless. — *Mother Teresa*"_
 
 ---
