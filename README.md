@@ -7,6 +7,6 @@
 
 ---
 
-_"Human beings can alter their lives by altering their attitudes of mind. — *William James*"_
+_"Where you are right now doesn't have to determine where you'll end up. — *Barack Obama*"_
 
 ---
