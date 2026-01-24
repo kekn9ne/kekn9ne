@@ -7,6 +7,6 @@
 
 ---
 
-_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
+_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
 
 ---
