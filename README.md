@@ -7,6 +7,6 @@
 
 ---
 
-_"The future is not a gift. It is an achievement. — *Robert F. Kennedy*"_
+_"The quality of your life is determined by the quality of questions you ask. — *Tony Robbins*"_
 
 ---
