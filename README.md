@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
+_"There are few reasons for telling the truth, but for lying the number is infinite. — *Carlos Ruiz Zafon*"_
 
 ---
