@@ -7,6 +7,6 @@
 
 ---
 
-_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
+_"Truth is like the sun. You can shut it out for a time, but it ain't going away. — *Elvis Presley*"_
 
 ---
