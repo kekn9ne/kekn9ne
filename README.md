@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 24 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every one of us is the sum total of his own thoughts. — *Earl Nightingale*"_
+_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
 
 ---
