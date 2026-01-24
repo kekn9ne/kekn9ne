@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything that is done in the world is done by hope. — *Martin Luther*"_
+_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
 
 ---
