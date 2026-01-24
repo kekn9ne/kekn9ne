@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw your heart over the fence and the rest will follow — *Norman Vincent Peale*"_
+_"Only by attracting the best people will you accomplish great deeds. — *Colin Powell*"_
 
 ---
