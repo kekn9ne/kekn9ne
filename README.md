@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 24 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
+_"Life begins where fear ends. — *Osho*"_
 
 ---
