@@ -7,6 +7,6 @@
 
 ---
 
-_"Every limit is a beginning as well as an ending. — *George Eliot*"_
+_"It is best to begin at the beginning. — *Amelia Earhart*"_
 
 ---
