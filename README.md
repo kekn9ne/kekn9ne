@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't stumble over something that's behind you. — *Steve Harvey*"_
+_"Today will never happen again. Don't waste it with a false start or no start at all. — *Og Mandino*"_
 
 ---
