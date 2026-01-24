@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
+_"When one does not have what one wants, one must want what one has. — *Sigmund Freud*"_
 
 ---
