@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
+_"Better the cottage where one is merry than the palace where one weeps. — *Chinese Proverb*"_
 
 ---
