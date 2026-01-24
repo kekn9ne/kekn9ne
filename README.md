@@ -7,6 +7,6 @@
 
 ---
 
-_"It is best to begin at the beginning. — *Amelia Earhart*"_
+_"Don't seek, don't search, don't ask, don't knock, don't demand - relax. — *Osho*"_
 
 ---
