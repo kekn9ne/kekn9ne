@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to find yourself is to lose yourself in the service of others. — *Mahatma Gandhi*"_
+_"Sometimes, the only way to evolve is to open ourselves fully. — *Kamal Ravikant*"_
 
 ---
