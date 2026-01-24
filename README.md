@@ -7,6 +7,6 @@
 
 ---
 
-_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
+_"Every limit is a beginning as well as an ending. — *George Eliot*"_
 
 ---
