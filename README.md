@@ -7,6 +7,6 @@
 
 ---
 
-_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
+_"Everything that is done in the world is done by hope. — *Martin Luther*"_
 
 ---
