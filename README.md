@@ -7,6 +7,6 @@
 
 ---
 
-_"If you spend too much time thinking about a thing, you'll never get it done.  — *Bruce Lee*"_
+_"A good teacher opens the door for you, but you must enter the room by yourself. — *Zen Proverb*"_
 
 ---
