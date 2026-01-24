@@ -7,6 +7,6 @@
 
 ---
 
-_"I put my heart and soul into my work, and I have lost my mind in the process. — *Vincent van Gogh*"_
+_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
 
 ---
