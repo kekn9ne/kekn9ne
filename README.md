@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
+_"We learn to walk by falling down. If we never fell down, we would never walk. — *Robert Kiyosaki*"_
 
 ---
