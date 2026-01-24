@@ -7,6 +7,6 @@
 
 ---
 
-_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
+_"It is not as important how we start, but how we finish. — *Joyce Meyer*"_
 
 ---
