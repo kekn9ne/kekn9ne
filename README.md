@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Trap House** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
+_"Leaders spend 5% of their time on the problem & 95% of their time on the solution. Get over it & crush it! — *Tony Robbins*"_
 
 ---
