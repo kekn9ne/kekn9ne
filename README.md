@@ -7,6 +7,6 @@
 
 ---
 
-_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
+_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
 
 ---
