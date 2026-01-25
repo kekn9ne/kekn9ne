@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not anticipate trouble, or worry about what may never happen. Keep in the sunlight. — *Benjamin Franklin*"_
+_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
 
 ---
