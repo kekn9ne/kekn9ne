@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: **Ou** by *UZI* 🎶
 
 ---
 
-_"You miss 100% of the shots you don't take. — *Wayne Gretzky*"_
+_"Too many of us are not living our dreams because we are living our fears. — *Les Brown*"_
 
 ---
