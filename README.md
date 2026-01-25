@@ -7,6 +7,6 @@
 
 ---
 
-_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
+_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
 
 ---
