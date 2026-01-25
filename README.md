@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ou** by *UZI* 🎶
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"Too many of us are not living our dreams because we are living our fears. — *Les Brown*"_
+_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
 
 ---
