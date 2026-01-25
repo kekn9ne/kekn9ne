@@ -7,6 +7,6 @@
 
 ---
 
-_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
+_"The wise accomplish all that they want without arousing the envy or scorn of others. — *Ming-Dao Deng*"_
 
 ---
