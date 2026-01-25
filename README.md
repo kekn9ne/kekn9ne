@@ -7,6 +7,6 @@
 
 ---
 
-_"Smell the cheese often so you know when it is getting old. — *Spencer Johnson*"_
+_"Weeds are flowers too, once you get to know them. — *A.A. Milne*"_
 
 ---
