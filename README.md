@@ -7,6 +7,6 @@
 
 ---
 
-_"We know nothing of tomorrow, our business is to be good and happy today. — *Sydney Smith*"_
+_"One reason so few of us achieve what we truly want is that we never direct our focus; we never concentrate our power. — *Tony Robbins*"_
 
 ---
