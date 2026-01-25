@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
+_"Through selfless service, you will always be fruitful and find the fulfillment of your desires. — *Bhagavad Gita*"_
 
 ---
