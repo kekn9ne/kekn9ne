@@ -7,6 +7,6 @@
 
 ---
 
-_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
+_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
 
 ---
