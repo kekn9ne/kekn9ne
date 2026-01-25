@@ -7,6 +7,6 @@
 
 ---
 
-_"The source of a true smile is an awakened mind. — *Thich Nhat Hanh*"_
+_"Smell the cheese often so you know when it is getting old. — *Spencer Johnson*"_
 
 ---
