@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you stop to think about whether you love someone, you've already stopped loving that person forever. — *Carlos Ruiz Zafon*"_
+_"The more reasons you have for achieving your goal, the more determined you will become. — *Brian Tracy*"_
 
 ---
