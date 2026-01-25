@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a constant series of opportunities. — *Ming-Dao Deng*"_
+_"Too many of us are not living our dreams because we are living our fears. — *Les Brown*"_
 
 ---
