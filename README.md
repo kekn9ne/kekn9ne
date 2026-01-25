@@ -7,6 +7,6 @@
 
 ---
 
-_"A good system shortens the road to the goal.  — *Orison Swett Marden*"_
+_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
 
 ---
