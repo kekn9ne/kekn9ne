@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 25 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The greatest gift that you can give to others is the gift of unconditional love and acceptance.  — *Brian Tracy*"_
+_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
 
 ---
