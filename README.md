@@ -7,6 +7,6 @@
 
 ---
 
-_"The harder you work, the harder it is to surrender. — *Vince Lombardi*"_
+_"Your task is not to seek for love, but merely to seek and find all the barriers within yourself that you have built against it. — *Rumi*"_
 
 ---
