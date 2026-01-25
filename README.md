@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ismarla** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become. — *Heraclitus*"_
+_"My favorite things in life don't cost any money. It's really clear that the most precious resource we all have is time. — *Steve Jobs*"_
 
 ---
