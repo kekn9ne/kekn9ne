@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 26 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ŞUT** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is literally true that you can succeed best and quickest by helping others succeed. — *Napoleon Hill*"_
+_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
 
 ---
