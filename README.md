@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is knowing what not to fear. — *Plato*"_
+_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
 
 ---
