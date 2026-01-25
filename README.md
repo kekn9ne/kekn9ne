@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
+_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
 
 ---
