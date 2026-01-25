@@ -7,6 +7,6 @@
 
 ---
 
-_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
+_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
 
 ---
