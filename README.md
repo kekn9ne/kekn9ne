@@ -7,6 +7,6 @@
 
 ---
 
-_"I know not all that may be coming, but be it what it will, I'll go to it laughing. — *Herman Melville*"_
+_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
 
 ---
