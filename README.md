@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
+_"Being ignorant is not so much a shame, as being unwilling to learn. — *Benjamin Franklin*"_
 
 ---
