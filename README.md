@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is pretty simple: someone to love, something to do, something to look forward to. — *Rita Mae Brown*"_
+_"Humans and prosperity never endure side by side for long. — *Herodotus*"_
 
 ---
