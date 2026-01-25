@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"Too many of us are not living our dreams because we are living our fears. — *Les Brown*"_
+_"The content of your character is your choice. Day by day, what you choose, what you think and what you do is who you become. — *Heraclitus*"_
 
 ---
