@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
+_"Give so much away people insist on paying you. — *Jack Butcher*"_
 
 ---
