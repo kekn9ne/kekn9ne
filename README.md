@@ -7,6 +7,6 @@
 
 ---
 
-_"To be truly positive in the eyes of some, you have to risk appearing negative in the eyes of others. — *Criss Jami*"_
+_"Always focus on the front windshield and not the rear view mirror. — *Colin Powell*"_
 
 ---
