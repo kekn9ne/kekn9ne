@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't give up on your dreams, or your dreams will give up on you. — *John Wooden*"_
+_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
 
 ---
