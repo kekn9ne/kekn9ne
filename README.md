@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Failure will never overtake me if my determination to succeed is strong enough. — *Og Mandino*"_
 
 ---
