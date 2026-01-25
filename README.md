@@ -7,6 +7,6 @@
 
 ---
 
-_"Reflect upon your present blessings of which every man has many - not on your past misfortunes, of which all men have some. — *Charles Dickens*"_
+_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
 
 ---
