@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you talk about your shame, the more of it you have. — *Mark Manson*"_
+_"If you aren't sure which way to do something, do it both ways and see which works better. — *John Carmack*"_
 
 ---
