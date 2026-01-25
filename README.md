@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Fam** by *UZI* 🎶
 
 ---
 
-_"Quality means doing it right when no one is looking. — *Henry Ford*"_
+_"When you're at the end of your rope, tie a knot and hold on. — *Theodore Roosevelt*"_
 
 ---
