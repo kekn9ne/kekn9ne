@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 25 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"Find your Light; They can't love you if they can't see you. — *Bette Midler*"_
+_"Don't be pushed around by the fears in your mind. Be led by the dreams in your heart. — *Roy T. Bennett*"_
 
 ---
