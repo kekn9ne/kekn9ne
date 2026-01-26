@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't have time to do it right, when will you have time to do it over? — *John Wooden*"_
+_"Learning is a weightless treasure you can always carry easily. — *Chinese Proverb*"_
 
 ---
