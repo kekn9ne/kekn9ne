@@ -7,6 +7,6 @@
 
 ---
 
-_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
+_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
 
 ---
