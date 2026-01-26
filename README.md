@@ -7,6 +7,6 @@
 
 ---
 
-_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
+_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
 
 ---
