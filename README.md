@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
+_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
 
 ---
