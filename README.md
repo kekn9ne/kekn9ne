@@ -7,6 +7,6 @@
 
 ---
 
-_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
+_"Don't want anything. Then you get everything. — *Seungsahn*"_
 
 ---
