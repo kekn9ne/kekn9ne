@@ -7,6 +7,6 @@
 
 ---
 
-_"Awakening is possible only for those who seek it and want it. — *G.I. Gurdjieff*"_
+_"Words are clothes that thoughts wear — *Samuel Butler*"_
 
 ---
