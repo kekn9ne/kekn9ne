@@ -7,6 +7,6 @@
 
 ---
 
-_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
+_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
 
 ---
