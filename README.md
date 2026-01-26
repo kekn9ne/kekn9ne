@@ -7,6 +7,6 @@
 
 ---
 
-_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
+_"Forget safety. Live where you fear to live. — *Rumi*"_
 
 ---
