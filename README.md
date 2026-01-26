@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 26 January 2026**  
 🌤️ Weather in Istanbul: **☁️   +15°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Şarkılar Sokaklara Ait** by *UZI* 🎶
 
 ---
 
-_"You may think I'm small, but I have a universe inside my mind. — *Yoko Ono*"_
+_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
 
 ---
