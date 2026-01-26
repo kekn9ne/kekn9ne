@@ -7,6 +7,6 @@
 
 ---
 
-_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
+_"Go for it now. The future is promised to no one.  — *Wayne Dyer*"_
 
 ---
