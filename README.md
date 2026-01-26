@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget safety. Live where you fear to live. — *Rumi*"_
+_"If you change the way you look at things, the things you look at change.  — *Wayne Dyer*"_
 
 ---
