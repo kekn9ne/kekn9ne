@@ -7,6 +7,6 @@
 
 ---
 
-_"Wit is educated insolence. — *Aristotle*"_
+_"I hear and I forget. I see and I remember. I do and I understand.  — *Confucius*"_
 
 ---
