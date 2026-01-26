@@ -7,6 +7,6 @@
 
 ---
 
-_"He who is not contented with what he has, would not be contented with what he would like to have. — *Socrates*"_
+_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
 
 ---
