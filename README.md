@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is a succession of lessons, which must be lived to be understood. — *Ralph Waldo Emerson*"_
+_"Our truest life is when we are in dreams awake. — *Henry David Thoreau*"_
 
 ---
