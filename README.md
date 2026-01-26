@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 26 January 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Babaflow** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you want things to be different, perhaps the answer is to become different yourself. — *Norman Vincent Peale*"_
+_"In youth we run into difficulties. In old age difficulties run into us.  — *Beverly Sills*"_
 
 ---
