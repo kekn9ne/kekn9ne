@@ -7,6 +7,6 @@
 
 ---
 
-_"The only real security that a man can have in this world is a reserve of knowledge, experience and ability.  — *Henry Ford*"_
+_"Victory is always possible for the person who refuses to stop fighting. — *Napoleon Hill*"_
 
 ---
