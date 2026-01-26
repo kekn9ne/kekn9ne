@@ -7,6 +7,6 @@
 
 ---
 
-_"Go for it now. The future is promised to no one.  — *Wayne Dyer*"_
+_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
 
 ---
