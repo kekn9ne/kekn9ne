@@ -7,6 +7,6 @@
 
 ---
 
-_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
+_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
 
 ---
