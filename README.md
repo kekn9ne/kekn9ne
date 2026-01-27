@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't like something, change it. If you can't change it, change your attitude. — *Maya Angelou*"_
+_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
 
 ---
