@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you have to travel a long way to find what is near. — *Paulo Coelho*"_
+_"The finish line is just the beginning of a whole new race. — *Unknown*"_
 
 ---
