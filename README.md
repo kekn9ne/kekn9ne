@@ -7,6 +7,6 @@
 
 ---
 
-_"We must create our own world or we will die from inaction. — *Robert Greene*"_
+_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
 
 ---
