@@ -7,6 +7,6 @@
 
 ---
 
-_"Ability is a poor man's wealth. — *John Wooden*"_
+_"Happiness is not something ready made. It comes from your own actions. — *Dalai Lama*"_
 
 ---
