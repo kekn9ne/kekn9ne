@@ -7,6 +7,6 @@
 
 ---
 
-_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
+_"Do not use life to give life to death. Do not use death to bring death to life. — *Zhuangzi*"_
 
 ---
