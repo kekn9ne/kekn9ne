@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you trust yourself, the less you compare yourself to others. — *Roy T. Bennett*"_
+_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
 
 ---
