@@ -7,6 +7,6 @@
 
 ---
 
-_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
+_"We must create our own world or we will die from inaction. — *Robert Greene*"_
 
 ---
