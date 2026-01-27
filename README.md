@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is, everyone is going to hurt you. You just got to find the ones worth suffering for. — *Bob Marley*"_
+_"There is no absolute success in the world, only constant progress. — *Jonathan Swift*"_
 
 ---
