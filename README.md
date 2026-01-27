@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever you are, be a good one. — *Abraham Lincoln*"_
+_"The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome. — *Tony Robbins*"_
 
 ---
