@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 27 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Fam** by *UZI* 🎶
+🎧 Currently Listening: **Ou** by *UZI* 🎶
 
 ---
 
-_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
+_"We're kept from our goal not by obstacles, but by a clear path to a lesser goal. — *Bhagavad Gita*"_
 
 ---
