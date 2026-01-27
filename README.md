@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not something ready made. It comes from your own actions. — *Dalai Lama*"_
+_"If you cling to a certain thought with dynamic will power, it finally assumes a tangible outward form. — *Paramahansa Yogananda*"_
 
 ---
