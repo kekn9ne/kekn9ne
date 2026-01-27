@@ -7,6 +7,6 @@
 
 ---
 
-_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
+_"There are two primary choices in life: to accept conditions as they exist, or accept the responsibility for changing them. — *Denis Waitley*"_
 
 ---
