@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 28 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
 
 ---
 
-_"The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome. — *Tony Robbins*"_
+_"If you are depressed, you are living in the past. If you are anxious, you are living in the future. if you are at peace, you are living in the present. — *Lao Tzu*"_
 
 ---
