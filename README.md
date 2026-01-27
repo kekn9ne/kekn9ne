@@ -7,6 +7,6 @@
 
 ---
 
-_"Little minds have little worries, big minds have no time for worries. — *Ralph Waldo Emerson*"_
+_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
 
 ---
