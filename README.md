@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 27 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ou** by *UZI* 🎶
+🎧 Currently Listening: **Fam** by *UZI* 🎶
 
 ---
 
-_"I learned the value of hard work by working hard.  — *Margaret Mead*"_
+_"Absorb what is useful, discard what is not, add what is uniquely your own. — *Bruce Lee*"_
 
 ---
