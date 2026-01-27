@@ -7,6 +7,6 @@
 
 ---
 
-_"Do something to move yourself toward your major goal every day. — *Brian Tracy*"_
+_"Reality is the leading cause of stress among those in touch with it. — *Lily Tomlin*"_
 
 ---
