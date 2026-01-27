@@ -7,6 +7,6 @@
 
 ---
 
-_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
+_"Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service. — *Earl Nightingale*"_
 
 ---
