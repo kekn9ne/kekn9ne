@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"Whatever you are, be a good one. — *Abraham Lincoln*"_
 
 ---
