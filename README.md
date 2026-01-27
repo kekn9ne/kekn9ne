@@ -7,6 +7,6 @@
 
 ---
 
-_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
+_"The friendship that can cease has never been real.  — *St. Jerome*"_
 
 ---
