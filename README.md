@@ -7,6 +7,6 @@
 
 ---
 
-_"The finish line is just the beginning of a whole new race. — *Unknown*"_
+_"Throw your heart over the bar and your body will follow. — *Norman Vincent Peale*"_
 
 ---
