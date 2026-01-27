@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 27 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"If you think adventure is dangerous, try routine; it is lethal. — *Paulo Coelho*"_
+_"Do not dwell in the past, do not dream of the future, concentrate the mind on the present moment. — *Buddha*"_
 
 ---
