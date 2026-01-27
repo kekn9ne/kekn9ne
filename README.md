@@ -7,6 +7,6 @@
 
 ---
 
-_"The friendship that can cease has never been real.  — *St. Jerome*"_
+_"From morning till night, we should never rely on a single thing. — *Huang Po*"_
 
 ---
