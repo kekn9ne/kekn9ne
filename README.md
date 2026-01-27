@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 28 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Ou** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you want to find the secrets of the universe, think in terms of energy, frequency and vibration.  — *Nikola Tesla*"_
+_"It is under the greatest adversity that there exists the greatest potential for doing good, both for oneself and others. — *Dalai Lama*"_
 
 ---
