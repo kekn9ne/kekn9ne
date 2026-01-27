@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 27 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"You have as much laughter as you have faith. — *Martin Luther*"_
 
 ---
