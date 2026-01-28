@@ -7,6 +7,6 @@
 
 ---
 
-_"Decide upon your major definite purpose in life and then organize all your activities around it. — *Brian Tracy*"_
+_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
 
 ---
