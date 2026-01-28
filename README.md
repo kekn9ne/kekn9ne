@@ -7,6 +7,6 @@
 
 ---
 
-_"Confidence is the greatest friend. — *Lao Tzu*"_
+_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
 
 ---
