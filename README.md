@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
+_"If you can't feed a hundred people, then feed just one. — *Mother Teresa*"_
 
 ---
