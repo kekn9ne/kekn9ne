@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 29 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
+🎧 Currently Listening: **Ou** by *UZI* 🎶
 
 ---
 
-_"Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. — *Earl Nightingale*"_
+_"Happiness comes when you believe in what you are doing, know what you are doing, and love what you are doing. — *Brian Tracy*"_
 
 ---
