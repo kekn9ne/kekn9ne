@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 29 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
 
 ---
 
-_"A man that flies from his fear may find that he has only taken a short cut to meet it. — *J.R.R. Tolkien*"_
+_"Never give up on a dream just because of the time it will take to accomplish it. The time will pass anyway. — *Earl Nightingale*"_
 
 ---
