@@ -7,6 +7,6 @@
 
 ---
 
-_"If you can't feed a hundred people, then feed just one. — *Mother Teresa*"_
+_"Leaders think and talk about solutions. Followers think and talk about the problems. — *Brian Tracy*"_
 
 ---
