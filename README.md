@@ -7,6 +7,6 @@
 
 ---
 
-_"It is useless to attempt to reason a man out of a thing he was never reasoned into. — *Jonathan Swift*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
