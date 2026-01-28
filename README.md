@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
 
 ---
