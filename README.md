@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 28 January 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The more we value things, the less we value ourselves.   — *Bruce Lee*"_
+_"Nothing in the world is ever completely wrong. Even a stopped clock is right twice a day. — *Paulo Coelho*"_
 
 ---
