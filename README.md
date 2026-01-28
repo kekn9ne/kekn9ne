@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather be hated for who I am than loved for who I'm not.   — *Wayne Dyer*"_
+_"A crisis is an opportunity riding the dangerous wind. — *Chinese Proverb*"_
 
 ---
