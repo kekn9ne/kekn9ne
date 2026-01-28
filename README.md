@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 29 January 2026**  
 🌤️ Weather in Istanbul: **☁️   +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Laedt** by *Yung Kafa & Kücük Efendi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"Life is a gift. Never forget to enjoy and bask in every moment you are in. — *Celestine Chua*"_
 
 ---
