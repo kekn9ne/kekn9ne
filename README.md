@@ -7,6 +7,6 @@
 
 ---
 
-_"Your chances of success in any undertaking can always be measured by your belief in yourself. — *Robert Collier*"_
+_"The pain of parting is nothing to the joy of meeting again. — *Charles Dickens*"_
 
 ---
