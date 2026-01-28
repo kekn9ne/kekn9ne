@@ -7,6 +7,6 @@
 
 ---
 
-_"Aim for the moon. If you miss, you may hit a star. — *W. Clement Stone*"_
+_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
 
 ---
