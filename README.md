@@ -7,6 +7,6 @@
 
 ---
 
-_"The search for happiness is one of the chief sources of unhappiness. — *Eric Hoffer*"_
+_"It's always to soon to quit! — *Norman Vincent Peale*"_
 
 ---
