@@ -7,6 +7,6 @@
 
 ---
 
-_"I can live without money, but I cannot live without love. — *Judy Garland*"_
+_"Always render more and better service than is expected of you, no matter what your task may be. — *Og Mandino*"_
 
 ---
