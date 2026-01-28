@@ -7,6 +7,6 @@
 
 ---
 
-_"You will succeed because most people are lazy. — *Shahir Zag*"_
+_"We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right. — *Sonia Ricotti*"_
 
 ---
