@@ -7,6 +7,6 @@
 
 ---
 
-_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
+_"Don't let the behavior of others destroy your inner peace. — *Dalai Lama*"_
 
 ---
