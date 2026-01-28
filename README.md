@@ -7,6 +7,6 @@
 
 ---
 
-_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
+_"It is useless to attempt to reason a man out of a thing he was never reasoned into. — *Jonathan Swift*"_
 
 ---
