@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 28 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
 
 ---
 
-_"The strength of a wall is neither greater nor less than the courage of the men who defend it.  — *Genghis Khan*"_
+_"The more we value things, the less we value ourselves.   — *Bruce Lee*"_
 
 ---
