@@ -7,6 +7,6 @@
 
 ---
 
-_"What the eye doesn't see and the mind doesn't know, doesn't exist. — *D. H. Lawrence*"_
+_"The chief danger in life is that you may take too many precautions. — *Alfred Adler*"_
 
 ---
