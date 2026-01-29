@@ -7,6 +7,6 @@
 
 ---
 
-_"A single dream is more powerful than a thousand realities. — *J.R.R. Tolkien*"_
+_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
 
 ---
