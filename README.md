@@ -7,6 +7,6 @@
 
 ---
 
-_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
+_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
 
 ---
