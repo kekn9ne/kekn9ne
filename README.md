@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
