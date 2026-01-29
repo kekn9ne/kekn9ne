@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"To live is the rarest thing in the world. Most people exist, that is all.  — *Oscar Wilde*"_
 
 ---
