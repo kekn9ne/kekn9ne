@@ -7,6 +7,6 @@
 
 ---
 
-_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
+_"Give me six hours to chop down a tree and I will spend the first four sharpening the axe. — *Abraham Lincoln*"_
 
 ---
