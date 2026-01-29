@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 29 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You can never cross the ocean unless you have the courage to lose sight of the shore. — *Christopher Columbus*"_
+_"Quality is not an act, it is a habit. — *Aristotle*"_
 
 ---
