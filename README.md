@@ -7,6 +7,6 @@
 
 ---
 
-_"No problem can be solved from the same level of consciousness that created it. — *Albert Einstein*"_
+_"What you get by achieving your goals is not as important as what you become by achieving your goals. — *Henry David Thoreau*"_
 
 ---
