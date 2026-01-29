@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest treasures are those invisible to the eye but found by the heart. — *Judy Garland*"_
+_"A single dream is more powerful than a thousand realities. — *J.R.R. Tolkien*"_
 
 ---
