@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
+_"You must learn to let go. Release the stress. You were never in control anyway. — *Steve Maraboli*"_
 
 ---
