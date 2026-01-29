@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe and you're halfway there. — *Harry S. Truman*"_
+_"Kindness is a language which the deaf can hear and the blind can see. — *Mark Twain*"_
 
 ---
