@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
+_"If you've never eaten while crying you don t know what life tastes like. — *Johann Wolfgang von Goethe*"_
 
 ---
