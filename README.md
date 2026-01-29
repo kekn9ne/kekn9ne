@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
+_"A little progress each day adds up to big results. — *Unknown*"_
 
 ---
