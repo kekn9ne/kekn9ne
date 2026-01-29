@@ -7,6 +7,6 @@
 
 ---
 
-_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
+_"Attitude, not aptitude, determines altitude.   — *Zig Ziglar*"_
 
 ---
