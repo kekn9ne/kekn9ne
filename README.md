@@ -7,6 +7,6 @@
 
 ---
 
-_"An intelligent person hires people who are more intelligent than he is. — *Robert Kiyosaki*"_
+_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
 
 ---
