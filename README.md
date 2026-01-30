@@ -7,6 +7,6 @@
 
 ---
 
-_"Fear not the path of Truth for the lack of People walking on it. — *Robert F. Kennedy*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
