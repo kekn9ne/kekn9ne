@@ -7,6 +7,6 @@
 
 ---
 
-_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
+_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
 
 ---
