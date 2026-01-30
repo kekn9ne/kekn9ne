@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 30 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +8°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Outstanding people have one thing in common: an absolute sense of mission.   — *Zig Ziglar*"_
+_"Determine never to be idle. No person will have occasion to complain of the want of time who never loses any. — *Thomas Jefferson*"_
 
 ---
