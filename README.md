@@ -7,6 +7,6 @@
 
 ---
 
-_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
+_"A wise person should have money in their head, but not in their heart. — *Jonathan Swift*"_
 
 ---
