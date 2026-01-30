@@ -7,6 +7,6 @@
 
 ---
 
-_"Be a master of change rather than a victim of change. — *Brian Tracy*"_
+_"By going within. Nowhere you can go is more peaceful - more free of interruptions - than your own soul. — *Marcus Aurelius*"_
 
 ---
