@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 30 January 2026**  
 🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ou** by *UZI* 🎶
 
 ---
 
-_"Be not glad at the misfortune of another, though he may be your enemy.  — *George Washington*"_
+_"When asked, how do you write? I invariably answer, one word at a time. — *Stephen King*"_
 
 ---
