@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in one thing too much and you have no room for new ideas.   — *Ray Bradbury*"_
+_"If you're walking down the right path and you're willing to keep walking, eventually you'll make progress. — *Barack Obama*"_
 
 ---
