@@ -7,6 +7,6 @@
 
 ---
 
-_"Lying can never save us from another lie. — *Vaclav Havel*"_
+_"Appear weak when you are strong, and strong when you are weak. — *Sun Tzu*"_
 
 ---
