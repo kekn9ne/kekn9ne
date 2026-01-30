@@ -7,6 +7,6 @@
 
 ---
 
-_"Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next. — *Herbert Hoover*"_
+_"People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind. — *Eckhart Tolle*"_
 
 ---
