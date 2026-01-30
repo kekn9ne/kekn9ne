@@ -7,6 +7,6 @@
 
 ---
 
-_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
