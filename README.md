@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't realize that now is all there ever is; there is no past or future except as memory or anticipation in your mind. — *Eckhart Tolle*"_
+_"Lying can never save us from another lie. — *Vaclav Havel*"_
 
 ---
