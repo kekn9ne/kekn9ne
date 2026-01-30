@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 30 January 2026**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.  — *Charles Swindoll*"_
 
 ---
