@@ -7,6 +7,6 @@
 
 ---
 
-_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
+_"It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way. — *Alan Watts*"_
 
 ---
