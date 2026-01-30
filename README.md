@@ -7,6 +7,6 @@
 
 ---
 
-_"It's better to have a short life that is full of what you like doing, than a long life spent in a miserable way. — *Alan Watts*"_
+_"What the caterpillar calls the end of the world, the master calls a butterfly. — *Richard Bach*"_
 
 ---
