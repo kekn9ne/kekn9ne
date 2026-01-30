@@ -7,6 +7,6 @@
 
 ---
 
-_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
+_"Wisdom consists not so much in knowing what to do in the ultimate as knowing what to do next. — *Herbert Hoover*"_
 
 ---
