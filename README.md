@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 30 January 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Determine never to be idle. No person will have occasion to complain of the want of time who never loses any. — *Thomas Jefferson*"_
+_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
 
 ---
