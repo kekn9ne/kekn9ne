@@ -7,6 +7,6 @@
 
 ---
 
-_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
+_"A bird does not sing because it has an answer. It sings because it has a song. — *Chinese Proverb*"_
 
 ---
