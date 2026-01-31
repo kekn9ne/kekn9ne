@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember to look up at the stars and not down at your feet. — *Stephen Hawking*"_
+_"By seeking and blundering we learn. — *Johann Wolfgang von Goethe*"_
 
 ---
