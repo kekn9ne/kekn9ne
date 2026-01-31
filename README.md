@@ -7,6 +7,6 @@
 
 ---
 
-_"The only difference between success and failure is the ability to take action. — *Alexander Graham Bell*"_
+_"Would you rather live your life according to the approval of others or aligned with your truth and your dreams? — *Robin Sharma*"_
 
 ---
