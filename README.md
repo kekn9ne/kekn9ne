@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not how much money you make, it's how much money you keep. — *Robert Kiyosaki*"_
+_"To arrive at the simplest truth requires years of contemplation. — *Isaac Newton*"_
 
 ---
