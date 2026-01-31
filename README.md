@@ -7,6 +7,6 @@
 
 ---
 
-_"Your first and foremost job as a leader is to take charge of your own energy and then help to orchestrate the energy of those around you. — *Peter Drucker*"_
+_"If you are not living each day with excitement, energy, and passion, then you are not living true to your life purpose. — *Celestine Chua*"_
 
 ---
