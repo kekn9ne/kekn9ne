@@ -7,6 +7,6 @@
 
 ---
 
-_"There's no next time. It's now or never. — *Celestine Chua*"_
+_"I no doubt deserved my enemies, but I don't believe I deserved my friends. — *Walt Whitman*"_
 
 ---
