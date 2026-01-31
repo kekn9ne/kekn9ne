@@ -7,6 +7,6 @@
 
 ---
 
-_"Man is made by his belief. As he believes, so he is. — *Bhagavad Gita*"_
+_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
 
 ---
