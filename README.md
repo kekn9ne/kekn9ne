@@ -7,6 +7,6 @@
 
 ---
 
-_"Anxiety is the dizziness of freedom. — *Soren Kierkegaard*"_
+_"Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don't have to have it all figured out to move forward. — *Roy T. Bennett*"_
 
 ---
