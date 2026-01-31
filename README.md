@@ -7,6 +7,6 @@
 
 ---
 
-_"Would you rather live your life according to the approval of others or aligned with your truth and your dreams? — *Robin Sharma*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
