@@ -7,6 +7,6 @@
 
 ---
 
-_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
+_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
 
 ---
