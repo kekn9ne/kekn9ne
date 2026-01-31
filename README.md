@@ -7,6 +7,6 @@
 
 ---
 
-_"Most people dabble their way through life, never deciding to master anything in particular. — *Tony Robbins*"_
+_"Man is made by his belief. As he believes, so he is. — *Bhagavad Gita*"_
 
 ---
