@@ -7,6 +7,6 @@
 
 ---
 
-_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
+_"Every man is guilty of all the good he did not do.  — *Voltaire*"_
 
 ---
