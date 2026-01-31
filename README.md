@@ -7,6 +7,6 @@
 
 ---
 
-_"Behind every cloud is another cloud. — *Judy Garland*"_
+_"If your happiness depends on what somebody else does, I guess you do have a problem. — *Richard Bach*"_
 
 ---
