@@ -7,6 +7,6 @@
 
 ---
 
-_"Make failure your teacher, not your undertaker.   — *Zig Ziglar*"_
+_"We suffer more often in imagination than in reality. — *Seneca*"_
 
 ---
