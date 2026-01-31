@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are focused on time - past and future - the more you miss the Now, the most precious thing there is. — *Eckhart Tolle*"_
+_"Behind every cloud is another cloud. — *Judy Garland*"_
 
 ---
