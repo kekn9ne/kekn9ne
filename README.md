@@ -7,6 +7,6 @@
 
 ---
 
-_"Be Brave and Take Risks: You need to have faith in yourself. Be brave and take risks. You don't have to have it all figured out to move forward. — *Roy T. Bennett*"_
+_"We may not be responsible for the world that created our minds, but we can take responsibility for the mind with which we create our world. — *Gabor Mate*"_
 
 ---
