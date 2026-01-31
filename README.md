@@ -7,6 +7,6 @@
 
 ---
 
-_"Wise people, even though all laws were abolished, would still lead the same life. — *Aristophanes*"_
+_"I am thankful to all those who said no. It's because of them, I did it myself.   — *Wayne Dyer*"_
 
 ---
