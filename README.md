@@ -7,6 +7,6 @@
 
 ---
 
-_"Every man is guilty of all the good he did not do.  — *Voltaire*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
