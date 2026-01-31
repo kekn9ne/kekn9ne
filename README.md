@@ -7,6 +7,6 @@
 
 ---
 
-_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
+_"Most people fail in life not because they aim too high and miss, but because they aim too low and hit. — *Les Brown*"_
 
 ---
