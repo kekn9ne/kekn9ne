@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 31 January 2026**  
 🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You gain strength, courage and confidence by every experience in which you really stop to look fear in the face. — *Eleanor Roosevelt*"_
+_"No man is more cheated than the selfish man. — *Henry Ward Beecher*"_
 
 ---
