@@ -7,6 +7,6 @@
 
 ---
 
-_"If you take responsibility for yourself you will develop a hunger to accomplish your dream. — *Les Brown*"_
+_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
 
 ---
