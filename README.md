@@ -7,6 +7,6 @@
 
 ---
 
-_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
+_"When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.  — *Charles Swindoll*"_
 
 ---
