@@ -7,6 +7,6 @@
 
 ---
 
-_"A wise person should have money in their head, but not in their heart. — *Jonathan Swift*"_
+_"One of the keys to happiness is a bad memory. — *Rita Mae Brown*"_
 
 ---
