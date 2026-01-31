@@ -7,6 +7,6 @@
 
 ---
 
-_"If your happiness depends on what somebody else does, I guess you do have a problem. — *Richard Bach*"_
+_"To himself everyone is immortal; he may know that he is going to die, but he can never know he is dead. — *Samuel Butler*"_
 
 ---
