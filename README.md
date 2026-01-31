@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't shortchange yourself when it comes to investing in your own better future. — *Jim Rohn*"_
+_"Just because something isn't a lie does not mean that it isn't deceptive. — *Criss Jami*"_
 
 ---
