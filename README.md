@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 31 January 2026**  
-🌤️ Weather in Istanbul: **⛅️  +6°C**  
+🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
 
 ---
