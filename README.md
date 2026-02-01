@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +7°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Inspiration exists, but it has to find you working. — *Pablo Picasso*"_
+_"Throughout this life, you can never be certain of living long enough to take another breath. — *Huang Po*"_
 
 ---
