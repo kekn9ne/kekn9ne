@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
+_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
 
 ---
