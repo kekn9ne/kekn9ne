@@ -7,6 +7,6 @@
 
 ---
 
-_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
+_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
 
 ---
