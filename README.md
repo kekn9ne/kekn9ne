@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
+_"Love your enemies, for they tell you your faults. — *Benjamin Franklin*"_
 
 ---
