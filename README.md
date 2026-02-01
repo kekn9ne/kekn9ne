@@ -7,6 +7,6 @@
 
 ---
 
-_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
+_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
 
 ---
