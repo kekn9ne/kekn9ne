@@ -7,6 +7,6 @@
 
 ---
 
-_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
+_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
 
 ---
