@@ -7,6 +7,6 @@
 
 ---
 
-_"Throughout this life, you can never be certain of living long enough to take another breath. — *Huang Po*"_
+_"People become attached to their burdens sometimes more than the burdens are attached to them. — *George Bernard Shaw*"_
 
 ---
