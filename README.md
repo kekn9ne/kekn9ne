@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
+_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
 
 ---
