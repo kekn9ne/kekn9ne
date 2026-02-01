@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
+_"There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will. — *Epictetus*"_
 
 ---
