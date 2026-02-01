@@ -7,6 +7,6 @@
 
 ---
 
-_"All I can do is be me, whoever that is. — *Bob Dylan*"_
+_"We can see through others only when we can see through ourselves. — *Bruce Lee*"_
 
 ---
