@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer more often in imagination than in reality. — *Seneca*"_
+_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
 
 ---
