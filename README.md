@@ -7,6 +7,6 @@
 
 ---
 
-_"Productize your perspective. — *Jack Butcher*"_
+_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
 
 ---
