@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 02 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Outro** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
+_"Failure is a prerequisite for great success. If you want success faster, double your rate of failure. — *Brian Tracy*"_
 
 ---
