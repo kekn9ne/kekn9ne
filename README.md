@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
+_"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live. — *Nicolas Chamfort*"_
 
 ---
