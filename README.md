@@ -7,6 +7,6 @@
 
 ---
 
-_"There is only one way to happiness and that is to cease worrying about things which are beyond the power or our will. — *Epictetus*"_
+_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
 
 ---
