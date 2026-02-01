@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is permanent in this wicked world - not even our troubles. — *Charlie Chaplin*"_
+_"Age is a very high price to pay for maturity. — *William James*"_
 
 ---
