@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Fam** by *UZI* 🎶
 
 ---
 
-_"Never do to others what you would not like them to do to you.  — *Confucius*"_
+_"Live your life and forget your age. — *Norman Vincent Peale*"_
 
 ---
