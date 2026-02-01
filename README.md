@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
 
 ---
 
-_"Life is ours to be spent, not to be saved.  — *D. H. Lawrence*"_
+_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
 
 ---
