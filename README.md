@@ -7,6 +7,6 @@
 
 ---
 
-_"Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — *Buddha*"_
+_"We suffer more often in imagination than in reality. — *Seneca*"_
 
 ---
