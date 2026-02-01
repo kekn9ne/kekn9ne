@@ -7,6 +7,6 @@
 
 ---
 
-_"The best revenge is to be unlike him who performed the injury. — *Marcus Aurelius*"_
+_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
 
 ---
