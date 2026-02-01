@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 February 2026**  
-🌤️ Weather in Istanbul: **🌧   +6°C**  
+🌤️ Weather in Istanbul: **🌦   +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: **Ismarla** by *UZI* 🎶
 
 ---
 
-_"Believe and you're halfway there. — *Harry S. Truman*"_
+_"To be truly ignorant, be content with your own knowledge. — *Zhuangzi*"_
 
 ---
