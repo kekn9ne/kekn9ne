@@ -7,6 +7,6 @@
 
 ---
 
-_"Help others and give something back. — *Arnold Schwarzenegger*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
