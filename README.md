@@ -7,6 +7,6 @@
 
 ---
 
-_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
+_"The final mystery is oneself. — *Oscar Wilde*"_
 
 ---
