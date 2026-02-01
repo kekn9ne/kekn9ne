@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 February 2026**  
 🌤️ Weather in Istanbul: **🌧   +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Trap House** by *UZI* 🎶
+🎧 Currently Listening: **Cennet** by *UZI* 🎶
 
 ---
 
-_"Welcome every morning with a smile. Look on the new day as another gift from your Creator, another golden opportunity. — *Og Mandino*"_
+_"Believe and you're halfway there. — *Harry S. Truman*"_
 
 ---
