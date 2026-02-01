@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
 
 ---
 
-_"Love your enemies, for they tell you your faults. — *Benjamin Franklin*"_
+_"Those who are easily shocked should be shocked more often. — *Mae West*"_
 
 ---
