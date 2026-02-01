@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer more often in imagination than in reality. — *Seneca*"_
+_"As one grows weaker one is less susceptible to suffering. There is less hurt because there is less to hurt. — *Jack London*"_
 
 ---
