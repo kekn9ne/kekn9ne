@@ -7,6 +7,6 @@
 
 ---
 
-_"Contemplation often makes life miserable.  We should act more, think less, and stop watching ourselves live. — *Nicolas Chamfort*"_
+_"Never do to others what you would not like them to do to you.  — *Confucius*"_
 
 ---
