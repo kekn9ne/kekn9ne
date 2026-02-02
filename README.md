@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 02 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +7°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
+_"The present moment is filled with joy and happiness. If you are attentive, you will see it. — *Thich Nhat Hanh*"_
 
 ---
