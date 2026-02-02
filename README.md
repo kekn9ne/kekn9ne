@@ -7,6 +7,6 @@
 
 ---
 
-_"Attitude drives actions. Actions drive results. Results drive lifestyles. — *Jim Rohn*"_
+_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
 
 ---
