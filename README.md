@@ -7,6 +7,6 @@
 
 ---
 
-_"Beginning today, treat everyone you meet as if they were going to be dead by midnight. Your life will never be the same again. — *Og Mandino*"_
+_"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.   — *Ray Bradbury*"_
 
 ---
