@@ -7,6 +7,6 @@
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"You can't climb the ladder of success with your hands in your pockets. — *Arnold Schwarzenegger*"_
 
 ---
