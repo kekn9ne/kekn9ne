@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 02 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +3°C**  
+🌤️ Weather in Istanbul: **🌧   +3°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The price of inaction is far greater than the cost of making a mistake. — *Meister Eckhart*"_
+_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
 
 ---
