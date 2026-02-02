@@ -7,6 +7,6 @@
 
 ---
 
-_"The dreamers are the saviors of the worlds. — *James Allen*"_
+_"Don't learn to do, but learn in doing. — *Samuel Butler*"_
 
 ---
