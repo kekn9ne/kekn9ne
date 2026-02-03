@@ -7,6 +7,6 @@
 
 ---
 
-_"Failure is the highway to success. — *Og Mandino*"_
+_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
 
 ---
