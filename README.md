@@ -7,6 +7,6 @@
 
 ---
 
-_"Paths are made by walking. — *Franz Kafka*"_
+_"Treat everyone with politeness and kindness, not because they are nice, but because you are. — *Roy T. Bennett*"_
 
 ---
