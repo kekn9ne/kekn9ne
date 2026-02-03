@@ -7,6 +7,6 @@
 
 ---
 
-_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
+_"You are not one person, but three: The one you think you are; The one others think you are; The one you really are. — *Sathya Sai Baba*"_
 
 ---
