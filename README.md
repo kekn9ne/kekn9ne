@@ -7,6 +7,6 @@
 
 ---
 
-_"People don't care how much you know until they know how much you care. — *Theodore Roosevelt*"_
+_"Any idea, plan, or purpose may be placed in the mind through repetition of thought. — *Napoleon Hill*"_
 
 ---
