@@ -7,6 +7,6 @@
 
 ---
 
-_"Anger begins with folly, and ends with repentance.  — *Beverly Sills*"_
+_"Why compare yourself with others? No one in the entire world can do a better job of being you than you. — *Unknown*"_
 
 ---
