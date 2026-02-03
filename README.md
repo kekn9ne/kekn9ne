@@ -7,6 +7,6 @@
 
 ---
 
-_"As you think, so shall you become.  — *Bruce Lee*"_
+_"Your imagination is your preview of life's coming attractions. — *Albert Einstein*"_
 
 ---
