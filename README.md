@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't learn to do, but learn in doing. — *Samuel Butler*"_
+_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
 
 ---
