@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 04 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"What is a friend? A single soul dwelling in two bodies. — *Aristotle*"_
+_"In order to attain the impossible, one must attempt the absurd. — *Miguel de Cervantes*"_
 
 ---
