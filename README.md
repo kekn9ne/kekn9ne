@@ -7,6 +7,6 @@
 
 ---
 
-_"When you love someone, you love the person as they are, and not as you'd like them to be. — *Leo Tolstoy*"_
+_"Your vision will become clear only when you can look into your own heart. — *Lolly Daskal*"_
 
 ---
