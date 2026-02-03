@@ -7,6 +7,6 @@
 
 ---
 
-_"A little progress each day adds up to big results. — *Unknown*"_
+_"Paths are made by walking. — *Franz Kafka*"_
 
 ---
