@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
+_"Rudeness is the weak man's imitation of strength. — *Eric Hoffer*"_
 
 ---
