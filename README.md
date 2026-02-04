@@ -7,6 +7,6 @@
 
 ---
 
-_"Make each day a new horizon. — *Christopher McCandless*"_
+_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
 
 ---
