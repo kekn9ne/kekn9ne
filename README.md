@@ -7,6 +7,6 @@
 
 ---
 
-_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
+_"Everyone faces challenges in life. It's a matter of how you learn to overcome them and using them to your advantage. — *Celestine Chua*"_
 
 ---
