@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 04 February 2026**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
+_"All things come into being by conflict of opposites. — *Heraclitus*"_
 
 ---
