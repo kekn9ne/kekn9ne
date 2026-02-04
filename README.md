@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 04 February 2026**  
-🌤️ Weather in Istanbul: **☀️   +10°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
+_"Sometimes you will never know the value of something, until it becomes a memory. — *Dr. Seuss*"_
 
 ---
