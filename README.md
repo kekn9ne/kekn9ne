@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth is simple. If it was complicated, everyone would understand it. — *Walt Whitman*"_
+_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
 
 ---
