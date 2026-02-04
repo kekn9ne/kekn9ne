@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 05 February 2026**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Outro** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
+_"Give out what you most want to come back. — *Robin Sharma*"_
 
 ---
