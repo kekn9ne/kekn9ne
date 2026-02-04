@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first-rate version of yourself, instead of a second-rate version of someone else. — *Judy Garland*"_
+_"We can choose to look at whatever we want.  We can look at what's wrong in our life or we can look at what's right. — *Sonia Ricotti*"_
 
 ---
