@@ -7,6 +7,6 @@
 
 ---
 
-_"Perseverance and spirit have done wonders in all ages.  — *George Washington*"_
+_"Do one thing every day that scares you. — *Eleanor Roosevelt*"_
 
 ---
