@@ -7,6 +7,6 @@
 
 ---
 
-_"Enthusiasm makes up for a host of deficiencies. — *Barack Obama*"_
+_"People think about what they don't want and attract more of the same. — *Unknown*"_
 
 ---
