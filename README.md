@@ -7,6 +7,6 @@
 
 ---
 
-_"Give out what you most want to come back. — *Robin Sharma*"_
+_"The truth is simple. If it was complicated, everyone would understand it. — *Walt Whitman*"_
 
 ---
