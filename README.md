@@ -7,6 +7,6 @@
 
 ---
 
-_"All things come into being by conflict of opposites. — *Heraclitus*"_
+_"Excellence is not an exception, it is a prevailing attitude. — *Colin Powell*"_
 
 ---
