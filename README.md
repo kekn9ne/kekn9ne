@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 04 February 2026**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
 
 ---
 
-_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
+_"A man is but a product of his thoughts. What he thinks he becomes. — *Mahatma Gandhi*"_
 
 ---
