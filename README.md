@@ -7,6 +7,6 @@
 
 ---
 
-_"Judgments prevent us from seeing the good that lies beyond appearances.   — *Wayne Dyer*"_
+_"You are your best thing. — *Toni Morrison*"_
 
 ---
