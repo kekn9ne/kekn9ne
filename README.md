@@ -7,6 +7,6 @@
 
 ---
 
-_"People think about what they don't want and attract more of the same. — *Unknown*"_
+_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
 
 ---
