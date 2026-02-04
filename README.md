@@ -7,6 +7,6 @@
 
 ---
 
-_"You do not read a book for the book's sake, but for your own. — *Earl Nightingale*"_
+_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
 
 ---
