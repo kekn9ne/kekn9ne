@@ -7,6 +7,6 @@
 
 ---
 
-_"When we think about our strengths, we are strong. When we think about our weaknesses, we are weak. — *Peter A. Cohen*"_
+_"You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being. — *Anita Krizzan*"_
 
 ---
