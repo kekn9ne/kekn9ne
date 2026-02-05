@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't have to move mountains. You'll change the world simply by being a warm, kind-hearted human being. — *Anita Krizzan*"_
+_"Take responsibility of your own happiness, never put it in other people's hands. — *Roy T. Bennett*"_
 
 ---
