@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 06 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **AKTIV II** by *Batuflex* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everything is possible. The impossible just takes longer. — *Dan Brown*"_
+_"Love is not about possession. Love is about appreciation. — *Osho*"_
 
 ---
