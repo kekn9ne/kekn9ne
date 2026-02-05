@@ -7,6 +7,6 @@
 
 ---
 
-_"Someday death will take us to another star. — *Vincent van Gogh*"_
+_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
 
 ---
