@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not pray for an easy life, pray for the strength to endure a difficult one.   — *Bruce Lee*"_
+_"Raise your words, not voice. It is rain that grows flowers, not thunder. — *Rumi*"_
 
 ---
