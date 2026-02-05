@@ -1,13 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 06 February 2026**  
-🌤️ Weather in Istanbul: **//x.com/igor_chubin for the updates.
-======================================================================================**  
+🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AKTIV II** by *Batuflex* 🎶
 
 ---
 
-_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
+_"Everything is possible. The impossible just takes longer. — *Dan Brown*"_
 
 ---
