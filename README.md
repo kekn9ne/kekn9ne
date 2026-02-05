@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 05 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
 
 ---
 
-_"Raise your words, not voice. It is rain that grows flowers, not thunder. — *Rumi*"_
+_"Knowing yourself is the beginning of all wisdom. — *Aristotle*"_
 
 ---
