@@ -7,6 +7,6 @@
 
 ---
 
-_"Take responsibility of your own happiness, never put it in other people's hands. — *Roy T. Bennett*"_
+_"Get busy living, or get busy dying. — *Stephen King*"_
 
 ---
