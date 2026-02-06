@@ -7,6 +7,6 @@
 
 ---
 
-_"In the midst of movement and chaos, keep stillness inside of you. — *Deepak Chopra*"_
+_"Things may come to those who wait, but only the things left by those who hustle. — *Abraham Lincoln*"_
 
 ---
