@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 06 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Babaflow** by *UZI* 🎶
 
 ---
 
-_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
+_"One of the oldest human needs is having someone to wonder where you are when you don't come home at night.  — *Margaret Mead*"_
 
 ---
