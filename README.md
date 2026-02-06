@@ -7,6 +7,6 @@
 
 ---
 
-_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
+_"You win more from losing than winning. — *Morgan Wootten*"_
 
 ---
