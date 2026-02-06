@@ -7,6 +7,6 @@
 
 ---
 
-_"The act of taking the first step is what separates the winners from the losers. — *Brian Tracy*"_
+_"The past has no power over the present moment.  — *Eckhart Tolle*"_
 
 ---
