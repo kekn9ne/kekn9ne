@@ -7,6 +7,6 @@
 
 ---
 
-_"You know you are on the road to success if you would do your job and not be paid for it. — *Oprah Winfrey*"_
+_"Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on. — *Criss Jami*"_
 
 ---
