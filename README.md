@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 07 February 2026**  
-🌤️ Weather in Istanbul: **☁️   +13°C**  
+🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **92**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Your very silence shows you agree. — *Euripides*"_
+_"In the midst of movement and chaos, keep stillness inside of you. — *Deepak Chopra*"_
 
 ---
