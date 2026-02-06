@@ -7,6 +7,6 @@
 
 ---
 
-_"Your conscience is the measure of the honesty of your selfishness. Listen to it carefully. — *Richard Bach*"_
+_"There are dark shadows on the earth, but its lights are stronger in the contrast. — *Charles Dickens*"_
 
 ---
