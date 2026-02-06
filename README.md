@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave enough to suck at something new. — *Unknown*"_
+_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
 
 ---
