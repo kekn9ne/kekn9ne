@@ -7,6 +7,6 @@
 
 ---
 
-_"The past has no power over the present moment.  — *Eckhart Tolle*"_
+_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
 
 ---
