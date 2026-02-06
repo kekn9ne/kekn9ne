@@ -7,6 +7,6 @@
 
 ---
 
-_"As a matter of fact is an expression that precedes many an expression that isn't. — *Laurence J. Peter*"_
+_"Be the silent watcher of your thoughts and behavior. You are beneath the thinker. — *Eckhart Tolle*"_
 
 ---
