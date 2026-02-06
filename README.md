@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is not about possession. Love is about appreciation. — *Osho*"_
+_"Worry is a waste of emotional reserve. — *Ayn Rand*"_
 
 ---
