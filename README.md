@@ -7,6 +7,6 @@
 
 ---
 
-_"A clear conscience is the sure sign of a bad memory. — *Mark Twain*"_
+_"You cannot push anyone up a ladder unless he is willing to climb a little himself. — *Andrew Carnegie*"_
 
 ---
