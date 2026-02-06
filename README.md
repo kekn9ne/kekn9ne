@@ -7,6 +7,6 @@
 
 ---
 
-_"You win more from losing than winning. — *Morgan Wootten*"_
+_"Be not afraid of growing slowly, be afraid only of standing still.  — *Chinese Proverb*"_
 
 ---
