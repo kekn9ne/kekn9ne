@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 07 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +16°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
 
 ---
 
-_"Do not think you will necessarily be aware of your own enlightenment. — *Dogen*"_
+_"There is nothing like looking if you want to find something. — *J.R.R. Tolkien*"_
 
 ---
