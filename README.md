@@ -7,6 +7,6 @@
 
 ---
 
-_"What are we doing here, that is the question. — *Samuel Beckett*"_
+_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
 
 ---
