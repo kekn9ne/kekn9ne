@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 08 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **WE NEVER LOSE** by *Ardaflex* 🎶
 
 ---
 
-_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
+_"Do the difficult things while they are easy and do the great things while they are small. — *Lao Tzu*"_
 
 ---
