@@ -7,6 +7,6 @@
 
 ---
 
-_"A strong man overcomes an obstacle, a wise man goes the whole way. — *Zen Proverb*"_
+_"Never whine, never complain, never try to justify yourself. — *Robert Greene*"_
 
 ---
