@@ -7,6 +7,6 @@
 
 ---
 
-_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
+_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
 
 ---
