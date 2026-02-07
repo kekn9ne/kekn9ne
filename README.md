@@ -7,6 +7,6 @@
 
 ---
 
-_"Your success and happiness lie in you. — *Helen Keller*"_
+_"Music is like creating an emotional painting. The sounds are the colors. — *Yanni*"_
 
 ---
