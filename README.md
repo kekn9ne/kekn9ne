@@ -7,6 +7,6 @@
 
 ---
 
-_"Find the game where you can win, and then commit your life to playing it; and play to win. — *Robert Kiyosaki*"_
+_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
 
 ---
