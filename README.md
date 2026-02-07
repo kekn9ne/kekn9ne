@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not the absence of problems, it's the ability to deal with them. — *Steve Maraboli*"_
+_"The heart wants what it wants - or else it does not care. — *Emily Dickinson*"_
 
 ---
