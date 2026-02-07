@@ -7,6 +7,6 @@
 
 ---
 
-_"It's necessary to get the losers out of your life if you want to live your dream. — *Les Brown*"_
+_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
 
 ---
