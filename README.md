@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not because things are difficult that we do not dare; it is because we do not dare that things are difficult.   — *Seneca*"_
+_"Turn your face to the sun, as flowers know how to do. — *Ming-Dao Deng*"_
 
 ---
