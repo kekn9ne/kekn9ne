@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatness lies not in being strong, but in the right use of strength. — *Henry Ward Beecher*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
