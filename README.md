@@ -7,6 +7,6 @@
 
 ---
 
-_"Loving thoughts and actions are clearly beneficial for our physical and mental health. — *Dalai Lama*"_
+_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
 
 ---
