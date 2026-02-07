@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
+_"The time is now, the place is here. Stay in the present. — *Dan Millman*"_
 
 ---
