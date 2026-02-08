@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 08 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **vODKA BELUGA** by *Lvbel C5* 🎶
+🎧 Currently Listening: **Fam** by *UZI* 🎶
 
 ---
 
-_"Act as if what you do makes a difference. It does. — *William James*"_
+_"You cannot change your destination overnight but you can change your direction overnight. — *Jim Rohn*"_
 
 ---
