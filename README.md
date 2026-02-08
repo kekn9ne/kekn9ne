@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **JENGA** by *Khontkar* 🎶
+🎧 Currently Listening: **AKTIV II** by *Batuflex* 🎶
 
 ---
 
-_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
+_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
 
 ---
