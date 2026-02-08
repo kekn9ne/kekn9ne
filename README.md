@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 08 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"What we know is a drop, what we don't know is an ocean.  — *Isaac Newton*"_
 
 ---
