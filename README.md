@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Risk (feat. UZI & Sfera Ebbasta)** by *Luciano* 🎶
+🎧 Currently Listening: **JENGA** by *Khontkar* 🎶
 
 ---
 
-_"Do not wait for leaders; do it alone, person to person. — *Mother Teresa*"_
+_"It isn't that they can't see the solution. It is that they can't see the problem. — *Gilbert Chesterton*"_
 
 ---
