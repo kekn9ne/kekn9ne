@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
+🎧 Currently Listening: **Babaflow** by *UZI* 🎶
 
 ---
 
-_"I am not the outcome. I am never the result. I am only the effort. — *Kamal Ravikant*"_
+_"A warrior does not give up what he loves, he finds the love in what he does. — *Dan Millman*"_
 
 ---
