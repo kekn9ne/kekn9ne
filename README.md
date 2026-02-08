@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 08 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: **vODKA BELUGA** by *Lvbel C5* 🎶
 
 ---
 
-_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
+_"Act as if what you do makes a difference. It does. — *William James*"_
 
 ---
