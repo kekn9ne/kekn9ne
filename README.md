@@ -7,6 +7,6 @@
 
 ---
 
-_"Some men see things as they are and ask why. Others dream things that never were and ask why not. — *George Bernard Shaw*"_
+_"To lead an orchestra, you must turn your back on the crowd. — *Aristotle*"_
 
 ---
