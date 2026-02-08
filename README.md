@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"Change is never easy, but always possible. — *Barack Obama*"_
 
 ---
