@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 08 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +10°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: **ANLADIM SENİ** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Tomorrow is only found in the calendar of fools. — *Og Mandino*"_
+_"A good system shortens the road to the goal.  — *Orison Swett Marden*"_
 
 ---
