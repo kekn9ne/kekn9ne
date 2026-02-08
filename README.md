@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 09 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
 
 ---
 
-_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
+_"People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. — *Franklin D. Roosevelt*"_
 
 ---
