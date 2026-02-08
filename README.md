@@ -7,6 +7,6 @@
 
 ---
 
-_"A good system shortens the road to the goal.  — *Orison Swett Marden*"_
+_"Maybe you are searching among the branches, for what only appears in the roots. — *Rumi*"_
 
 ---
