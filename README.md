@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 09 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. — *Franklin D. Roosevelt*"_
+_"Give a girl the right shoes, and she can conquer the world. — *Bette Midler*"_
 
 ---
