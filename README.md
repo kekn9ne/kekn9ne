@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is never easy, but always possible. — *Barack Obama*"_
+_"If you think you can do a thing or think you can't do a thing, you're right. — *Henry Ford*"_
 
 ---
