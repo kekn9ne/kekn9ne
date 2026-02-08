@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Cennet** by *UZI* 🎶
 
 ---
 
-_"Much learning does not teach understanding. — *Heraclitus*"_
+_"You came empty handed, and you will leave empty handed. — *Bhagavad Gita*"_
 
 ---
