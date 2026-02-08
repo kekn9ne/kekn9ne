@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
 
 ---
