@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **92**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
 
 ---
 
-_"Best be yourself, imperial, plain, and true. — *Robert Browning*"_
+_"I am not the outcome. I am never the result. I am only the effort. — *Kamal Ravikant*"_
 
 ---
