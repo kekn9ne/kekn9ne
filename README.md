@@ -7,6 +7,6 @@
 
 ---
 
-_"Give a girl the right shoes, and she can conquer the world. — *Bette Midler*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
