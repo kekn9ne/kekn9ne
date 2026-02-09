@@ -7,6 +7,6 @@
 
 ---
 
-_"We can't help everyone, but everyone can help someone. — *Ronald Reagan*"_
+_"Often in the real world, it's not the smart that get ahead, but the bold. — *Robert Kiyosaki*"_
 
 ---
