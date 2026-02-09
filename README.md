@@ -7,6 +7,6 @@
 
 ---
 
-_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
+_"The whole of life, from the moment you are born to the moment you die, is a process of learning. — *Jiddu Krishnamurti*"_
 
 ---
