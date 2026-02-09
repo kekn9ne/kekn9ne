@@ -7,6 +7,6 @@
 
 ---
 
-_"It is the power of the mind to be unconquerable. — *Seneca*"_
+_"A man should never be ashamed to own that he has been in the wrong, which is but saying, that he is wiser today than yesterday. — *Jonathan Swift*"_
 
 ---
