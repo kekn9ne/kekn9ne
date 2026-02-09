@@ -7,6 +7,6 @@
 
 ---
 
-_"Ideas do not reach perfection in a day, no matter how much study is put upon them. — *Alexander Graham Bell*"_
+_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
 
 ---
