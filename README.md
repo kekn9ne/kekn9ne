@@ -1,13 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 10 February 2026**  
-🌤️ Weather in Istanbul: **//x.com/igor_chubin for the updates.
-======================================================================================**  
+🌤️ Weather in Istanbul: **🌦   +6°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only the educated are free. — *Epictetus*"_
+_"Change is hard at first, messy in the middle and gorgeous at the end. — *Robin Sharma*"_
 
 ---
