@@ -7,6 +7,6 @@
 
 ---
 
-_"Take into account that great love and great achievements involve great risk. — *Dalai Lama*"_
+_"Silence is sometimes the best answer. — *Dalai Lama*"_
 
 ---
