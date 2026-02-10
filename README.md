@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 11 February 2026**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
 
 ---
 
-_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
+_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
 
 ---
