@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 10 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **91**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
+_"Walk towards the sunshine, and the shadows will fall behind you. — *Mary Engelbreit*"_
 
 ---
