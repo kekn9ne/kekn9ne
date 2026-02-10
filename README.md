@@ -7,6 +7,6 @@
 
 ---
 
-_"Investing in yourself is the best investment you will ever make. — *Robin Sharma*"_
+_"Your time is limited, so don't waste it living someone elses. life. Don't be trapped by dogma - which is living with the results of other people's thinking. — *Steve Jobs*"_
 
 ---
