@@ -7,6 +7,6 @@
 
 ---
 
-_"No great discovery was ever made without a bold guess.  — *Isaac Newton*"_
+_"Don't be afraid to stand for what you believe in, even if that means standing alone. — *Unknown*"_
 
 ---
