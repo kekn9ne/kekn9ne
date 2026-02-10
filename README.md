@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 11 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **KISA KELEŞ 2.0** by *Rozzy* 🎶
+🎧 Currently Listening: **Vtc 2017** by *Dj Okan Doğan* 🎶
 
 ---
 
-_"Rather than love, than money, than fame, give me truth. — *Henry David Thoreau*"_
+_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
 
 ---
