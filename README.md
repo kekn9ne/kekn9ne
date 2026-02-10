@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no ordinary moments. — *Dan Millman*"_
+_"The roots of education are bitter, but the fruit is sweet. — *Aristotle*"_
 
 ---
