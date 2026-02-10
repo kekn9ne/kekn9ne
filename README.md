@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is a bitter plant, but its fruit is sweet. — *Chinese Proverb*"_
+_"Strive for excellence, not perfection, because we don't live in a perfect world. — *Joyce Meyer*"_
 
 ---
