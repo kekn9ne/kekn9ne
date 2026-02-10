@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole of life, from the moment you are born to the moment you die, is a process of learning. — *Jiddu Krishnamurti*"_
+_"Every time we liberate a woman, we liberate a man.  — *Margaret Mead*"_
 
 ---
