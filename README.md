@@ -7,6 +7,6 @@
 
 ---
 
-_"The key to immortality is first living a life worth remembering.  — *Bruce Lee*"_
+_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
 
 ---
