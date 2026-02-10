@@ -7,6 +7,6 @@
 
 ---
 
-_"Before enlightenment; chop wood, carry water. After enlightenment; chop wood, carry water. — *Buddha*"_
+_"Do good by stealth, and blush to find it fame. — *Alexander Pope*"_
 
 ---
