@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 11 February 2026**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **ILLEGACY 3** by *EXRE* 🎶
+🎧 Currently Listening: **nE !?** by *Lvbel C5* 🎶
 
 ---
 
-_"What the mind can conceive, it can achieve. — *Napoleon Hill*"_
+_"Trying to define yourself is like trying to bite your own teeth. — *Zen Proverb*"_
 
 ---
