@@ -7,6 +7,6 @@
 
 ---
 
-_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
+_"Intelligence, imagination, and knowledge are essential resources, but only effectiveness converts them into results. — *Peter Drucker*"_
 
 ---
