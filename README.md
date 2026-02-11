@@ -7,6 +7,6 @@
 
 ---
 
-_"New beginnings are disguised as painful endings. — *Lao Tzu*"_
+_"There are as many opinions as there are experts. — *Franklin D. Roosevelt*"_
 
 ---
