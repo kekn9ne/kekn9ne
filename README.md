@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't build a reputation on what you are going to do.  — *Henry Ford*"_
+_"New beginnings are disguised as painful endings. — *Lao Tzu*"_
 
 ---
