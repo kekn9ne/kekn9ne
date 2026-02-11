@@ -7,6 +7,6 @@
 
 ---
 
-_"We can either add to our character each day, or we can fritter away our energies in distractions. — *Ming-Dao Deng*"_
+_"Action may not always bring happiness, but there is no happiness without action. — *William James*"_
 
 ---
