@@ -7,6 +7,6 @@
 
 ---
 
-_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
+_"Hope itself is like a star- not to be seen in the sunshine of prosperity, and only to be discovered in the night of adversity. — *Charles Spurgeon*"_
 
 ---
