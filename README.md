@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 11 February 2026**  
 🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Vtc 2017** by *Dj Okan Doğan* 🎶
+🎧 Currently Listening: **Miss Me (Trefuego)** by *khxznq* 🎶
 
 ---
 
-_"When the mind is calm, how quickly, how smoothly, how beautifully you will perceive everything. — *Paramahansa Yogananda*"_
+_"What lies behind us and what lies before us are tiny matters compared to what lies within us. — *Ralph Waldo Emerson*"_
 
 ---
