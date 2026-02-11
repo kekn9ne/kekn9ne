@@ -7,6 +7,6 @@
 
 ---
 
-_"There are as many opinions as there are experts. — *Franklin D. Roosevelt*"_
+_"Where your talents and the needs of the world cross, there lies your vocation. — *Aristotle*"_
 
 ---
