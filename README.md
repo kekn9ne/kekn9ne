@@ -7,6 +7,6 @@
 
 ---
 
-_"All men who have achieved great things have been great dreamers.  — *Orison Swett Marden*"_
+_"Know the rules well, so you can break them effectively. — *Dalai Lama*"_
 
 ---
