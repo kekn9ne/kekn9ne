@@ -7,6 +7,6 @@
 
 ---
 
-_"To do two things at once is to do neither. — *Publilius Syrus*"_
+_"I would rather be a little nobody, then to be an evil somebody. — *Abraham Lincoln*"_
 
 ---
