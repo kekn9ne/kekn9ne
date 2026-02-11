@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 11 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **91**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Take away love and our earth is a tomb. — *Robert Browning*"_
+_"You change the world by being yourself. — *Yoko Ono*"_
 
 ---
