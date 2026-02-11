@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 11 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The people who succeed are irrationally passionate about something. — *Naval Ravikant*"_
+_"A mistake is only an error, it becomes a mistake when you fail to correct it. — *John Lennon*"_
 
 ---
