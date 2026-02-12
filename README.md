@@ -7,6 +7,6 @@
 
 ---
 
-_"On the other side of the clouds is a bright blue sky. — *Unknown*"_
+_"To be alive - is Power. — *Emily Dickinson*"_
 
 ---
