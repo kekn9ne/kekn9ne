@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 13 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
 
 ---
 
-_"Great loves too must be endured. — *Coco Chanel*"_
+_"Remember that the best relationship is one in which your love for each other exceeds your need for each other. — *Dalai Lama*"_
 
 ---
