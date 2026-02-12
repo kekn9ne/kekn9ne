@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
+_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
 
 ---
