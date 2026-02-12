@@ -7,6 +7,6 @@
 
 ---
 
-_"If he cannot stop the mind that seeks after fame and profit, he will spend his life without finding peace. — *Dogen*"_
+_"The score never interested me, only the game. — *Mae West*"_
 
 ---
