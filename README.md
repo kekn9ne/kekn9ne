@@ -7,6 +7,6 @@
 
 ---
 
-_"The score never interested me, only the game. — *Mae West*"_
+_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
 
 ---
