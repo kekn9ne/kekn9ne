@@ -7,6 +7,6 @@
 
 ---
 
-_"If you always do what you've always done, you'll always get what you've always got.  — *Henry Ford*"_
+_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
 
 ---
