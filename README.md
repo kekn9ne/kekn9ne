@@ -7,6 +7,6 @@
 
 ---
 
-_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
+_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
 
 ---
