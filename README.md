@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for if not to make life less difficult for each other? — *T.S. Eliot*"_
+_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
 
 ---
