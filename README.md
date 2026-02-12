@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 12 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Ou** by *UZI* 🎶
 
 ---
 
-_"Failing is another stepping stone to greatness. — *Oprah Winfrey*"_
+_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
 
 ---
