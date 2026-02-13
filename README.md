@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Friday, 13 February 2026**  
+🗓️ Today is: **Saturday, 14 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **91**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
+_"Management is doing things right; leadership is doing the right things. — *Peter Drucker*"_
 
 ---
