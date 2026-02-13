@@ -7,6 +7,6 @@
 
 ---
 
-_"The face is the mirror of the mind, and eyes without speaking confess the secrets of the heart.  — *St. Jerome*"_
+_"Strategy is a commodity, execution is an art. — *Peter Drucker*"_
 
 ---
