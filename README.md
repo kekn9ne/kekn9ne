@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 13 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +11°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Focus on how far you have come in life rather than looking at the accomplishments of others. — *Lolly Daskal*"_
+_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
 
 ---
