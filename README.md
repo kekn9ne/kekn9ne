@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 13 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **XXL** by *UZI* 🎶
+🎧 Currently Listening: **Kennedy'i Ben Vurdum** by *Wegh* 🎶
 
 ---
 
-_"The person who cannot control his words shows that he cannot control himself. — *Robert Greene*"_
+_"Sadness is but a wall between two gardens. — *Kahlil Gibran*"_
 
 ---
