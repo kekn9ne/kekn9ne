@@ -7,6 +7,6 @@
 
 ---
 
-_"The question is not what you look at, but what you see. — *Henry David Thoreau*"_
+_"With self-discipline, almost anything is possible. — *Theodore Roosevelt*"_
 
 ---
