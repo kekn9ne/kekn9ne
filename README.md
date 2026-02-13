@@ -7,6 +7,6 @@
 
 ---
 
-_"It ain't where you start in life, it's where you end up, and what you did along the way. — *Colin Powell*"_
+_"Discipline is the bridge between goals and accomplishment. — *Jim Rohn*"_
 
 ---
