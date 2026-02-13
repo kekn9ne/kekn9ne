@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 13 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +11°C**  
+🌤️ Weather in Istanbul: **🌦   +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Fam** by *UZI* 🎶
 
 ---
 
-_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
+_"The trouble with most of us is that we'd rather be ruined by praise than saved by criticism. — *Norman Vincent Peale*"_
 
 ---
