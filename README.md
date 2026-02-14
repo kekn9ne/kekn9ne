@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **fıs?** by *KAVAK* 🎶
 
 ---
 
-_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
+_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
 
 ---
