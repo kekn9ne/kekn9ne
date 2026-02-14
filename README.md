@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep smiling, because life is a beautiful thing and there's so much to smile about. — *Marilyn Monroe*"_
+_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
 
 ---
