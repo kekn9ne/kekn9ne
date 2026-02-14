@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +13°C**  
+🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **KAYKAY** by *Era7capone* 🎶
+🎧 Currently Listening: **Yerinde Dur** by *Sefo* 🎶
 
 ---
 
-_"Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored. — *Earl Nightingale*"_
+_"Those who dream by day are cognizant of many things which escape those who dream only by night. — *Vincent van Gogh*"_
 
 ---
