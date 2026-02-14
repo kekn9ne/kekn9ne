@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 15 February 2026**  
 🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
+_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
 
 ---
