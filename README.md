@@ -7,6 +7,6 @@
 
 ---
 
-_"Anyone who reads a book with a sense of obligation does not understand the art of reading. — *Lin Yutang*"_
+_"Avoiding danger is no safer in the long run than exposure. — *Helen Keller*"_
 
 ---
