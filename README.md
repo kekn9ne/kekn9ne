@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is never easy, but always possible. — *Barack Obama*"_
+_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
 
 ---
