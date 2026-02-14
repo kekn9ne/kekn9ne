@@ -7,6 +7,6 @@
 
 ---
 
-_"To travel is to be alive, but to get somewhere is to be dead. — *Alan Watts*"_
+_"Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become. — *Paramahansa Yogananda*"_
 
 ---
