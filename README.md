@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Bigman** by *Heijan* 🎶
+🎧 Currently Listening: **KAYKAY** by *Era7capone* 🎶
 
 ---
 
-_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
+_"Think how really precious is the time you have to spend, whether it's at work or with your family. Every minute should be enjoyed and savored. — *Earl Nightingale*"_
 
 ---
