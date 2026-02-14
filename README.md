@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: **Mani** by *Ceg* 🎶
 
 ---
 
-_"When you're the only sane person, you look like the only insane person. — *Criss Jami*"_
+_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
 
 ---
