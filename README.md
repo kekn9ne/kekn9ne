@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 14 February 2026**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Godfather** by *lrdzdx* 🎶
+🎧 Currently Listening: **Çalıştım Çok** by *Mass* 🎶
 
 ---
 
-_"Learn from the mistakes of others. You can't live long enough to make them all yourself. — *Eleanor Roosevelt*"_
+_"Every day may not be good, but there's something good in every day. — *Unknown*"_
 
 ---
