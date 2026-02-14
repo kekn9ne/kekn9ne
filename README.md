@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 15 February 2026**  
 🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
 
 ---
 
-_"Sometimes adversity is what you need to face in order to become successful. — *Zig Ziglar*"_
+_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
 
 ---
