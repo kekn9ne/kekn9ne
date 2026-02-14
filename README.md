@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 15 February 2026**  
 🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A thing must be loved before it is lovable. — *Gilbert Chesterton*"_
+_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
 
 ---
