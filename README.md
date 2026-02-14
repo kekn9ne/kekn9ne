@@ -7,6 +7,6 @@
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"If you aim at nothing, you will hit it every time.   — *Zig Ziglar*"_
 
 ---
