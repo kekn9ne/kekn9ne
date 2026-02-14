@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 14 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Mani** by *Ceg* 🎶
+🎧 Currently Listening: **LVBEL C6** by *UMK* 🎶
 
 ---
 
-_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
+_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
 
 ---
