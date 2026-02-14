@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
+_"There is nothing more frightful than ignorance in action. — *Johann Wolfgang von Goethe*"_
 
 ---
