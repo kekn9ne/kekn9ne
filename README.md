@@ -7,6 +7,6 @@
 
 ---
 
-_"None of us can change our yesterdays but all of us can change our tomorrows. — *Colin Powell*"_
+_"When you judge another, you do not define them, you define yourself — *Wayne Dyer*"_
 
 ---
