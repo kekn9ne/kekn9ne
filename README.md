@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **☀️   +12°C**  
+🗓️ Today is: **Sunday, 15 February 2026**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **OTOBAN 2.o** by *WAG1* 🎶
 
 ---
 
-_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
+_"A thing must be loved before it is lovable. — *Gilbert Chesterton*"_
 
 ---
