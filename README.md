@@ -7,6 +7,6 @@
 
 ---
 
-_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
+_"Change is never easy, but always possible. — *Barack Obama*"_
 
 ---
