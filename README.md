@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 14 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **LVBEL C6** by *UMK* 🎶
+🎧 Currently Listening: **Bigman** by *Heijan* 🎶
 
 ---
 
-_"Don't wait for the right opportunity: create it. — *George Bernard Shaw*"_
+_"Cry. Forgive. Learn. Move on. Let your tears water the seeds of your future happiness. — *Steve Maraboli*"_
 
 ---
