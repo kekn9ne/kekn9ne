@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 14 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
+_"Those who look for the bad in people will surely find it. — *Abraham Lincoln*"_
 
 ---
