@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **91**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Wealth is the product of man's capacity to think. — *Ayn Rand*"_
+_"Only he who has no use for the empire is fit to be entrusted with it. — *Zhuangzi*"_
 
 ---
