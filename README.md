@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +9°C**  
+🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **91**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Nedenini Sorma** by *UZI* 🎶
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
 
 ---
