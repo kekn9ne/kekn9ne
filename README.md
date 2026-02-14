@@ -7,6 +7,6 @@
 
 ---
 
-_"When it hurts - observe. Life is trying to teach you something. — *Anita Krizzan*"_
+_"Take interest and even delight in doing the small things well. — *Jim Rohn*"_
 
 ---
