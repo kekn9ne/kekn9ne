@@ -7,6 +7,6 @@
 
 ---
 
-_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
+_"Normal is the average of deviance. — *Rita Mae Brown*"_
 
 ---
