@@ -7,6 +7,6 @@
 
 ---
 
-_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
+_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
 
 ---
