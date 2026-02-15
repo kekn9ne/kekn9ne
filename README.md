@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 16 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Nerdeydin De** by *ŞEVVAL* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You get paid in direct proportion to the difficulty of problems you solve. — *Elon Musk*"_
+_"All know that the drop merges into the ocean, but few know that the ocean merges into the drop. — *Kabir*"_
 
 ---
