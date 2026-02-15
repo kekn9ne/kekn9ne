@@ -7,6 +7,6 @@
 
 ---
 
-_"Never let your memories be greater than your dreams. — *Doug Ivester*"_
+_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
 
 ---
