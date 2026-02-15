@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 16 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Nerdeydin De** by *ŞEVVAL* 🎶
 
 ---
 
-_"If you are lucky enough to find love, remember it is there and don't throw it away. — *Stephen Hawking*"_
+_"Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want. — *Tony Robbins*"_
 
 ---
