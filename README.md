@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes you put walls up not to keep people out, but to see who cares enough to break them down. — *Socrates*"_
+_"Just because something isn't a lie does not mean that it isn't deceptive. — *Criss Jami*"_
 
 ---
