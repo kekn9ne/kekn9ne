@@ -7,6 +7,6 @@
 
 ---
 
-_"All know that the drop merges into the ocean, but few know that the ocean merges into the drop. — *Kabir*"_
+_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
 
 ---
