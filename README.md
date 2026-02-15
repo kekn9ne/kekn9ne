@@ -7,6 +7,6 @@
 
 ---
 
-_"Just because something isn't a lie does not mean that it isn't deceptive. — *Criss Jami*"_
+_"Create with the heart; build with the mind. — *Criss Jami*"_
 
 ---
