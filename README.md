@@ -7,6 +7,6 @@
 
 ---
 
-_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
+_"If you want to be successful, you have to jump, there's no way around it. — *Steve Harvey*"_
 
 ---
