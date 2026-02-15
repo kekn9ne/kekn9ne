@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no truth. There is only perception. — *Gustave Flaubert*"_
+_"Never let your memories be greater than your dreams. — *Doug Ivester*"_
 
 ---
