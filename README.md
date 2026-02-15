@@ -7,6 +7,6 @@
 
 ---
 
-_"The temptation to give up is strongest just before victory. — *Zen Proverb*"_
+_"If I have seen further than others, it is by standing upon the shoulders of giants. — *Isaac Newton*"_
 
 ---
