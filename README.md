@@ -7,6 +7,6 @@
 
 ---
 
-_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
+_"There is no truth. There is only perception. — *Gustave Flaubert*"_
 
 ---
