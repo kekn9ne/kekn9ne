@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not stop thinking of life as an adventure. — *Eleanor Roosevelt*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
