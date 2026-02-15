@@ -7,6 +7,6 @@
 
 ---
 
-_"If you are ever the smartest person in the room, you are in the wrong room. — *C. Sean McGee*"_
+_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
 
 ---
