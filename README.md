@@ -7,6 +7,6 @@
 
 ---
 
-_"Showing off is the fool's idea of glory.  — *Bruce Lee*"_
+_"If you are ever the smartest person in the room, you are in the wrong room. — *C. Sean McGee*"_
 
 ---
