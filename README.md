@@ -7,6 +7,6 @@
 
 ---
 
-_"People who have goals succeed because they know where they're going. It's that simple. — *Earl Nightingale*"_
+_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
 
 ---
