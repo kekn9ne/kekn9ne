@@ -7,6 +7,6 @@
 
 ---
 
-_"It's OK to have your eggs in one basket as long as you control what happens to that basket. — *Elon Musk*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
