@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
+_"The merit of all things lies in their difficulty. — *Alexandre Dumas*"_
 
 ---
