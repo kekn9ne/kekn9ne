@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be successful, find someone who has achieved the results you want and copy what they do and you'll achieve the same results. — *Tony Robbins*"_
+_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
 
 ---
