@@ -7,6 +7,6 @@
 
 ---
 
-_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
+_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
 
 ---
