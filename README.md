@@ -7,6 +7,6 @@
 
 ---
 
-_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
+_"Circumstances rule men; men do not rule circumstances.  — *Herodotus*"_
 
 ---
