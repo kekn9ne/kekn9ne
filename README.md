@@ -7,6 +7,6 @@
 
 ---
 
-_"When you can't make them see the light, make them feel the heat. — *Ronald Reagan*"_
+_"If you do not get the chills when you set your goal you're not setting big enough goals. — *Bob Proctor*"_
 
 ---
