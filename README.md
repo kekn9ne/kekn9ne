@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is about choice. You can choose to be a victim or anything else you like to be. — *Celestine Chua*"_
+_"When you can't make them see the light, make them feel the heat. — *Ronald Reagan*"_
 
 ---
