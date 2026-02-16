@@ -7,6 +7,6 @@
 
 ---
 
-_"Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt. — *Honore de Balzac*"_
+_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
 
 ---
