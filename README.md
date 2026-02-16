@@ -7,6 +7,6 @@
 
 ---
 
-_"When you have vision it affects your attitude. Your attitude is optimistic rather than pessimistic.  — *Charles Swindoll*"_
+_"Our heart is a treasury; if you pour out all its wealth at once, you are bankrupt. — *Honore de Balzac*"_
 
 ---
