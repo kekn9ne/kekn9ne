@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 16 February 2026**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
+_"Challenge yourself to find the good and beautiful thing inside of everyone. — *Mark Manson*"_
 
 ---
