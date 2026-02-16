@@ -7,6 +7,6 @@
 
 ---
 
-_"An investment in knowledge pays the best interest. — *Benjamin Franklin*"_
+_"To be totally at leisure for one day is to be immortal for one day.  — *Chinese Proverb*"_
 
 ---
