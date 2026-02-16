@@ -7,6 +7,6 @@
 
 ---
 
-_"Fool me once, shame on you; fool me twice, shame on me.  — *Chinese Proverb*"_
+_"Never allow a person to tell you no who doesn't have the power to say yes. — *Eleanor Roosevelt*"_
 
 ---
