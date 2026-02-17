@@ -7,6 +7,6 @@
 
 ---
 
-_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
+_"Learn from the mistakes of others. You can't live long enough to make them all yourself. — *Eleanor Roosevelt*"_
 
 ---
