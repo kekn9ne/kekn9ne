@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise warrior avoids the battle. — *Sun Tzu*"_
+_"Science can flourish only in an atmosphere of free speech.  — *Albert Einstein*"_
 
 ---
