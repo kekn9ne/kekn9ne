@@ -7,6 +7,6 @@
 
 ---
 
-_"Creative endeavors are by their nature uncertain. — *Robert Greene*"_
+_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
 
 ---
