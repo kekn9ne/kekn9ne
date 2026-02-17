@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **🌦   +13°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not available 🎧
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
+_"There's a very deep connection among human beings. All we have to do is open our minds to it. — *Yanni*"_
 
 ---
