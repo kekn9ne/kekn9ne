@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +13°C**  
+🌤️ Weather in Istanbul: **⛅️  +14°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The secret of happiness is not in doing what you like but in liking what you have to do. — *Sathya Sai Baba*"_
+_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
 
 ---
