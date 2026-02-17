@@ -7,6 +7,6 @@
 
 ---
 
-_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
+_"It's always to soon to quit! — *Norman Vincent Peale*"_
 
 ---
