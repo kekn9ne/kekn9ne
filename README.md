@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +10°C**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Anyone telling you it's pointless to share your perspective is sharing their perspective. — *Jack Butcher*"_
+_"Rich people have small TVs and big libraries, and poor people have small libraries and big TVs. — *Zig Ziglar*"_
 
 ---
