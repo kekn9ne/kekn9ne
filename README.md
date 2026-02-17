@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't need anybody to tell you who you are or what you are. You are what you are! — *John Lennon*"_
+_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
 
 ---
