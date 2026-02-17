@@ -7,6 +7,6 @@
 
 ---
 
-_"Not how long, but how well you have lived is the main thing. — *Seneca*"_
+_"New opinions are always suspected, and usually opposed, without any other reason but because they are not common. — *John Locke*"_
 
 ---
