@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +15°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is essentially an endless series of problems. The solution to one problem is merely the creation of another. — *Mark Manson*"_
+_"The first half of life is devoted to forming a healthy ego, the second half is going inward and letting go of it. — *Carl Jung*"_
 
 ---
