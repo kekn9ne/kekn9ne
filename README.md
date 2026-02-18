@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 19 February 2026**  
-🌤️ Weather in Istanbul: **🌦   +6°C**  
+🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"At the end of the day, let there be no excuses, no explanations, no regrets. — *Steve Maraboli*"_
+_"Why do you stay in prison when the door is so wide open? — *Rumi*"_
 
 ---
