@@ -7,6 +7,6 @@
 
 ---
 
-_"Among the things you can give and still keep are your word, a smile, and a grateful heart. — *Zig Ziglar*"_
+_"Consider the rights of others before your own feelings, and the feelings of others before your own rights. — *John Wooden*"_
 
 ---
