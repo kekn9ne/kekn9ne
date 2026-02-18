@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 18 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Murabba** by *Wegh* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
+_"The more I want to get something done, the less I call it work. — *Richard Bach*"_
 
 ---
