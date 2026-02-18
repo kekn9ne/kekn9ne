@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 18 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Consider the rights of others before your own feelings, and the feelings of others before your own rights. — *John Wooden*"_
+_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
 
 ---
