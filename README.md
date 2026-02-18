@@ -7,6 +7,6 @@
 
 ---
 
-_"Optimism, when applied to your life, develops strength and peace within you. — *Norman Vincent Peale*"_
+_"You can't go forward and backwards at the same time. — *Steve Harvey*"_
 
 ---
