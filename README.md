@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 18 February 2026**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Murabba** by *Wegh* 🎶
 
 ---
 
-_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
+_"Sometimes letting things go is an act of far greater power than defending or hanging on. — *Eckhart Tolle*"_
 
 ---
