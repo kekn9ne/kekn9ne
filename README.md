@@ -7,6 +7,6 @@
 
 ---
 
-_"The future will be shaped by those willing to commit their minds and their bodies to the task. — *Robert F. Kennedy*"_
+_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
 
 ---
