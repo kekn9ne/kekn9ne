@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"I don't ever give up. I'd have to be dead or completely incapacitated. — *Elon Musk*"_
 
 ---
