@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 20 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
 
 ---
 
-_"To be in harmony with the wholeness of things is not to have anxiety over imperfections. — *Dogen*"_
+_"Have a vision. Be demanding. — *Colin Powell*"_
 
 ---
