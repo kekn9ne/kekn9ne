@@ -7,6 +7,6 @@
 
 ---
 
-_"I never dwell on what happened. You can't change it. Move forward. — *Joan Rivers*"_
+_"Chop your own wood and it will warm you twice.  — *Henry Ford*"_
 
 ---
