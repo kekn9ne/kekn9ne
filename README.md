@@ -7,6 +7,6 @@
 
 ---
 
-_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
+_"Don't be afraid of missing opportunities. Behind every failure is an opportunity somebody wishes they had missed. — *Lily Tomlin*"_
 
 ---
