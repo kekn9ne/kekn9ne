@@ -7,6 +7,6 @@
 
 ---
 
-_"It is startling to realize how much unbelief is necessary to make belief possible. — *Eric Hoffer*"_
+_"Disobedience is the true foundation of liberty. The obedient must be slaves. — *Henry David Thoreau*"_
 
 ---
