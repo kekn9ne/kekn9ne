@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 20 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Tartan** by *EsDeeKid* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Silence is sometimes the best answer. — *Dalai Lama*"_
+_"Smell the cheese often so you know when it is getting old. — *Spencer Johnson*"_
 
 ---
