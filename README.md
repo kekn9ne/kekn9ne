@@ -7,6 +7,6 @@
 
 ---
 
-_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
+_"Ripe fruit falls by itself - but it doesn't fall in your mouth.  — *Chinese Proverb*"_
 
 ---
