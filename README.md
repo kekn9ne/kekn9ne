@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
+_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
 
 ---
