@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 20 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **☀️   +9°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Have a vision. Be demanding. — *Colin Powell*"_
+_"The future belongs to those who believe in the beauty of their dreams. — *Eleanor Roosevelt*"_
 
 ---
