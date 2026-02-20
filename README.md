@@ -7,6 +7,6 @@
 
 ---
 
-_"You can not live your life just based on what everyone else thinks. — *Joyce Meyer*"_
+_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
 
 ---
