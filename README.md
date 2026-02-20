@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is going from failure to failure without losing your enthusiasm — *Winston Churchill*"_
+_"There are no constraints on the human mind, no walls around the human spirit, no barriers to our progress except those we ourselves erect. — *Ronald Reagan*"_
 
 ---
