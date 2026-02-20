@@ -7,6 +7,6 @@
 
 ---
 
-_"Care about what other people think and you will always be their prisoner. — *Lao Tzu*"_
+_"It's what you do in the present that will redeem the past and thereby change the future. — *Paulo Coelho*"_
 
 ---
