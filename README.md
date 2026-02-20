@@ -7,6 +7,6 @@
 
 ---
 
-_"Prefer to be defeated in the presence of the wise than to excel among fools. — *Dogen*"_
+_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
 
 ---
