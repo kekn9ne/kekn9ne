@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 20 February 2026**  
 🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Panic** by *EsDeeKid* 🎶
 
 ---
 
-_"The secret of life is to fall seven times and to get up eight times. — *Paulo Coelho*"_
+_"Only when I fall do I get up again. — *Vincent van Gogh*"_
 
 ---
