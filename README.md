@@ -7,6 +7,6 @@
 
 ---
 
-_"Being in a good frame of mind helps keep one in the picture of health. — *Unknown*"_
+_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
 
 ---
