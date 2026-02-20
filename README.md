@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 20 February 2026**  
 🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Panic** by *EsDeeKid* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only when I fall do I get up again. — *Vincent van Gogh*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
