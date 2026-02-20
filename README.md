@@ -7,6 +7,6 @@
 
 ---
 
-_"The shoe that fits one person pinches another; there is no recipe for living that suits all cases. — *Carl Jung*"_
+_"The secret of life is to fall seven times and to get up eight times. — *Paulo Coelho*"_
 
 ---
