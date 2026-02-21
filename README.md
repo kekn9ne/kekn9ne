@@ -7,6 +7,6 @@
 
 ---
 
-_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
+_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
 
 ---
