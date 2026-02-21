@@ -7,6 +7,6 @@
 
 ---
 
-_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
+_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
 
 ---
