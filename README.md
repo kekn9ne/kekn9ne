@@ -7,6 +7,6 @@
 
 ---
 
-_"The biggest adventure is what lies ahead. — *J.R.R. Tolkien*"_
+_"Nothing will work unless you do. — *Maya Angelou*"_
 
 ---
