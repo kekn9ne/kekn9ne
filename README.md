@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"It is not what we get. But who we become, what we contribute... that gives meaning to our lives. — *Tony Robbins*"_
 
 ---
