@@ -7,6 +7,6 @@
 
 ---
 
-_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
+_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
 
 ---
