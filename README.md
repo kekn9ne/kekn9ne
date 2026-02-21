@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 21 February 2026**  
 🌤️ Weather in Istanbul: **☁️   +13°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Mist** by *EsDeeKid* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The primary point of this existence is to live, and all living things move and grow. — *Ming-Dao Deng*"_
+_"If you haven't the strength to impose your own terms upon life, then you must accept the terms it offers you. — *T.S. Eliot*"_
 
 ---
