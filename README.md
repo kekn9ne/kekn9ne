@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
 
 ---
