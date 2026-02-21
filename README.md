@@ -7,6 +7,6 @@
 
 ---
 
-_"Definitions belong to the definers, not the defined. — *Toni Morrison*"_
+_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
 
 ---
