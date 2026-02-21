@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no truth. There is only perception. — *Gustave Flaubert*"_
+_"Closing your eyes and listening to silence is self-care. — *Maxime Lagace*"_
 
 ---
