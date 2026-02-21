@@ -7,6 +7,6 @@
 
 ---
 
-_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
+_"The wise speak only of what they know. — *J.R.R. Tolkien*"_
 
 ---
