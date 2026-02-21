@@ -7,6 +7,6 @@
 
 ---
 
-_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
+_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
 
 ---
