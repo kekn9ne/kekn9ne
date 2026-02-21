@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 21 February 2026**  
-🌤️ Weather in Istanbul: **☀️   +9°C**  
+🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"Learn the rules like a pro, so you can break them like an artist. — *Pablo Picasso*"_
 
 ---
