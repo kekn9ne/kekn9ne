@@ -7,6 +7,6 @@
 
 ---
 
-_"The grass is greener where you water it. — *Neil Barringham*"_
+_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
 
 ---
