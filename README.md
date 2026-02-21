@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is much more successfully looked at from a single window. — *F. Scott Fitzgerald*"_
+_"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled. — *Andrew Carnegie*"_
 
 ---
