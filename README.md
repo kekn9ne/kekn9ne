@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing will work unless you do. — *Maya Angelou*"_
+_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
 
 ---
