@@ -7,6 +7,6 @@
 
 ---
 
-_"You're always free to change your mind and choose a different future, or a different past. — *Richard Bach*"_
+_"Grudges are for those who insist that they are owed something; forgiveness, however, is for those who are substantial enough to move on. — *Criss Jami*"_
 
 ---
