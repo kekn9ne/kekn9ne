@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 21 February 2026**  
+🗓️ Today is: **Sunday, 22 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
+_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
 
 ---
