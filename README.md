@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn the rules like a pro, so you can break them like an artist. — *Pablo Picasso*"_
+_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
 
 ---
