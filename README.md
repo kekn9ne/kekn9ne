@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all faced with a series of great opportunities brilliantly disguised as impossible situations.  — *Charles Swindoll*"_
+_"Trusting our intuition often saves us from disaster.  — *Anne Wilson Schaef*"_
 
 ---
