@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
+_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
 
 ---
