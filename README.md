@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no second chances in life, except to feel remorse. — *Carlos Ruiz Zafon*"_
+_"Anyone who has ever made anything of importance was disciplined. — *Andrew Hendrixson*"_
 
 ---
