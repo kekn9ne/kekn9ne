@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not what we get. But who we become, what we contribute... that gives meaning to our lives. — *Tony Robbins*"_
+_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
 
 ---
