@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all like the bright moon, we still have our darker side.   — *Kahlil Gibran*"_
+_"A man who dares to waste one hour of time has not discovered the value of life. — *Charles Darwin*"_
 
 ---
