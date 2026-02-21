@@ -7,6 +7,6 @@
 
 ---
 
-_"Be royal in your own fashion: act like a king to be treated like one. — *Robert Greene*"_
+_"Presents are made for the pleasure of who gives them, not the merits of who receives them. — *Carlos Ruiz Zafon*"_
 
 ---
