@@ -7,6 +7,6 @@
 
 ---
 
-_"Turn your face to the sun, as flowers know how to do. — *Ming-Dao Deng*"_
+_"What gets measured gets improved. — *Robin Sharma*"_
 
 ---
