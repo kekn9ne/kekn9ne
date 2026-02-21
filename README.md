@@ -7,6 +7,6 @@
 
 ---
 
-_"Every moment of happiness requires a great amount of Ignorance — *Honore de Balzac*"_
+_"Sometimes good things fall apart so better things can fall together. — *Marilyn Monroe*"_
 
 ---
