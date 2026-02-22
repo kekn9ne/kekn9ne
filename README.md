@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 22 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **AH SENİ ŞAŞKIN 2.0** by *canbounce* 🎶
 
 ---
 
-_"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it. — *Dale Carnegie*"_
+_"Even a hare will bite when it is cornered.  — *Chinese Proverb*"_
 
 ---
