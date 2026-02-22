@@ -7,6 +7,6 @@
 
 ---
 
-_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
+_"If you practiced for the day, then you have won. If you were lazy for the day, then you have lost. — *Ming-Dao Deng*"_
 
 ---
