@@ -7,6 +7,6 @@
 
 ---
 
-_"Teachers open the door. You enter by yourself.  — *Chinese Proverb*"_
+_"You can't let your failures define you. You have to let your failures teach you. — *Barack Obama*"_
 
 ---
