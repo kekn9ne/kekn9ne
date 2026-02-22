@@ -7,6 +7,6 @@
 
 ---
 
-_"The truth... It is a beautiful and terrible thing, and should therefore be treated with great caution. — *Albus Dumbledore*"_
+_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
 
 ---
