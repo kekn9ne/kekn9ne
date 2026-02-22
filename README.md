@@ -7,6 +7,6 @@
 
 ---
 
-_"Productize your perspective. — *Jack Butcher*"_
+_"The more you trust yourself, the less you compare yourself to others. — *Roy T. Bennett*"_
 
 ---
