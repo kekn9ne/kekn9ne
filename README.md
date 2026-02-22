@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't measure yourself by what you have accomplished, but by what you should have accomplished with your ability. — *John Wooden*"_
+_"Humor isn't for everyone. It's only for people who want to have fun, enjoy life, and feel alive. — *Anne Wilson Schaef*"_
 
 ---
