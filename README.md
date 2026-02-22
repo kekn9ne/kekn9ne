@@ -7,6 +7,6 @@
 
 ---
 
-_"We take care of the future best by taking care of the present now. — *Jon Kabat-Zinn*"_
+_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
 
 ---
