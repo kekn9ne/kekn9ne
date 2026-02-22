@@ -7,6 +7,6 @@
 
 ---
 
-_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
+_"Real learning comes about when the competitive spirit has ceased. — *Jiddu Krishnamurti*"_
 
 ---
