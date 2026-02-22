@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 23 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Babaflow** by *UZI* 🎶
 
 ---
 
-_"We become what we believe. — *Lolly Daskal*"_
+_"The difference between winning and losing is most often not quitting. — *Walt Disney*"_
 
 ---
