@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
 
 ---
