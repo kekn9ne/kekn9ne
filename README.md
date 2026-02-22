@@ -7,6 +7,6 @@
 
 ---
 
-_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
+_"The first step toward getting somewhere is to decide that you are not going to stay where you are. — *Unknown*"_
 
 ---
