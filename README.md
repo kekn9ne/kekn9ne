@@ -7,6 +7,6 @@
 
 ---
 
-_"For all evils there are two remedies - time and silence. — *Alexandre Dumas*"_
+_"You live by what you thrill to, and there's the end of it. — *D. H. Lawrence*"_
 
 ---
