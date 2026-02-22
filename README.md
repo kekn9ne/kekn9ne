@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 22 February 2026**  
 🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Cali Man** by *EsDeeKid* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Every traveler has a home of his own, and he learns to appreciate it the more from his wandering. — *Charles Dickens*"_
+_"Employ your time in improving yourself by other men's writings, so that you shall gain easily what others have labored hard for. — *Socrates*"_
 
 ---
