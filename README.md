@@ -7,6 +7,6 @@
 
 ---
 
-_"If you practiced for the day, then you have won. If you were lazy for the day, then you have lost. — *Ming-Dao Deng*"_
+_"A lie can travel half way around the world while the truth is putting on its shoes. — *Mark Twain*"_
 
 ---
