@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
+_"For all evils there are two remedies - time and silence. — *Alexandre Dumas*"_
 
 ---
