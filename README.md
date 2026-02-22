@@ -7,6 +7,6 @@
 
 ---
 
-_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
+_"You only live once, but if you do it right, once is enough. — *Mae West*"_
 
 ---
