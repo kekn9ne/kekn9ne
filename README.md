@@ -7,6 +7,6 @@
 
 ---
 
-_"Real learning comes about when the competitive spirit has ceased. — *Jiddu Krishnamurti*"_
+_"Plants grow weak without wind. — *Maxime Lagace*"_
 
 ---
