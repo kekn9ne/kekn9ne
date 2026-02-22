@@ -7,6 +7,6 @@
 
 ---
 
-_"We can change our lives. We can do, have, and be exactly what we wish. — *Tony Robbins*"_
+_"The journey is what brings us happiness not the destination. — *Dan Millman*"_
 
 ---
