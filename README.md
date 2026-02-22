@@ -7,6 +7,6 @@
 
 ---
 
-_"Throw your heart over the bar and your body will follow. — *Norman Vincent Peale*"_
+_"Life must be a constant education; one must learn everything, from speaking to dying. — *Gustave Flaubert*"_
 
 ---
