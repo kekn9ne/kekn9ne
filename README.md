@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
+_"Before you can see the Light, you have to deal with the darkness. — *Dan Millman*"_
 
 ---
