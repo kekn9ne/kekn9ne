@@ -7,6 +7,6 @@
 
 ---
 
-_"A clever person turns great troubles into little ones, and little ones into none at all.  — *Chinese Proverb*"_
+_"Don't wait for extraordinary opportunities. Seize common occasions and make them great. — *Orison Swett Marden*"_
 
 ---
