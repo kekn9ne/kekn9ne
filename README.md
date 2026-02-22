@@ -7,6 +7,6 @@
 
 ---
 
-_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
