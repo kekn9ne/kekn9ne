@@ -7,6 +7,6 @@
 
 ---
 
-_"The first step toward getting somewhere is to decide that you are not going to stay where you are. — *Unknown*"_
+_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
 
 ---
