@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding failure is to avoid progress. — *Unknown*"_
+_"Some of us learn from other people's mistakes and the rest of us have to be other people.   — *Zig Ziglar*"_
 
 ---
