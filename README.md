@@ -7,6 +7,6 @@
 
 ---
 
-_"You only live once, but if you do it right, once is enough. — *Mae West*"_
+_"Throw your heart over the bar and your body will follow. — *Norman Vincent Peale*"_
 
 ---
