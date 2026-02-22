@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 22 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +4°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Deutschland hat ein neuen bestseller** by *2focuses* 🎶
 
 ---
 
-_"Charms strike the sight, but merit wins the soul. — *Alexander Pope*"_
+_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
 
 ---
