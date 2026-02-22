@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 22 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Deutschland hat ein neuen bestseller** by *2focuses* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
+_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
 
 ---
