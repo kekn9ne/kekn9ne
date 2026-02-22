@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 23 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +5°C**  
+🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The more you trust yourself, the less you compare yourself to others. — *Roy T. Bennett*"_
+_"Argue for your limitations and sure enough, they're yours. — *Richard Bach*"_
 
 ---
