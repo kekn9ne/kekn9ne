@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't wish it were easier, wish you were better. — *Jim Rohn*"_
+_"Better a diamond with a flaw than a pebble without one. — *Chinese Proverb*"_
 
 ---
