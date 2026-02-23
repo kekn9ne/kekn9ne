@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not titles that honour men, but men that honour titles. — *Niccolo Machiavelli*"_
+_"Study logic and math, because once you've mastered them, you won't fear any book. — *Naval Ravikant*"_
 
 ---
