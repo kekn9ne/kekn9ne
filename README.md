@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 23 February 2026**  
-🌤️ Weather in Istanbul: ****  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **RaP bUDuR bEyLeR** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Fears are nothing more than a state of mind. — *Napoleon Hill*"_
+_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
 
 ---
