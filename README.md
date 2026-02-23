@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 23 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Varexx** by *Mass* 🎶
 
 ---
 
-_"One of the oldest human needs is having someone to wonder where you are when you don't come home at night.  — *Margaret Mead*"_
+_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
 
 ---
