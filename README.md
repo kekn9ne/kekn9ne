@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are for dreamers. Goals are for achievers. — *Arnold Schwarzenegger*"_
+_"It's wise to tell the truth. It's even wiser to tell it kindly. — *Maxime Lagace*"_
 
 ---
