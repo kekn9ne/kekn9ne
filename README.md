@@ -7,6 +7,6 @@
 
 ---
 
-_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
+_"You will have bad times, but they will always wake you up to the stuff you weren't paying attention to. — *Robin Williams*"_
 
 ---
