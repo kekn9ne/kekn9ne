@@ -7,6 +7,6 @@
 
 ---
 
-_"You will have bad times, but they will always wake you up to the stuff you weren't paying attention to. — *Robin Williams*"_
+_"It is better to light a single candle than to curse the darkness. — *Eleanor Roosevelt*"_
 
 ---
