@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 24 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **🌧   +12°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success is getting what you want... Happiness is wanting what you get. — *Dale Carnegie*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
