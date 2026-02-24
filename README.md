@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 24 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Century** by *EsDeeKid* 🎶
 
 ---
 
-_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
+_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
 
 ---
