@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 24 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **I WANNA DANCE** by *Batuflex* 🎶
+🎧 Currently Listening: **RaP bUDuR bEyLeR** by *Organize* 🎶
 
 ---
 
-_"There are more people who wish to be loved than there are who are willing to love.  — *Nicolas Chamfort*"_
+_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
 
 ---
