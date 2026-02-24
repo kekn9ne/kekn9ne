@@ -7,6 +7,6 @@
 
 ---
 
-_"The dream is free, but the hustle is sold separately. — *Steve Harvey*"_
+_"The positive thinker sees the invisible, feels the intangible, and achieves the impossible. — *Winston Churchill*"_
 
 ---
