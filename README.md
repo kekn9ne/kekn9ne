@@ -7,6 +7,6 @@
 
 ---
 
-_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
+_"It's not the men in your life that matters, it's the life in your men. — *Mae West*"_
 
 ---
