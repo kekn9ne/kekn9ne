@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 24 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Century** by *EsDeeKid* 🎶
+🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
 
 ---
 
-_"Any fool can turn a blind eye but who knows what the ostrich sees in the sand. — *Samuel Beckett*"_
+_"Do not look upon this world with fear and loathing. Bravely face whatever the gods offer. — *Morihei Ueshiba*"_
 
 ---
