@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 24 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **RaP bUDuR bEyLeR** by *Organize* 🎶
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"No one returns from a long journey the same person they were before. — *Zen Proverb*"_
+_"A memory is a beautiful thing, it's almost a desire that you miss. — *Gustave Flaubert*"_
 
 ---
