@@ -7,6 +7,6 @@
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
 
 ---
