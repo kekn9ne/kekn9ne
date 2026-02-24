@@ -7,6 +7,6 @@
 
 ---
 
-_"If you genuinely want something, don't wait for it - teach yourself. — *Gurbaksh Chahal*"_
+_"Loss is nothing else but change and change is nature's delight. — *Marcus Aurelius*"_
 
 ---
