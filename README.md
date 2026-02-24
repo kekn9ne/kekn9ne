@@ -7,6 +7,6 @@
 
 ---
 
-_"To the mind that is still, the whole universe surrenders. — *Lao Tzu*"_
+_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
 
 ---
