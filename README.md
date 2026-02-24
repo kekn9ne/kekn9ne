@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 24 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +12°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"Do not look upon this world with fear and loathing. Bravely face whatever the gods offer. — *Morihei Ueshiba*"_
+_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
 
 ---
