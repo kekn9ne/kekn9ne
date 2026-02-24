@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 24 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **⛅️  +13°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Trap House** by *UZI* 🎶
+🎧 Currently Listening: **PEKİ PEKİ** by *Lvbel C5* 🎶
 
 ---
 
-_"Concentrate all your thoughts upon the work at hand. The sun's rays do not burn until brought to focus. — *Alexander Graham Bell*"_
+_"There is no path to Peace. Peace is the path. — *Dan Millman*"_
 
 ---
