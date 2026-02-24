@@ -7,6 +7,6 @@
 
 ---
 
-_"Better to live until you die. — *Dan Millman*"_
+_"Success is getting what you want... Happiness is wanting what you get. — *Dale Carnegie*"_
 
 ---
