@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody by your side ain't on your side. — *Steve Harvey*"_
+_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
 
 ---
