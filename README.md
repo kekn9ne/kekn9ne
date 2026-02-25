@@ -7,6 +7,6 @@
 
 ---
 
-_"Those who realize their folly are not true fools. — *Zhuangzi*"_
+_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
 
 ---
