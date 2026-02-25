@@ -7,6 +7,6 @@
 
 ---
 
-_"My powers are ordinary. Only my application brings me success. — *Isaac Newton*"_
+_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
 
 ---
