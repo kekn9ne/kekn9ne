@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
+_"You are the average of the five people you spend the most time with. — *Jim Rohn*"_
 
 ---
