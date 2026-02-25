@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your outlook on life that counts. — *Betty White*"_
+_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
 
 ---
