@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 25 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BRAPAP II** by *ERAY067* 🎶
 
 ---
 
-_"A real friend is one who walks in when the rest of the world walks out. — *Unknown*"_
+_"If you put water into a cup, it becomes the cup. — *Bruce Lee*"_
 
 ---
