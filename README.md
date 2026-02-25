@@ -7,6 +7,6 @@
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"If you have only one smile in you give it to the people you love. — *Maya Angelou*"_
 
 ---
