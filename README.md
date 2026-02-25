@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 25 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **FINISH HIM** by *Mass* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Fear is your worst enemy. Risk is your best friend. — *Gurbaksh Chahal*"_
+_"Life itself is the most wonderful fairy tale. — *Hans Christian Andersen*"_
 
 ---
