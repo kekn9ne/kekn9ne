@@ -7,6 +7,6 @@
 
 ---
 
-_"If you focus on success, you'll have stress. But if you pursue excellence, success will be guaranteed. — *Deepak Chopra*"_
+_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
 
 ---
