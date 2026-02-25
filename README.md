@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 25 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: ****  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Judgments prevent us from seeing the good that lies beyond appearances.   — *Wayne Dyer*"_
+_"Routine life is unbearable, and most people only think about how to escape into the world of fantasy and dreams. — *Robert Greene*"_
 
 ---
