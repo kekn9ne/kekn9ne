@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't let the noise of others' opinions drown out your own inner voice. — *Steve Jobs*"_
+_"Determine never to be idle. No person will have occasion to complain of the want of time who never loses any. — *Thomas Jefferson*"_
 
 ---
