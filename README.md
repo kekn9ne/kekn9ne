@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 25 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Strategy without tactics is the slowest route to victory. Tactics without strategy is the noise before defeat. — *Sun Tzu*"_
+_"If no one ever broke the rules, then we'd never advance. — *Simon Sinek*"_
 
 ---
