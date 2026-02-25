@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 25 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Do you want to know who you are? Don't ask. Act! Action will delineate and define you. — *Thomas Jefferson*"_
+_"It's your outlook on life that counts. — *Betty White*"_
 
 ---
