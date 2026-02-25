@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no second chances in life, except to feel remorse. — *Carlos Ruiz Zafon*"_
+_"Normal is the average of deviance. — *Rita Mae Brown*"_
 
 ---
