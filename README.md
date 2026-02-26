@@ -7,6 +7,6 @@
 
 ---
 
-_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
+_"If you want to see things just as they are, then you yourself must practice just as you are. — *Dogen*"_
 
 ---
