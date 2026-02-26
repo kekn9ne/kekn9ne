@@ -7,6 +7,6 @@
 
 ---
 
-_"You talk when you cease to be at peace with your thoughts. — *Kahlil Gibran*"_
+_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
 
 ---
