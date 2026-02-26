@@ -7,6 +7,6 @@
 
 ---
 
-_"One is never afraid of the unknown; one is afraid of the known coming to an end. — *Jiddu Krishnamurti*"_
+_"When obstacles arise, you change your direction to reach your goal; you do not change your decision to get there. — *Zig Ziglar*"_
 
 ---
