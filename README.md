@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything great that has ever happened to humanity has begun as a single thought in someone's mind. — *Yanni*"_
+_"The wisdom of life consists in the elimination of the nonessentials. — *Lin Yutang*"_
 
 ---
