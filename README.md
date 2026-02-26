@@ -7,6 +7,6 @@
 
 ---
 
-_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
+_"A gentleman is one who puts more into the world than he takes out. — *George Bernard Shaw*"_
 
 ---
