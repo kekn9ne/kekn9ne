@@ -7,6 +7,6 @@
 
 ---
 
-_"The wisdom of life consists in the elimination of the nonessentials. — *Lin Yutang*"_
+_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
 
 ---
