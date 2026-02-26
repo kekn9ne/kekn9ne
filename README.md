@@ -7,6 +7,6 @@
 
 ---
 
-_"Avoiding failure is to avoid progress. — *Unknown*"_
+_"Good entrepreneurs don't fail because they stay at it. — *Naval Ravikant*"_
 
 ---
