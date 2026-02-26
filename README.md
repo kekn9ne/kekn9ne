@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 26 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Listen to the secret sound, the real sound, which is inside you. — *Kabir*"_
+_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
 
 ---
