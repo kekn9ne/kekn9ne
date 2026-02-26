@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 26 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +5°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Kısa Keleş ll - Method Remix** by *emirodc* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — *Herbert Hoover*"_
+_"Always show more kindness than seems necessary because the person receiving it needs it more than you will ever know. — *Colin Powell*"_
 
 ---
