@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 26 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Kısa Keleş ll - Method Remix** by *emirodc* 🎶
 
 ---
 
-_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
+_"Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — *Herbert Hoover*"_
 
 ---
