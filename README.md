@@ -7,6 +7,6 @@
 
 ---
 
-_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
+_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
 
 ---
