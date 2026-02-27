@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 27 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +4°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Murabba** by *Wegh* 🎶
 
 ---
 
-_"Everyone you admire was once a beginner. — *Jack Butcher*"_
+_"Enthusiasm is a vital element toward the individual success of every man or woman. — *Conrad Hilton*"_
 
 ---
