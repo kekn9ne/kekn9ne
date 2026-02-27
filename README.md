@@ -7,6 +7,6 @@
 
 ---
 
-_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
+_"Winners never quit and quitters never win. — *Vince Lombardi*"_
 
 ---
