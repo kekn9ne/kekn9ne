@@ -7,6 +7,6 @@
 
 ---
 
-_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
+_"I can live without money, but I cannot live without love. — *Judy Garland*"_
 
 ---
