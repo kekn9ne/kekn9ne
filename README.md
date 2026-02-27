@@ -7,6 +7,6 @@
 
 ---
 
-_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
+_"Today will never happen again. Don't waste it with a false start or no start at all. — *Og Mandino*"_
 
 ---
