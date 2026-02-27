@@ -7,6 +7,6 @@
 
 ---
 
-_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
+_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
 
 ---
