@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 27 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The most courageous act is still to think for yourself. Aloud. — *Coco Chanel*"_
+_"Success on the outside means nothing unless you also have success within. — *Robin Sharma*"_
 
 ---
