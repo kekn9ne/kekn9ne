@@ -7,6 +7,6 @@
 
 ---
 
-_"Great ones are willing to get burned time and again as they sharpen their swords in the fire. — *Josh Waitzkin*"_
+_"Find something you love and do it better than everyone else. — *Gurbaksh Chahal*"_
 
 ---
