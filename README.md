@@ -7,6 +7,6 @@
 
 ---
 
-_"Our view of the world is truly shaped by what we decide to hear. — *William James*"_
+_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
 
 ---
