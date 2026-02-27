@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 27 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **GANG** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You will not do incredible things without an incredible dream. — *John Eliot*"_
+_"My instinct is always to seek out challenges as opposed to avoiding them. — *Josh Waitzkin*"_
 
 ---
