@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 27 February 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **GANG** by *Motive* 🎶
 
 ---
 
-_"In the midst of movement and chaos, keep stillness inside of you. — *Deepak Chopra*"_
+_"You will not do incredible things without an incredible dream. — *John Eliot*"_
 
 ---
