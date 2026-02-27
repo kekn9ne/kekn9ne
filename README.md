@@ -7,6 +7,6 @@
 
 ---
 
-_"Success on the outside means nothing unless you also have success within. — *Robin Sharma*"_
+_"Whatever is begun in anger, ends in shame. — *Benjamin Franklin*"_
 
 ---
