@@ -7,6 +7,6 @@
 
 ---
 
-_"The wise learn many things from their enemies. — *Aristophanes*"_
+_"I skate to where the puck is going to be, not where it has been. — *Wayne Gretzky*"_
 
 ---
