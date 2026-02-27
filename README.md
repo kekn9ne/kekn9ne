@@ -7,6 +7,6 @@
 
 ---
 
-_"People acting together as a group can accomplish things which no individual acting alone could ever hope to bring about. — *Franklin D. Roosevelt*"_
+_"Great minds discuss ideas. Average minds discuss events. Small minds discuss people. — *Eleanor Roosevelt*"_
 
 ---
