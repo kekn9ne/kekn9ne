@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is really work unless you would rather be doing something else.  — *James Matthew Barrie*"_
+_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
 
 ---
