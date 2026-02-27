@@ -7,6 +7,6 @@
 
 ---
 
-_"If you find you are not valued and appreciated, then shift your attention to places where you will be valued and appreciated. — *Celestine Chua*"_
+_"Everyone you admire was once a beginner. — *Jack Butcher*"_
 
 ---
