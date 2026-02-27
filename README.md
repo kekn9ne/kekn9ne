@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners never quit and quitters never win. — *Vince Lombardi*"_
+_"Great ones are willing to get burned time and again as they sharpen their swords in the fire. — *Josh Waitzkin*"_
 
 ---
