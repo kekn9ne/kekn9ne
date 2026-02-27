@@ -7,6 +7,6 @@
 
 ---
 
-_"True life is lived when tiny changes occur. — *Leo Tolstoy*"_
+_"In the midst of movement and chaos, keep stillness inside of you. — *Deepak Chopra*"_
 
 ---
