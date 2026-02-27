@@ -7,6 +7,6 @@
 
 ---
 
-_"Manifest plainness, embrace simplicity, reduce selfishness, have few desires. — *Lao Tzu*"_
+_"There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — *G.I. Gurdjieff*"_
 
 ---
