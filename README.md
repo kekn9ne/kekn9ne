@@ -7,6 +7,6 @@
 
 ---
 
-_"The scariest monsters are the ones that lurk within our souls. — *Edgar Allan Poe*"_
+_"The harder the conflict, the greater the triumph.  — *George Washington*"_
 
 ---
