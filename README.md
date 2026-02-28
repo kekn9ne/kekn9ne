@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
+🎧 Currently Listening: **55-53** by *Keskin* 🎶
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"It is ignorance that causes most mistakes. — *Harry S. Truman*"_
 
 ---
