@@ -7,6 +7,6 @@
 
 ---
 
-_"You are free, and that is why you are lost. — *Franz Kafka*"_
+_"A creative man is motivated by the desire to achieve, not by the desire to beat others. — *Ayn Rand*"_
 
 ---
