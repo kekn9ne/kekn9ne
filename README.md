@@ -7,6 +7,6 @@
 
 ---
 
-_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
+_"By failing to prepare, you are preparing to fail. — *Benjamin Franklin*"_
 
 ---
