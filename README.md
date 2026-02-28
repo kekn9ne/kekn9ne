@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is not something ready made. It comes from your own actions. — *Dalai Lama*"_
+_"There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing. — *Morihei Ueshiba*"_
 
 ---
