@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only the hand that erases can write the true thing. — *Meister Eckhart*"_
+_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
 
 ---
