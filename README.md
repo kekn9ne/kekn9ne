@@ -7,6 +7,6 @@
 
 ---
 
-_"Good, better, best. Never let it rest. 'Til your good is better and your better is best.  — *St. Jerome*"_
+_"Unexpressed emotions will never die. They are buried alive and will come forth later in uglier ways. — *Sigmund Freud*"_
 
 ---
