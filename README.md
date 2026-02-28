@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **UNUTTURAN** by *Yung Ouzo* 🎶
 
 ---
 
-_"Work out your own salvation. Do not depend on others. — *Buddha*"_
+_"Everything begins with an idea. — *Earl Nightingale*"_
 
 ---
