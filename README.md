@@ -7,6 +7,6 @@
 
 ---
 
-_"The essence of the Way is detachment. — *Bodhidharma*"_
+_"It is the power of thought that gives man power over nature. — *Hans Christian Andersen*"_
 
 ---
