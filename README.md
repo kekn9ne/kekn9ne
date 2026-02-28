@@ -7,6 +7,6 @@
 
 ---
 
-_"The purpose of life is the life of purpose. — *Robin Sharma*"_
+_"Just living is not enough... one must have sunshine, freedom, and a little flower.  — *Hans Christian Andersen*"_
 
 ---
