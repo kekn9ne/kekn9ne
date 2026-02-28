@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"There are two kinds of perfect people: those who are dead, and those who have not been born yet. — *Chinese Proverb*"_
+_"Originality is the fine art of remembering what you hear but forgetting where you heard it.  — *Laurence J. Peter*"_
 
 ---
