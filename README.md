@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
+_"Life can be the scariest and most beautiful thing simultaneously. — *Maxime Lagace*"_
 
 ---
