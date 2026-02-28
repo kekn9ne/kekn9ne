@@ -7,6 +7,6 @@
 
 ---
 
-_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
+_"Life may be full of pain but that's not an excuse to give up. — *Arnold Schwarzenegger*"_
 
 ---
