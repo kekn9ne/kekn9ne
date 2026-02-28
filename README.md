@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Mahallemiz Esmer** by *Ben Fero* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It takes a very long time to become young. — *Pablo Picasso*"_
+_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
 
 ---
