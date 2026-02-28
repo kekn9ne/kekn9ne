@@ -7,6 +7,6 @@
 
 ---
 
-_"A creative man is motivated by the desire to achieve, not by the desire to beat others. — *Ayn Rand*"_
+_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
 
 ---
