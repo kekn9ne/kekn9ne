@@ -7,6 +7,6 @@
 
 ---
 
-_"Life can be the scariest and most beautiful thing simultaneously. — *Maxime Lagace*"_
+_"Some of your greatest lessons come from your darkest moments. — *Roger Lee*"_
 
 ---
