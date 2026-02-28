@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +6°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"He who possesses most must be most afraid of loss. — *Leonardo da Vinci*"_
+_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
 
 ---
