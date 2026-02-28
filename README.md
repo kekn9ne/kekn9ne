@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
 
 ---
 
-_"The way to love anything is to realize that it may be lost. — *Gilbert Chesterton*"_
+_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
 
 ---
