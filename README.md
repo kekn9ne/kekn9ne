@@ -7,6 +7,6 @@
 
 ---
 
-_"Self-knowledge is the beginning of self-correction. — *Norman Vincent Peale*"_
+_"Relax. Nothing is under control. — *Adi Da Samraj*"_
 
 ---
