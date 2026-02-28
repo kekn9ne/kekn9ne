@@ -7,6 +7,6 @@
 
 ---
 
-_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
+_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
 
 ---
