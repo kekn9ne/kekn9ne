@@ -7,6 +7,6 @@
 
 ---
 
-_"Learn to enjoy every minute of your life. Be happy now. Don't wait for something outside of yourself to make you happy in the future. — *Earl Nightingale*"_
+_"Life is like playing the violin in public and learning the instrument as one goes on. — *Samuel Butler*"_
 
 ---
