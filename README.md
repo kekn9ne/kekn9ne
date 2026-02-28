@@ -7,6 +7,6 @@
 
 ---
 
-_"If you set your goals ridiculously high and its a failure, you will fail above everyone elses success. — *James Cameron*"_
+_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
 
 ---
