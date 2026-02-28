@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **hay Allah** by *Murda* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
+_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
 
 ---
