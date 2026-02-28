@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 February 2026**  
-🌤️ Weather in Istanbul: **⛅️  +7°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
+🎧 Currently Listening: **hay Allah** by *Murda* 🎶
 
 ---
 
-_"The road to success is always under construction. — *Steve Harvey*"_
+_"Life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
