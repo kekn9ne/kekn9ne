@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 February 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Death smiles at us all. All we can do is smile back. — *Marcus Aurelius*"_
+_"That some achieve great success is proof to all that others can achieve it as well. — *Abraham Lincoln*"_
 
 ---
