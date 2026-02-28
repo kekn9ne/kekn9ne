@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 28 February 2026**  
 🌤️ Weather in Istanbul: **⛅️  +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **UNUTTURAN** by *Yung Ouzo* 🎶
+🎧 Currently Listening: **Mahallemiz Esmer** by *Ben Fero* 🎶
 
 ---
 
-_"Everything begins with an idea. — *Earl Nightingale*"_
+_"It takes a very long time to become young. — *Pablo Picasso*"_
 
 ---
