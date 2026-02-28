@@ -7,6 +7,6 @@
 
 ---
 
-_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
+_"There are two kinds of perfect people: those who are dead, and those who have not been born yet. — *Chinese Proverb*"_
 
 ---
