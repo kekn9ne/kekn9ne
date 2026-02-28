@@ -7,6 +7,6 @@
 
 ---
 
-_"Just living is not enough... one must have sunshine, freedom, and a little flower.  — *Hans Christian Andersen*"_
+_"Happiness is not something ready made. It comes from your own actions. — *Dalai Lama*"_
 
 ---
