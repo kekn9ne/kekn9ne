@@ -7,6 +7,6 @@
 
 ---
 
-_"You'll never find rainbows if you're looking down.   — *Charlie Chaplin*"_
+_"No matter how qualified or deserving we are, we will never reach a better life until we can imagine it for ourselves and allow ourselves to have it. — *Richard Bach*"_
 
 ---
