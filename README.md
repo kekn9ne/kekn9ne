@@ -7,6 +7,6 @@
 
 ---
 
-_"That some achieve great success is proof to all that others can achieve it as well. — *Abraham Lincoln*"_
+_"Success is never final, failure is never fatal. It's courage that counts. — *John Wooden*"_
 
 ---
