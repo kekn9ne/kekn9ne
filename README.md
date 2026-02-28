@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +5°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
 
 ---
 
-_"There are no contests in the Art of Peace. A true warrior is invincible because he or she contests with nothing. — *Morihei Ueshiba*"_
+_"How you think when you lose determines how long it will be until you win. — *Gilbert Chesterton*"_
 
 ---
