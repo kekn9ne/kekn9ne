@@ -7,6 +7,6 @@
 
 ---
 
-_"Try to be a rainbow in someone's cloud. — *Maya Angelou*"_
+_"Everything has beauty but not everyone sees it. — *Confucius*"_
 
 ---
