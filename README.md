@@ -7,6 +7,6 @@
 
 ---
 
-_"Little by little, one travels far. — *J.R.R. Tolkien*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
