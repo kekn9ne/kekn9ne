@@ -7,6 +7,6 @@
 
 ---
 
-_"Fortunate are those who take the first steps. — *Paulo Coelho*"_
+_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
 
 ---
