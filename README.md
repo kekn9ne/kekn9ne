@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **dört yirmi** by *EGE!* 🎶
+🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
 
 ---
 
-_"Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through. — *Jonathan Swift*"_
+_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
 
 ---
