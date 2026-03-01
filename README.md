@@ -7,6 +7,6 @@
 
 ---
 
-_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
+_"Fortunate are those who take the first steps. — *Paulo Coelho*"_
 
 ---
