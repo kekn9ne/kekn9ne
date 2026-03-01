@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"You have within you right now, everything you need to deal with whatever the world can throw at you. — *Brian Tracy*"_
 
 ---
