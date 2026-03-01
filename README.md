@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **big three freestyle** by *EGE!* 🎶
+🎧 Currently Listening: **Yerinde Dur** by *Sefo* 🎶
 
 ---
 
-_"Science can flourish only in an atmosphere of free speech.  — *Albert Einstein*"_
+_"The best teacher is experience and not through someone's distorted point of view. — *Jack Kerouac*"_
 
 ---
