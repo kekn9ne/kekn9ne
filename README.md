@@ -7,6 +7,6 @@
 
 ---
 
-_"True prayer has no set form. — *Morihei Ueshiba*"_
+_"No man ever steps in the same river twice, for it's not the same river and he's not the same man. — *Heraclitus*"_
 
 ---
