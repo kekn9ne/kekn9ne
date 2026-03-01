@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **RaP bUDuR bEyLeR** by *Organize* 🎶
+🎧 Currently Listening: **Block List** by *RXKNephew* 🎶
 
 ---
 
-_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
+_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
 
 ---
