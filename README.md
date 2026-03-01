@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Dönüyo Başım - Piyasa Remix** by *Batuflex* 🎶
+🎧 Currently Listening: **RaP bUDuR bEyLeR** by *Organize* 🎶
 
 ---
 
-_"The best fighter is never angry. — *Lao Tzu*"_
+_"No one is useless in this world who lightens the burdens of another. — *Charles Dickens*"_
 
 ---
