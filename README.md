@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people find fault like there is a reward for it.   — *Zig Ziglar*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
 
 ---
