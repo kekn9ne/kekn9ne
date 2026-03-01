@@ -7,6 +7,6 @@
 
 ---
 
-_"The farther backward you can look, the farther forward you are likely to see. — *Winston Churchill*"_
+_"Know yourself and you will win all battles. — *Sun Tzu*"_
 
 ---
