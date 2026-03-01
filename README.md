@@ -7,6 +7,6 @@
 
 ---
 
-_"The future belongs to those who learn more skills and combine them in creative ways. — *Robert Greene*"_
+_"Only those who will risk going too far can possibly find out how far one can go. — *T.S. Eliot*"_
 
 ---
