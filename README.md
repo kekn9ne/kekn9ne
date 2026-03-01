@@ -7,6 +7,6 @@
 
 ---
 
-_"The Truth is realized in an instant; the Act is practiced step by step. — *Seungsahn*"_
+_"True prayer has no set form. — *Morihei Ueshiba*"_
 
 ---
