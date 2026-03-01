@@ -7,6 +7,6 @@
 
 ---
 
-_"Know yourself and you will win all battles. — *Sun Tzu*"_
+_"Little by little, one travels far. — *J.R.R. Tolkien*"_
 
 ---
