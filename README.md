@@ -7,6 +7,6 @@
 
 ---
 
-_"You have within you right now, everything you need to deal with whatever the world can throw at you. — *Brian Tracy*"_
+_"Death and life have their determined appointments; riches and honors depend upon heaven.  — *Confucius*"_
 
 ---
