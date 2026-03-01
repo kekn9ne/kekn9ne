@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +6°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Block List** by *RXKNephew* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Correct what you can. Learn from what you can't. — *Toni Morrison*"_
+_"It ain't where you start in life, it's where you end up, and what you did along the way. — *Colin Powell*"_
 
 ---
