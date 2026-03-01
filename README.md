@@ -7,6 +7,6 @@
 
 ---
 
-_"In all human affairs there are efforts, and there are results, and the strength of the effort is the measure of the result. — *James Allen*"_
+_"The farther backward you can look, the farther forward you are likely to see. — *Winston Churchill*"_
 
 ---
