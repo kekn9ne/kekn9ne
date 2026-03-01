@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **CISTAK X POŞET** by *4RAS INC.* 🎶
+🎧 Currently Listening: **AKTIV II** by *Batuflex* 🎶
 
 ---
 
-_"You are not only responsible for what you say, but also for what you do not say.  — *Martin Luther*"_
+_"If you can't argue both sides, you can't argue. — *Jack Butcher*"_
 
 ---
