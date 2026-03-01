@@ -7,6 +7,6 @@
 
 ---
 
-_"You can put lipstick on a pig. It's still a pig. — *Barack Obama*"_
+_"A wise man can learn more from a foolish question than a fool can learn from a wise answer.   — *Bruce Lee*"_
 
 ---
