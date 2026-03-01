@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **dava açacakları için değiştirdim** by *EGE!* 🎶
+🎧 Currently Listening: **big three freestyle** by *EGE!* 🎶
 
 ---
 
-_"To avoid criticism, do nothing, say nothing, and be nothing. — *Elbert Hubbard*"_
+_"Science can flourish only in an atmosphere of free speech.  — *Albert Einstein*"_
 
 ---
