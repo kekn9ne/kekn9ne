@@ -7,6 +7,6 @@
 
 ---
 
-_"Be mindful. Be grateful. Be positive. Be true. Be kind. — *Roy T. Bennett*"_
+_"Only put off until tomorrow what you are willing to die having left undone. — *Pablo Picasso*"_
 
 ---
