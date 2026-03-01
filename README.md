@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 01 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **STOP SMOKING** by *ALIZADE* 🎶
+🎧 Currently Listening: **İZLEDİ MAHALLE** by *Lvbel C5* 🎶
 
 ---
 
-_"Our greatest glory is not in never falling but in rising every time we fall. — *Confucius*"_
+_"Life is really simple, but men insist on making it complicated.  — *Confucius*"_
 
 ---
