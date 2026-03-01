@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **STOP SMOKING** by *ALIZADE* 🎶
+🎧 Currently Listening: **ABBAS** by *Reta* 🎶
 
 ---
 
-_"Associate yourself with men of good quality, if you esteem your own reputation; for 'tis better to be alone than in bad company.  — *George Washington*"_
+_"We don't stumble accidentally into an amazing life. It takes decision, a commitment to consistently work on ourselves. — *Kamal Ravikant*"_
 
 ---
