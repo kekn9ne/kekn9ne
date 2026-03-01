@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 01 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
+_"Become the kind of leader that people would follow voluntarily, even if you had no title or position. — *Brian Tracy*"_
 
 ---
