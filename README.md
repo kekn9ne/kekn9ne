@@ -7,6 +7,6 @@
 
 ---
 
-_"Sometimes a change of perspective is all it takes to see the light. — *Dan Brown*"_
+_"Only those who do nothing at all make no mistakes. — *Unknown*"_
 
 ---
