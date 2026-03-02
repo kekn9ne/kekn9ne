@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 02 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +4°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you are far from the enemy, make him believe you are near. — *Sun Tzu*"_
+_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
 
 ---
