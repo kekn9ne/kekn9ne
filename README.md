@@ -7,6 +7,6 @@
 
 ---
 
-_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
+_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
 
 ---
