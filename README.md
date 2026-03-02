@@ -7,6 +7,6 @@
 
 ---
 
-_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
+_"As soon as you truly commit to making something happen, the 'how' will reveal itself. — *Tony Robbins*"_
 
 ---
