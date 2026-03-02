@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
+_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
 
 ---
