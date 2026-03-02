@@ -7,6 +7,6 @@
 
 ---
 
-_"Inspire yourself to be great. Being good isn't good enough. — *Gurbaksh Chahal*"_
+_"Changing minds is harder than finding people who already agree. — *Jack Butcher*"_
 
 ---
