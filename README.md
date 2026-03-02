@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
+_"Everything you look at can become a fairy tale and you can get a story from everything you touch. — *Hans Christian Andersen*"_
 
 ---
