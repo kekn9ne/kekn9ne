@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 02 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +3°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Words used to attract the dull of wit are not to be relied on. — *Huang Po*"_
+_"There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — *G.I. Gurdjieff*"_
 
 ---
