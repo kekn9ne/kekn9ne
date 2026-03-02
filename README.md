@@ -7,6 +7,6 @@
 
 ---
 
-_"The thing about smart people is that they seem like crazy people to dumb people. — *Stephen Hawking*"_
+_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
 
 ---
