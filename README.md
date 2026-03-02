@@ -7,6 +7,6 @@
 
 ---
 
-_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
+_"It is the mark of an educated mind to be able to entertain a thought without accepting it. — *Aristotle*"_
 
 ---
