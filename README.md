@@ -7,6 +7,6 @@
 
 ---
 
-_"Integrity is telling myself the truth. And honesty is telling the truth to other people. — *Spencer Johnson*"_
+_"One of the first signs of the beginning of understanding is the wish to die.  — *Franz Kafka*"_
 
 ---
