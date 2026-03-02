@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a cosmic law which says that every satisfaction must be paid for with a dissatisfaction. — *G.I. Gurdjieff*"_
+_"The opportunity of defeating the enemy is provided by the enemy himself. — *Sun Tzu*"_
 
 ---
