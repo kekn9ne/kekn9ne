@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot change your destination overnight but you can change your direction overnight. — *Jim Rohn*"_
+_"If there were no God, there would be no atheists. — *Gilbert Chesterton*"_
 
 ---
