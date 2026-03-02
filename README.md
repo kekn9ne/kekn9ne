@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 03 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +7°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only those who do nothing at all make no mistakes. — *Unknown*"_
+_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
 
 ---
