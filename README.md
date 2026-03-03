@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 03 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
 
 ---
 
-_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
+_"Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine. — *Roy T. Bennett*"_
 
 ---
