@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not allow your inner doubts to keep you from achieving what you can do. — *Lolly Daskal*"_
+_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
 
 ---
