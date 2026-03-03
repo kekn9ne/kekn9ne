@@ -7,6 +7,6 @@
 
 ---
 
-_"Give a man a fish and you feed him for a day. Teach a man to fish and you feed him for a lifetime. — *Lao Tzu*"_
+_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
 
 ---
