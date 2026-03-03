@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 03 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
 
 ---
 
-_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
+_"Heart is what separates the good from the great. — *Michael Jordan*"_
 
 ---
