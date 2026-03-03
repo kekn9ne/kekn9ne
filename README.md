@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 04 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +6°C**  
+🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Embrace the life you have and stop wishing that you could be someone else. — *Joyce Meyer*"_
+_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
 
 ---
