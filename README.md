@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowing your own darkness is the best method for dealing with the darknesses of other people. — *Carl Jung*"_
+_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
 
 ---
