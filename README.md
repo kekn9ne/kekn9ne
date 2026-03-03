@@ -7,6 +7,6 @@
 
 ---
 
-_"The greater the impact you want to make, the greater your influence needs to be. — *Lolly Daskal*"_
+_"Wherever there is danger, there lurks opportunity; wherever there is opportunity, there lurks danger. The two are inseparable. — *Earl Nightingale*"_
 
 ---
