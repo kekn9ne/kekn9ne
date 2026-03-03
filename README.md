@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 03 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **TİKTOK** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Heart is what separates the good from the great. — *Michael Jordan*"_
+_"It is not what we get. But who we become, what we contribute... that gives meaning to our lives. — *Tony Robbins*"_
 
 ---
