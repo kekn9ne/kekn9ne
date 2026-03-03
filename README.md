@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 04 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
 
 ---
 
-_"The best of us sometimes eat our words.   — *Albus Dumbledore*"_
+_"Small men think they are small; great men never know they are great.  — *Chinese Proverb*"_
 
 ---
