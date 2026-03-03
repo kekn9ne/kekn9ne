@@ -7,6 +7,6 @@
 
 ---
 
-_"You are never too old to become younger. — *Mae West*"_
+_"Believe and you're halfway there. — *Harry S. Truman*"_
 
 ---
