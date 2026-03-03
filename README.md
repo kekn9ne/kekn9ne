@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe and you're halfway there. — *Harry S. Truman*"_
+_"Passion creates, addiction consumes. — *Gabor Mate*"_
 
 ---
