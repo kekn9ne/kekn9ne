@@ -7,6 +7,6 @@
 
 ---
 
-_"There is an essence of when you are fearless, you become more creative. — *Gurbaksh Chahal*"_
+_"Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive. — *Maxime Lagace*"_
 
 ---
