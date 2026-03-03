@@ -7,6 +7,6 @@
 
 ---
 
-_"To raise your consciousness, surround yourself with people of higher consciousness. — *Celestine Chua*"_
+_"Any game becomes important when you know and love the players. — *W.P. Kinsella*"_
 
 ---
