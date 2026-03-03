@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"To raise your consciousness, surround yourself with people of higher consciousness. — *Celestine Chua*"_
 
 ---
