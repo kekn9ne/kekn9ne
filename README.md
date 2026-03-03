@@ -7,6 +7,6 @@
 
 ---
 
-_"Scared people want comfort and certainty so they avoid failure. People living fully seek challenges because this is where they feel alive. — *Maxime Lagace*"_
+_"Words have no power to impress the mind without the exquisite horror of their reality. — *Edgar Allan Poe*"_
 
 ---
