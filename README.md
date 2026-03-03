@@ -7,6 +7,6 @@
 
 ---
 
-_"As mortals, we're ruled by conditions, not by ourselves. — *Bodhidharma*"_
+_"Failure is simply the opportunity to begin again, this time more intelligently. — *Henry Ford*"_
 
 ---
