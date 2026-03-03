@@ -7,6 +7,6 @@
 
 ---
 
-_"Words have no power to impress the mind without the exquisite horror of their reality. — *Edgar Allan Poe*"_
+_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
 
 ---
