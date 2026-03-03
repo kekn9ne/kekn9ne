@@ -7,6 +7,6 @@
 
 ---
 
-_"Magic is believing in yourself, if you can do that, you can make anything happen. — *Johann Wolfgang von Goethe*"_
+_"Do not allow your inner doubts to keep you from achieving what you can do. — *Lolly Daskal*"_
 
 ---
