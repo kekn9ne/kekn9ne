@@ -7,6 +7,6 @@
 
 ---
 
-_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
+_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
 
 ---
