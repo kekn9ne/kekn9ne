@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams are the royal road to the unconscious.  — *Sigmund Freud*"_
+_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
 
 ---
