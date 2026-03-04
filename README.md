@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 04 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **RUM RUM RUM** by *Lvbel C5* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
+_"Dreams are the royal road to the unconscious.  — *Sigmund Freud*"_
 
 ---
