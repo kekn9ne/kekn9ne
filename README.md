@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is the art of drawing sufficient conclusions from insufficient premises. — *Samuel Butler*"_
+_"The path is difficult to ensure worthiness. The lazy look elsewhere, The persevering find riches. — *Ming-Dao Deng*"_
 
 ---
