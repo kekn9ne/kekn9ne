@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 05 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +7°C**  
+🌤️ Weather in Istanbul: **☀️   +5°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The danger of an adventure is worth a thousand days of ease and comfort. — *Paulo Coelho*"_
+_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
 
 ---
