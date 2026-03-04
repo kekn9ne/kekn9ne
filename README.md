@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is getting what you want. Happiness is wanting what you get. — *Andrew Carnegie*"_
+_"It's very strange that the people you love are often the people you're most cruel to. — *Kenneth Branagh*"_
 
 ---
