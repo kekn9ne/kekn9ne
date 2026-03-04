@@ -7,6 +7,6 @@
 
 ---
 
-_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
+_"The present moment dies every moment to become the past , is reborn every moment into the future. All experience is now. Now never ends. — *Deepak Chopra*"_
 
 ---
