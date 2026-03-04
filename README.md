@@ -7,6 +7,6 @@
 
 ---
 
-_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
+_"Yesterday is but today's memory, tomorrow is today's dream. — *Kahlil Gibran*"_
 
 ---
