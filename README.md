@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are able to employ your will always for constructive purposes, you become the controller of your destiny. — *Paramahansa Yogananda*"_
+_"Life is like a beautiful melody, only the lyrics are messed up. — *Hans Christian Andersen*"_
 
 ---
