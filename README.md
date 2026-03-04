@@ -7,6 +7,6 @@
 
 ---
 
-_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
+_"When you are able to employ your will always for constructive purposes, you become the controller of your destiny. — *Paramahansa Yogananda*"_
 
 ---
