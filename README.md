@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 04 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **İKİ TANE SARI** by *Lvbel C5* 🎶
 
 ---
 
-_"Yesterday is but today's memory, tomorrow is today's dream. — *Kahlil Gibran*"_
+_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
 
 ---
