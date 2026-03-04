@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 04 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RUM RUM RUM** by *Lvbel C5* 🎶
 
 ---
 
-_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
+_"Success is the sum of small efforts, repeated day in and day out. — *Robert Collier*"_
 
 ---
