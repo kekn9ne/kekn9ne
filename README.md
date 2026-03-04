@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing important is learned; it is simply remembered. — *Carlos Ruiz Zafon*"_
+_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
 
 ---
