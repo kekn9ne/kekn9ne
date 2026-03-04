@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is too high for a man to reach, but he must climb with care and confidence — *Hans Christian Andersen*"_
+_"Change is not a four letter word...but often your reaction to it is! — *Jeffrey Gitomer*"_
 
 ---
