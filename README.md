@@ -7,6 +7,6 @@
 
 ---
 
-_"Walk slowly but never walk backward. — *Unknown*"_
+_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
 
 ---
