@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 04 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you see a get rich quick scheme, that's someone else trying to get rich off of you. — *Naval Ravikant*"_
+_"The big secret in life is that there is no big secret. Whatever your goal, you can get there if you're willing to work. — *Oprah Winfrey*"_
 
 ---
