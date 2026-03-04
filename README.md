@@ -7,6 +7,6 @@
 
 ---
 
-_"It's the job that's never started that takes the longest to finish. — *J.R.R. Tolkien*"_
+_"Do the hard jobs first. The easy jobs will take care of themselves. — *Dale Carnegie*"_
 
 ---
