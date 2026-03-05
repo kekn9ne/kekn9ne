@@ -7,6 +7,6 @@
 
 ---
 
-_"Fiction is the truth inside the lie. — *Stephen King*"_
+_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
 
 ---
