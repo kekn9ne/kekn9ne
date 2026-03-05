@@ -7,6 +7,6 @@
 
 ---
 
-_"Be fascinated instead of frustrated. — *Jim Rohn*"_
+_"You're never too old for anything. — *Betty White*"_
 
 ---
