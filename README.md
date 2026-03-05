@@ -7,6 +7,6 @@
 
 ---
 
-_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
+_"The unthankful heart discovers no mercies; but the thankful heart will find, in every hour, some heavenly blessings. — *Henry Ward Beecher*"_
 
 ---
