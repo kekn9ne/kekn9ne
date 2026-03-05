@@ -7,6 +7,6 @@
 
 ---
 
-_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
+_"Fiction is the truth inside the lie. — *Stephen King*"_
 
 ---
