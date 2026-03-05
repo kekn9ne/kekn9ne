@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 05 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **24 AYAR** by *Keskin* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is easy to love your friend, but sometimes the hardest lesson to learn is to love your enemy. — *Sun Tzu*"_
+_"Success is about doing the right thing, not about doing everything right. — *Gary Keller*"_
 
 ---
