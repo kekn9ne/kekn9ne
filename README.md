@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 05 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **🌦   +9°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
 
 ---
 
-_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
+_"Life is trying things to see if they work. — *Ray Bradbury*"_
 
 ---
