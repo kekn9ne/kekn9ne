@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want more luck, take more chances. — *Brian Tracy*"_
+_"Be fascinated instead of frustrated. — *Jim Rohn*"_
 
 ---
