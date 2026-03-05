@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 05 March 2026**  
 🌤️ Weather in Istanbul: **🌦   +9°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life is trying things to see if they work. — *Ray Bradbury*"_
+_"Time doesn't heal emotional pain, you need to learn how to let go. — *Roy T. Bennett*"_
 
 ---
