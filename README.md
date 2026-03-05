@@ -7,6 +7,6 @@
 
 ---
 
-_"Some people feel the rain. Others just get wet.  — *Bob Dylan*"_
+_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
 
 ---
