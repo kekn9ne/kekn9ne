@@ -7,6 +7,6 @@
 
 ---
 
-_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
