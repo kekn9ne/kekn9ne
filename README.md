@@ -7,6 +7,6 @@
 
 ---
 
-_"You're never too old for anything. — *Betty White*"_
+_"Is it really possible to tell someone else what one feels? — *Leo Tolstoy*"_
 
 ---
