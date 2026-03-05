@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest weariness comes from work not done. — *Eric Hoffer*"_
+_"Even the finest sword plunged into salt water will eventually rust. — *Sun Tzu*"_
 
 ---
