@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 07 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +7°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Babaflow** by *UZI* 🎶
+🎧 Currently Listening: **7/20** by *Yung Ouzo* 🎶
 
 ---
 
-_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
+_"If you can handle rejection, you'll learn to get everything you want. — *Tony Robbins*"_
 
 ---
