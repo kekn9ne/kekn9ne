@@ -7,6 +7,6 @@
 
 ---
 
-_"When you rise in the morning, form a resolution to make the day a happy one for a fellow creature. — *Sydney Smith*"_
+_"It is not that we have too little time to do all the things we need to do , it is that we feel the need to do too many things in the time we have. — *Gary Keller*"_
 
 ---
