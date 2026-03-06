@@ -7,6 +7,6 @@
 
 ---
 
-_"Your setback is just a setup for a comeback. — *Steve Harvey*"_
+_"You make your own luck if you stay at it long enough. — *Naval Ravikant*"_
 
 ---
