@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 06 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +10°C**  
+🌤️ Weather in Istanbul: **🌦   +9°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
 
 ---
 
-_"She who loves roses must be patient and not cry out when she is pierced by thorns. — *Kenji Miyazawa*"_
+_"Do not fight with pigs - you will be smeared in mud but the pig will like it. — *George Bernard Shaw*"_
 
 ---
