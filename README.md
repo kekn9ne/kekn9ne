@@ -7,6 +7,6 @@
 
 ---
 
-_"Change will not come if we wait for some other person, or if we wait for some other time. — *Barack Obama*"_
+_"If you want something then you lose everything. If you don't want anything then you already have everything. — *Seungsahn*"_
 
 ---
