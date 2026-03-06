@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 06 March 2026**  
-🌤️ Weather in Istanbul: **🌫  +11°C**  
+🌤️ Weather in Istanbul: **☁️   +12°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Göremezsin** by *MARSS* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
+_"Be brave to stand for what you believe in even if you stand alone. — *Roy T. Bennett*"_
 
 ---
