@@ -7,6 +7,6 @@
 
 ---
 
-_"No valid plans for the future can be made by those who have no capacity for living now. — *Alan Watts*"_
+_"Human happiness and moral duty are inseparably connected.  — *George Washington*"_
 
 ---
