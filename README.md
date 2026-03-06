@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 06 March 2026**  
 🌤️ Weather in Istanbul: **🌫  +11°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: **Göremezsin** by *MARSS* 🎶
 
 ---
 
-_"Youth ages, immaturity is outgrown, ignorance can be educated, and drunkenness sobered, but stupid lasts forever. — *Aristophanes*"_
+_"An empty head is not really empty; it is stuffed with rubbish. Hence the difficulty of forcing anything into an empty head. — *Eric Hoffer*"_
 
 ---
