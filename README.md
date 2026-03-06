@@ -7,6 +7,6 @@
 
 ---
 
-_"Art is to console those who are broken by life. — *Vincent van Gogh*"_
+_"A life without a cause is a life without effect. — *Paulo Coelho*"_
 
 ---
