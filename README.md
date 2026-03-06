@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 06 March 2026**  
-🌤️ Weather in Istanbul: **🌫  +9°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
+_"Singleness of purpose is one of the chief essentials for success in life, no matter what may be one's aim. — *John D. Rockefeller*"_
 
 ---
