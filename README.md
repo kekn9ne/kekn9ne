@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to change an opinion than to persist in a wrong one. — *Socrates*"_
+_"If you want something you've never had you must be willing to do something you've never done. — *Thomas Jefferson*"_
 
 ---
