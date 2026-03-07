@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 07 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Mortal Kombat** by *UZI* 🎶
+🎧 Currently Listening: **JENGA** by *Khontkar* 🎶
 
 ---
 
-_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
+_"There can be no deep disappointment where there is not deep love. — *Martin Luther King, Jr.*"_
 
 ---
