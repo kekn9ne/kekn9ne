@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 07 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Cennet** by *UZI* 🎶
 
 ---
 
-_"Be kind whenever possible. It is always possible. — *Dalai Lama*"_
+_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
 
 ---
