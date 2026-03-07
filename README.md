@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Saturday, 07 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +5°C**  
+🗓️ Today is: **Sunday, 08 March 2026**  
+🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Ateş Et** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Better to have, and not need, than to need, and not have. — *Franz Kafka*"_
+_"The greatest of empires, is the empire over one's self. — *Publilius Syrus*"_
 
 ---
