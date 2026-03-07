@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easier to fight for one's principles than to live up to them.  — *Alfred Adler*"_
+_"The busy man is never wise and the wise man is never busy. — *Lin Yutang*"_
 
 ---
