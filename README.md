@@ -7,6 +7,6 @@
 
 ---
 
-_"Comedy = tragedy + time. — *Carol Burnett*"_
+_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
 
 ---
