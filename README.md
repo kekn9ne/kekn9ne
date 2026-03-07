@@ -7,6 +7,6 @@
 
 ---
 
-_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
+_"We must embrace pain and burn it as fuel for our journey. — *Kenji Miyazawa*"_
 
 ---
