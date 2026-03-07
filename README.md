@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 07 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +8°C**  
+🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Öderim Bedel** by *lesh7.24* 🎶
 
 ---
 
-_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
+_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
 
 ---
