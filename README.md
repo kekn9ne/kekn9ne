@@ -7,6 +7,6 @@
 
 ---
 
-_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
+_"If you love somebody, let them go, for if they return, they were always yours. If they don't, they never were. — *Kahlil Gibran*"_
 
 ---
