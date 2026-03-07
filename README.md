@@ -7,6 +7,6 @@
 
 ---
 
-_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
+_"Truth is not something outside to be discovered, it is something inside to be realized. — *Osho*"_
 
 ---
