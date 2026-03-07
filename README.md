@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 07 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Anne** by *ERAY067* 🎶
+🎧 Currently Listening: **RANDEVU** by *Motive* 🎶
 
 ---
 
-_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
+_"Enjoy every minute of life. Never second-guess life. — *Michael Jordan*"_
 
 ---
