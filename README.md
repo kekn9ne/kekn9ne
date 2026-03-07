@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe in yourself. You are braver than you think, more talented than you know, and capable of more than you imagine. — *Roy T. Bennett*"_
+_"Laws are like cobwebs, which may catch small flies, but let wasps and hornets break through. — *Jonathan Swift*"_
 
 ---
