@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 07 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
