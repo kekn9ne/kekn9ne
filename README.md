@@ -7,6 +7,6 @@
 
 ---
 
-_"We must embrace pain and burn it as fuel for our journey. — *Kenji Miyazawa*"_
+_"Don't be afraid of enemies who attack you. Be afraid of the friends who flatter you. — *Dale Carnegie*"_
 
 ---
