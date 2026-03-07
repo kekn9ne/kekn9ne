@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 07 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +9°C**  
+🌤️ Weather in Istanbul: **☀️   +8°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You are never too old to set another goal or to dream a new dream. — *Les Brown*"_
+_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
 
 ---
