@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
+_"You are never too old to set another goal or to dream a new dream. — *Les Brown*"_
 
 ---
