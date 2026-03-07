@@ -7,6 +7,6 @@
 
 ---
 
-_"The only people without problems are those in cemeteries. — *Tony Robbins*"_
+_"Animals don't hate, and we're supposed to be better than them. — *Elvis Presley*"_
 
 ---
