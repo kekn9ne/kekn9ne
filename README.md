@@ -7,6 +7,6 @@
 
 ---
 
-_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
+_"Give credit where credit is due: simply said, if you want loyalty and best effort, you must be thoughtful.   — *Estee Lauder*"_
 
 ---
