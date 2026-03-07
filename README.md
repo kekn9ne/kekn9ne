@@ -7,6 +7,6 @@
 
 ---
 
-_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
+_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
 
 ---
