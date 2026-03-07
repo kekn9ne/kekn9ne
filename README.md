@@ -7,6 +7,6 @@
 
 ---
 
-_"It is very obvious that we are not influenced by 'facts' but by our interpretation of the facts. — *Alfred Adler*"_
+_"Start the day with love, spend the day with love, fill the day with love and end the day with love. — *Sathya Sai Baba*"_
 
 ---
