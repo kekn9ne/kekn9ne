@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles don't block the path, they are the path. — *Zen Proverb*"_
+_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
 
 ---
