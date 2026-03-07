@@ -7,6 +7,6 @@
 
 ---
 
-_"If you're really truthful with yourself, it's a wonderful guidance.   — *Charlie Chaplin*"_
+_"He who cheats the earth will be cheated by the earth. — *Chinese Proverb*"_
 
 ---
