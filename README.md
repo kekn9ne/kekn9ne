@@ -7,6 +7,6 @@
 
 ---
 
-_"If you done it, it ain't bragging. — *Walt Whitman*"_
+_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
 
 ---
