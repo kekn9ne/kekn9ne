@@ -7,6 +7,6 @@
 
 ---
 
-_"It is never too late to be what you might have been. — *George Eliot*"_
+_"From the errors of others, a wise man corrects his own. — *Publilius Syrus*"_
 
 ---
