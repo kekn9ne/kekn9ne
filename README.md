@@ -7,6 +7,6 @@
 
 ---
 
-_"You make your own luck if you stay at it long enough. — *Naval Ravikant*"_
+_"Whatever happens always happens on time. — *Zen Proverb*"_
 
 ---
