@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest of empires, is the empire over one's self. — *Publilius Syrus*"_
+_"Comedy = tragedy + time. — *Carol Burnett*"_
 
 ---
