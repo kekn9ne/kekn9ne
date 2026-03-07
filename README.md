@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 07 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **86**  
-🎧 Currently Listening: **Öderim Bedel** by *lesh7.24* 🎶
+🎧 Currently Listening: **Anne** by *ERAY067* 🎶
 
 ---
 
-_"As soon as you trust yourself, you will know how to live. — *Johann Wolfgang von Goethe*"_
+_"Wheels of justice grind slow but grind fine. — *Sun Tzu*"_
 
 ---
