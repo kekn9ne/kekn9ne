@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul should always stand ajar, ready to welcome the ecstatic experience. — *Emily Dickinson*"_
+_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
 
 ---
