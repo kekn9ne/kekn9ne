@@ -7,6 +7,6 @@
 
 ---
 
-_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
+_"It is difficult to free fools from the chains they revere.  — *Voltaire*"_
 
 ---
