@@ -7,6 +7,6 @@
 
 ---
 
-_"In the long run, the sharpest weapon of all is a kind and gentle spirit. — *Anne Frank*"_
+_"It is safer to search in the maze than to remain in a cheeseless situation. — *Spencer Johnson*"_
 
 ---
