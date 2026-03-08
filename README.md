@@ -7,6 +7,6 @@
 
 ---
 
-_"It is difficult to free fools from the chains they revere.  — *Voltaire*"_
+_"Dream big and dare to fail. — *Norman Vaughan*"_
 
 ---
