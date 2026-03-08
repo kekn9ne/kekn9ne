@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 09 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **BRR** by *D-azy* 🎶
 
 ---
 
-_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
+_"When it comes to mastering a skill, time is the magic ingredient. — *Robert Greene*"_
 
 ---
