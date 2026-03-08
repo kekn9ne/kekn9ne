@@ -7,6 +7,6 @@
 
 ---
 
-_"You have power over your mind - not outside events. Realize this, and you will find strength. — *Marcus Aurelius*"_
+_"Never be afraid to raise your voice for honesty and truth and compassion against injustice and lying and greed. — *William Faulkner*"_
 
 ---
