@@ -7,6 +7,6 @@
 
 ---
 
-_"Be yourself; everyone else is already taken. — *Oscar Wilde*"_
+_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
 
 ---
