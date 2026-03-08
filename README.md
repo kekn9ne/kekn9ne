@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +10°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A man is great not because he hasn't failed; a man is great because failure hasn't stopped him. — *Confucius*"_
+_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
 
 ---
