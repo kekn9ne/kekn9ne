@@ -7,6 +7,6 @@
 
 ---
 
-_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
+_"I do not seek. I find. — *Pablo Picasso*"_
 
 ---
