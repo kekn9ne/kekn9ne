@@ -7,6 +7,6 @@
 
 ---
 
-_"By the practice of meditation, you will find that you are carrying within your heart a portable paradise. — *Paramahansa Yogananda*"_
+_"Be approximately right rather than exactly wrong. — *John Tukey*"_
 
 ---
