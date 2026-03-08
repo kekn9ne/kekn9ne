@@ -7,6 +7,6 @@
 
 ---
 
-_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
+_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
 
 ---
