@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 08 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +7°C**  
 📊 GitHub Contributions: **86**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"People do not decide their futures, they decide their habits and their habits decide their futures. — *Gary Keller*"_
 
 ---
