@@ -7,6 +7,6 @@
 
 ---
 
-_"Values are like fingerprints. Nobody's are the same, but you leave 'em all over everything you do. — *Elvis Presley*"_
+_"Exceptional thinkers ignore their critics and go about their business making history. — *John Eliot*"_
 
 ---
