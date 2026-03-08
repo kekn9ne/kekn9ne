@@ -7,6 +7,6 @@
 
 ---
 
-_"The greatest discovery of all time is that a person can change their future by merely changing their attitude. — *Oprah Winfrey*"_
+_"A single dream is more powerful than a thousand realities. — *J.R.R. Tolkien*"_
 
 ---
