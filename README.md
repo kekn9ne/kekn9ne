@@ -7,6 +7,6 @@
 
 ---
 
-_"Be brave enough to suck at something new. — *Unknown*"_
+_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
 
 ---
