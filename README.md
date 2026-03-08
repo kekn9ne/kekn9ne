@@ -7,6 +7,6 @@
 
 ---
 
-_"We are all self-made, but only the successful will admit it. — *Earl Nightingale*"_
+_"Time flies whether you are having fun or not. — *Mary Engelbreit*"_
 
 ---
