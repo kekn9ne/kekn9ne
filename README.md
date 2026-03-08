@@ -7,6 +7,6 @@
 
 ---
 
-_"Excuses are the lies you convince yourself are true to avoid proving you are worthy of the gift you were given. — *Steve Harvey*"_
+_"Prefer to be defeated in the presence of the wise than to excel among fools. — *Dogen*"_
 
 ---
