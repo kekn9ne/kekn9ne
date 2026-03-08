@@ -7,6 +7,6 @@
 
 ---
 
-_"Prefer to be defeated in the presence of the wise than to excel among fools. — *Dogen*"_
+_"Love is the energy of life. — *Robert Browning*"_
 
 ---
