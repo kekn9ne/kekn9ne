@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't break your ropes while you're alive, do you think ghosts will do it after? — *Kabir*"_
+_"He is a wise man who does not grieve for the things which he has not, but rejoices for those which he has. — *Epictetus*"_
 
 ---
