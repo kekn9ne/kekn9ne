@@ -7,6 +7,6 @@
 
 ---
 
-_"A fall into a ditch makes you wiser. — *Chinese Proverb*"_
+_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
 
 ---
