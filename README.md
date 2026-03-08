@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't program yourself, life will program you. — *Les Brown*"_
+_"You Create Your Own Present By What You Give Your Attention To Today. — *Spencer Johnson*"_
 
 ---
