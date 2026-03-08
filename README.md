@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the energy of life. — *Robert Browning*"_
+_"Engage in those actions and thoughts that nurture the good qualities you want to have. — *Paramahansa Yogananda*"_
 
 ---
