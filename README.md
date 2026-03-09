@@ -7,6 +7,6 @@
 
 ---
 
-_"All human wisdom is contained in these two words - Wait and Hope — *Alexandre Dumas*"_
+_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
 
 ---
