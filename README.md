@@ -7,6 +7,6 @@
 
 ---
 
-_"Walk with those seeking truth... RUN FROM THOSE WHO THINK THEY'VE FOUND IT. — *Deepak Chopra*"_
+_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
 
 ---
