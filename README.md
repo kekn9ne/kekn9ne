@@ -7,6 +7,6 @@
 
 ---
 
-_"By seeking and blundering we learn. — *Johann Wolfgang von Goethe*"_
+_"Perfection is not attainable, but if we chase perfection we can catch excellence. — *Vince Lombardi*"_
 
 ---
