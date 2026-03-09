@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of thinking outside the box, get rid of the box. — *Deepak Chopra*"_
+_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
 
 ---
