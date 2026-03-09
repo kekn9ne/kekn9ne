@@ -7,6 +7,6 @@
 
 ---
 
-_"Great thoughts speak only to the thoughtful mind, but great actions speak to all mankind. — *Theodore Roosevelt*"_
+_"You'll see it when you believe it.  — *Wayne Dyer*"_
 
 ---
