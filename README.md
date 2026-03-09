@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 09 March 2026**  
 🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
+_"Instead of thinking outside the box, get rid of the box. — *Deepak Chopra*"_
 
 ---
