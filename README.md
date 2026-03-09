@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no path to Love. Love is the path. — *Dan Millman*"_
+_"The one who praises you is a thief. The one who criticizes you is your true friend. — *Seungsahn*"_
 
 ---
