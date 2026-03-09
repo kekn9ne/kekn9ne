@@ -7,6 +7,6 @@
 
 ---
 
-_"Be fascinated instead of frustrated. — *Jim Rohn*"_
+_"A minute's success pays the failure of years. — *Robert Browning*"_
 
 ---
