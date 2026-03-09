@@ -7,6 +7,6 @@
 
 ---
 
-_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
+_"Shoot for the moon. Even if you miss, you'll land among the stars. — *Norman Vincent Peale*"_
 
 ---
