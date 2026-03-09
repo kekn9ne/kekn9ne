@@ -7,6 +7,6 @@
 
 ---
 
-_"A minute's success pays the failure of years. — *Robert Browning*"_
+_"By seeking and blundering we learn. — *Johann Wolfgang von Goethe*"_
 
 ---
