@@ -7,6 +7,6 @@
 
 ---
 
-_"Love and compassion are necessities, not luxuries. Without them, humanity cannot survive. — *Dalai Lama*"_
+_"You may forget with whom you laughed, but you will never forget with whom you wept.   — *Kahlil Gibran*"_
 
 ---
