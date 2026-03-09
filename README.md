@@ -7,6 +7,6 @@
 
 ---
 
-_"Even if you stumble and fall down, it doesn't mean you've chosen the wrong path. — *Zen Proverb*"_
+_"Experience is a comb which nature gives us when we are bald.  — *Chinese Proverb*"_
 
 ---
