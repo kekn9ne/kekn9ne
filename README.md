@@ -7,6 +7,6 @@
 
 ---
 
-_"Find the game where you can win, and then commit your life to playing it; and play to win. — *Robert Kiyosaki*"_
+_"There is no path to Love. Love is the path. — *Dan Millman*"_
 
 ---
