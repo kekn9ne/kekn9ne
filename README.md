@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 09 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +8°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
 
 ---
 
-_"To accomplish big things, I am convinced you must first dream big dreams. — *Conrad Hilton*"_
+_"Logic is like the sword - those who appeal to it shall perish by it. — *Samuel Butler*"_
 
 ---
