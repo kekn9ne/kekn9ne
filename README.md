@@ -7,6 +7,6 @@
 
 ---
 
-_"The more rejection you get, the better you are, the more you've learned, the closer you are to your outcome. — *Tony Robbins*"_
+_"I dream my painting and I paint my dream. — *Vincent van Gogh*"_
 
 ---
