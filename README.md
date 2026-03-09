@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 09 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **61**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you correct your mind, the rest of your life will fall into place. — *Lao Tzu*"_
+_"The worst part of success is trying to find someone who is happy for you. — *Bette Midler*"_
 
 ---
