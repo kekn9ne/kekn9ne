@@ -7,6 +7,6 @@
 
 ---
 
-_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
+_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
 
 ---
