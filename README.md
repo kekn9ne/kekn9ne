@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in life is to stop saying 'I wish' and start saying 'I will'. Consider nothing impossible, then treat possibilities as probabilities. — *Charles Dickens*"_
+_"Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become. — *Paramahansa Yogananda*"_
 
 ---
