@@ -7,6 +7,6 @@
 
 ---
 
-_"Truth will always be truth, regardless of lack of understanding, disbelief or ignorance.  — *W. Clement Stone*"_
+_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
 
 ---
