@@ -7,6 +7,6 @@
 
 ---
 
-_"Many roads lead to the path, but basically there are only two: reason and practice.  — *Bodhidharma*"_
+_"The only place where success comes before work is in the dictionary. — *Vidal Sassoon*"_
 
 ---
