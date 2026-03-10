@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place where success comes before work is in the dictionary. — *Vidal Sassoon*"_
+_"Against the assault of laughter nothing can stand. — *Mark Twain*"_
 
 ---
