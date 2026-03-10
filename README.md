@@ -7,6 +7,6 @@
 
 ---
 
-_"Be as simple as you can be; you will be astonished to see how uncomplicated and happy your life can become. — *Paramahansa Yogananda*"_
+_"To be of use to the world is the only way to be happy. — *Hans Christian Andersen*"_
 
 ---
