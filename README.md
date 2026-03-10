@@ -7,6 +7,6 @@
 
 ---
 
-_"Freedom is the open window through which pours the sunlight of the human spirit and human dignity. — *Herbert Hoover*"_
+_"It's not what you pay a man, but what he costs you that counts. — *Will Rogers*"_
 
 ---
