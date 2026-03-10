@@ -7,6 +7,6 @@
 
 ---
 
-_"Loyalty and friendship are the most precious possessions a man can have. — *Herbert Hoover*"_
+_"A scientific man ought to have no wishes, no affections, - a mere heart of stone. — *Charles Darwin*"_
 
 ---
