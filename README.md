@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 10 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **☀️   +14°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: **YIN YANG** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Men are equal; it is not birth but virtue that makes the difference. — *Voltaire*"_
+_"A poet should be so crafty with words that he is envied even for his pains. — *Criss Jami*"_
 
 ---
