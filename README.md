@@ -7,6 +7,6 @@
 
 ---
 
-_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
+_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
 
 ---
