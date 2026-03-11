@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
+_"We would accomplish many more things if we did not think of them as impossible. — *Vince Lombardi*"_
 
 ---
