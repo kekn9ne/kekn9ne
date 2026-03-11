@@ -7,6 +7,6 @@
 
 ---
 
-_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
+_"Everything you can imagine is real. — *Pablo Picasso*"_
 
 ---
