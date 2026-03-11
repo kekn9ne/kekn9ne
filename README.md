@@ -7,6 +7,6 @@
 
 ---
 
-_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
+_"A good master leads you to the true master within. Only that master, who is your own higher self, can adequately answer all questions. — *Ming-Dao Deng*"_
 
 ---
