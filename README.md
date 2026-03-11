@@ -7,6 +7,6 @@
 
 ---
 
-_"Identification with our mind causes thought to become compulsive. — *Eckhart Tolle*"_
+_"Time heals what reason cannot.   — *Seneca*"_
 
 ---
