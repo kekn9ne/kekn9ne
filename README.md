@@ -7,6 +7,6 @@
 
 ---
 
-_"Surrender to what is. Let go of what was. Have faith in what will be. — *Sonia Ricotti*"_
+_"I do not seek. I find. — *Pablo Picasso*"_
 
 ---
