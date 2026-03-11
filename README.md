@@ -7,6 +7,6 @@
 
 ---
 
-_"Time heals what reason cannot.   — *Seneca*"_
+_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
 
 ---
