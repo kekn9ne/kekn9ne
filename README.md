@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 11 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +7°C**  
+🌤️ Weather in Istanbul: **Unavailable 🌫️**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: **Ou** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"How much pain they have cost us, the evils which have never happened. — *Thomas Jefferson*"_
+_"Things turn out best for the people who make the best of the way things turn out. — *John Wooden*"_
 
 ---
