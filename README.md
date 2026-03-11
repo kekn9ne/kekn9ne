@@ -7,6 +7,6 @@
 
 ---
 
-_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
+_"Greatest success comes just one step beyond the point at which defeat overtakes you. — *Unknown*"_
 
 ---
