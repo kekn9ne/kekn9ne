@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything you can imagine is real. — *Pablo Picasso*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
