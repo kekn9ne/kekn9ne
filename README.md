@@ -7,6 +7,6 @@
 
 ---
 
-_"Have a heart that never hardens, and a temper that never tires, and a touch that never hurts. — *Charles Dickens*"_
+_"Obstacles are those frightful things you see when you take your eyes off your goals. — *Sydney Smith*"_
 
 ---
