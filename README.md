@@ -7,6 +7,6 @@
 
 ---
 
-_"It's your life-but only if you make it so. — *Eleanor Roosevelt*"_
+_"Your heart is the size of an ocean. Go find yourself in its hidden depths. — *Rumi*"_
 
 ---
