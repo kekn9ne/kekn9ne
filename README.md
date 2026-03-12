@@ -7,6 +7,6 @@
 
 ---
 
-_"Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — *Norman Vincent Peale*"_
+_"The educated differ from the uneducated as much as the living differ from the dead. — *Aristotle*"_
 
 ---
