@@ -7,6 +7,6 @@
 
 ---
 
-_"Start each day with a positive thought and a grateful heart. — *Roy T. Bennett*"_
+_"Winning isn't everything, but wanting to win is. — *Vince Lombardi*"_
 
 ---
