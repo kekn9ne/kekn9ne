@@ -7,6 +7,6 @@
 
 ---
 
-_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
+_"Do not follow the ideas of others, but learn to listen to the voice within yourself. — *Dogen*"_
 
 ---
