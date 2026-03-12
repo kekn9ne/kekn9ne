@@ -7,6 +7,6 @@
 
 ---
 
-_"Ever tried. Ever failed. No matter. Try Again. Fail again. Fail better.  — *Samuel Beckett*"_
+_"Love is the absence of judgment. — *Dalai Lama*"_
 
 ---
