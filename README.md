@@ -7,6 +7,6 @@
 
 ---
 
-_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
+_"Cultivate the merry heart, develop the happiness habit, and life will become a continual feast. — *Norman Vincent Peale*"_
 
 ---
