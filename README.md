@@ -7,6 +7,6 @@
 
 ---
 
-_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
+_"Real learning comes about when the competitive spirit has ceased. — *Jiddu Krishnamurti*"_
 
 ---
