@@ -7,6 +7,6 @@
 
 ---
 
-_"What kills the creative force is not age or lack of talent, but our own spirit, our own attitude. — *Robert Greene*"_
+_"Start each day with a positive thought and a grateful heart. — *Roy T. Bennett*"_
 
 ---
