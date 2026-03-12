@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the absence of judgment. — *Dalai Lama*"_
+_"It is far easier to start something than it is to finish it. — *Amelia Earhart*"_
 
 ---
