@@ -7,6 +7,6 @@
 
 ---
 
-_"Darkness must pass. A new day will come. And when the sun shines, it will shine out the clearer. — *J.R.R. Tolkien*"_
+_"Life is either a daring adventure, or it is nothing. — *Helen Keller*"_
 
 ---
