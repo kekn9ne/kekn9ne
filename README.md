@@ -7,6 +7,6 @@
 
 ---
 
-_"Winning isn't everything, but wanting to win is. — *Vince Lombardi*"_
+_"Unless you change how you are, you will always have what you got. — *Jim Rohn*"_
 
 ---
