@@ -7,6 +7,6 @@
 
 ---
 
-_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
+_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
 
 ---
