@@ -7,6 +7,6 @@
 
 ---
 
-_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
+_"When angry count to ten before you speak. If very angry, count to one hundred. — *Thomas Jefferson*"_
 
 ---
