@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
+_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
 
 ---
