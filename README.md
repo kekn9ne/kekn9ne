@@ -7,6 +7,6 @@
 
 ---
 
-_"A person is only by the thoughts that he chooses. — *James Allen*"_
+_"You are what you believe in. You become that which you believe you can become. — *Bhagavad Gita*"_
 
 ---
