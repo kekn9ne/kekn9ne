@@ -7,6 +7,6 @@
 
 ---
 
-_"Your best life will not be found in comfort. It will be found in fighting for what you believe in. — *Maxime Lagace*"_
+_"I believe that one of life's greatest risks is never daring to risk. — *Oprah Winfrey*"_
 
 ---
