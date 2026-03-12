@@ -7,6 +7,6 @@
 
 ---
 
-_"Always be a first rate version of yourself and not a second rate version of someone else. — *Judy Garland*"_
+_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
 
 ---
