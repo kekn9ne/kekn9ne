@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 12 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +7°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Babaflow** by *UZI* 🎶
 
 ---
 
-_"We live only now. Everything else is either passed or is unknown. — *Marcus Aurelius*"_
+_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
 
 ---
