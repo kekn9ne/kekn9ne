@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are motivated by Love, The more Fearless & Free your action will be. — *Dalai Lama*"_
+_"Until you make the unconscious conscious, it will direct your life and you will call it fate. — *Carl Jung*"_
 
 ---
