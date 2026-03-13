@@ -7,6 +7,6 @@
 
 ---
 
-_"It takes a very long time to become young. — *Pablo Picasso*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
