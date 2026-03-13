@@ -7,6 +7,6 @@
 
 ---
 
-_"No valid plans for the future can be made by those who have no capacity for living now. — *Alan Watts*"_
+_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
 
 ---
