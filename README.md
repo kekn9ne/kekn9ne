@@ -7,6 +7,6 @@
 
 ---
 
-_"Follow your heart, listen to your inner voice, stop caring about what others think. — *Roy T. Bennett*"_
+_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
 
 ---
