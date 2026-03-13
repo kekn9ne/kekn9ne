@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
+_"Honor is the foundation of courage. — *Amelia Earhart*"_
 
 ---
