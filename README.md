@@ -7,6 +7,6 @@
 
 ---
 
-_"You have the ability, now apply yourself. — *Benjamin Mays*"_
+_"Your past does not equal your future. — *Tony Robbins*"_
 
 ---
