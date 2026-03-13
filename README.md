@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 13 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **hay Allah** by *Murda* 🎶
 
 ---
 
-_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
+_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
 
 ---
