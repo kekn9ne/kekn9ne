@@ -7,6 +7,6 @@
 
 ---
 
-_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
+_"Never lose hope. Storms make people stronger and never last forever. — *Roy T. Bennett*"_
 
 ---
