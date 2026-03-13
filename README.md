@@ -7,6 +7,6 @@
 
 ---
 
-_"The four P's to success are pressure, persistence, perseverance, and prayer. — *Steve Harvey*"_
+_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
 
 ---
