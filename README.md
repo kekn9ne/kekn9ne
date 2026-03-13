@@ -7,6 +7,6 @@
 
 ---
 
-_"Your past does not equal your future. — *Tony Robbins*"_
+_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
 
 ---
