@@ -7,6 +7,6 @@
 
 ---
 
-_"The divine is not something high above us. It is in heaven, it is in earth, it is inside us. — *Morihei Ueshiba*"_
+_"Live and act within the limit of your knowledge and keep expanding it to the limit of your life. — *Ayn Rand*"_
 
 ---
