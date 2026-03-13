@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 13 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **☀️   +11°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: **hay Allah** by *Murda* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The difference between impossible and possible is a willing heart. — *Lolly Daskal*"_
+_"Focus is a matter of deciding what things you're not going to do. — *John Carmack*"_
 
 ---
