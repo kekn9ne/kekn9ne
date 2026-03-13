@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like underwear, should be changed twice a day.   — *Ray Bradbury*"_
+_"The whole world is a series of miracles, but we're so used to them we call them ordinary things. — *Hans Christian Andersen*"_
 
 ---
