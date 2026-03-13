@@ -7,6 +7,6 @@
 
 ---
 
-_"We must have strong minds, ready to accept facts as they are. — *Harry S. Truman*"_
+_"I think self-awareness is probably the most important thing towards being a champion.  — *Billie Jean King*"_
 
 ---
