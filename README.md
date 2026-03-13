@@ -7,6 +7,6 @@
 
 ---
 
-_"Friendship is one of the most tangible things in a world which offers fewer and fewer supports. — *Kenneth Branagh*"_
+_"The friend is the man who knows all about you, and still likes you. — *Elbert Hubbard*"_
 
 ---
