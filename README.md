@@ -7,6 +7,6 @@
 
 ---
 
-_"He who knows how to wait need make no concessions. — *Sigmund Freud*"_
+_"He who knows, does not speak. He who speaks, does not know. — *Lao Tzu*"_
 
 ---
