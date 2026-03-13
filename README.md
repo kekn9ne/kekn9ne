@@ -7,6 +7,6 @@
 
 ---
 
-_"Winners are not afraid of losing. But losers are. Failure is part of the process of success. People who avoid failure also avoid success. — *Robert Kiyosaki*"_
+_"I believe that potential is unlimited - success depends on daring to act on dreams.    — *Estee Lauder*"_
 
 ---
