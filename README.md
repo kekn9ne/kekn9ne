@@ -7,6 +7,6 @@
 
 ---
 
-_"It is best to begin at the beginning. — *Amelia Earhart*"_
+_"We are all here for some special reason. — *Robin Sharma*"_
 
 ---
