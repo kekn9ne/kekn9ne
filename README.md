@@ -7,6 +7,6 @@
 
 ---
 
-_"In peace, sons bury their fathers. In war, fathers bury their sons.  — *Herodotus*"_
+_"You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — *A.A. Milne*"_
 
 ---
