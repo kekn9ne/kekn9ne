@@ -7,6 +7,6 @@
 
 ---
 
-_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
+_"You never know when a moment and a few sincere words can have an impact on a life.   — *Zig Ziglar*"_
 
 ---
