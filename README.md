@@ -7,6 +7,6 @@
 
 ---
 
-_"The ego wants comfort and certainty. The soul wants to live fully. — *Maxime Lagace*"_
+_"Desire is suffering. — *Naval Ravikant*"_
 
 ---
