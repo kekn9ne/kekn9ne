@@ -7,6 +7,6 @@
 
 ---
 
-_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
+_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
 
 ---
