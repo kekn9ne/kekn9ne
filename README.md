@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens, always be yourself. — *Dale Carnegie*"_
+_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
 
 ---
