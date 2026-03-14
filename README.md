@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 March 2026**  
-🌤️ Weather in Istanbul: **☁️   +9°C**  
+🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **61**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If it entertains you now but will bore you someday, it's a distraction. Keep looking. — *Naval Ravikant*"_
+_"The number one cause of failure is the fear of failure. — *Steve Harvey*"_
 
 ---
