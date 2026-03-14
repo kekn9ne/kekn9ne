@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember where you came from, where you're going, and why you created this mess you got yourself into in the first place. — *Richard Bach*"_
+_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
 
 ---
