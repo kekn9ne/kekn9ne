@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
+_"It is not the knowing that is difficult, but the doing.  — *Chinese Proverb*"_
 
 ---
