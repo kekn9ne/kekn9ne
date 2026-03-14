@@ -7,6 +7,6 @@
 
 ---
 
-_"You need a plan to build a house. To build a life, it is even more important to have a plan or goal. — *Zig Ziglar*"_
+_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
 
 ---
