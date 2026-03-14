@@ -7,6 +7,6 @@
 
 ---
 
-_"A lot of people have gone further than they thought they could because someone else thought they could. — *Zig Ziglar*"_
+_"Without education, we are in a horrible and deadly danger of taking educated people seriously. — *Gilbert Chesterton*"_
 
 ---
