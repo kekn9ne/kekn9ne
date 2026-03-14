@@ -7,6 +7,6 @@
 
 ---
 
-_"If you chase two rabbits, you catch none. — *Confucius*"_
+_"Real loss is only possible when you love something more than you love yourself. — *Robin Williams*"_
 
 ---
