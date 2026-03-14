@@ -7,6 +7,6 @@
 
 ---
 
-_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
+_"As you love yourself, life loves you back. — *Kamal Ravikant*"_
 
 ---
