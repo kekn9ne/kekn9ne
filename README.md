@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 14 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +11°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
 
 ---
 
-_"We are all here for some special reason. — *Robin Sharma*"_
+_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
 
 ---
