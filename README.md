@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
+_"A different result requires doing something different. — *Gary Keller*"_
 
 ---
