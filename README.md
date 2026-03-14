@@ -7,6 +7,6 @@
 
 ---
 
-_"Man invented language to satisfy his deep need to complain. — *Lily Tomlin*"_
+_"Don't look back - you're not going that way. — *Mary Engelbreit*"_
 
 ---
