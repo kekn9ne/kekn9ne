@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 14 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +11°C**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **61**  
-🎧 Currently Listening: **ONE SHOT FREESTYLE** by *Motive* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You just can't beat the person who never gives up.  — *Babe Ruth*"_
+_"Courage is found in unlikely places. — *J.R.R. Tolkien*"_
 
 ---
