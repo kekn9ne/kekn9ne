@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important single ingredient in the formula of success is knowing how to get along with people. — *Theodore Roosevelt*"_
+_"May you find grace as you surrender to life. May you find happiness, as you stop seeking it. — *Dan Millman*"_
 
 ---
