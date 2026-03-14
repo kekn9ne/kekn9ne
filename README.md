@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
+_"To find yourself, think for yourself. — *Socrates*"_
 
 ---
