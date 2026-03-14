@@ -7,6 +7,6 @@
 
 ---
 
-_"The fear of death is more to be feared, than death itself. — *Publilius Syrus*"_
+_"Never argue with stupid people, they will drag you down to their level and then beat you with experience. — *Mark Twain*"_
 
 ---
