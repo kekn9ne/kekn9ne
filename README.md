@@ -7,6 +7,6 @@
 
 ---
 
-_"You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — *A.A. Milne*"_
+_"The world only exists in your eyes. You can make it as big or as small as you want. — *F. Scott Fitzgerald*"_
 
 ---
