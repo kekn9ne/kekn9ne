@@ -7,6 +7,6 @@
 
 ---
 
-_"Remember, hope is a good thing, maybe the best of things. — *Stephen King*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
