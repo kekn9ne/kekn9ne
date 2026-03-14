@@ -7,6 +7,6 @@
 
 ---
 
-_"Without education, we are in a horrible and deadly danger of taking educated people seriously. — *Gilbert Chesterton*"_
+_"Life is but one dream flowing into another. — *Ming-Dao Deng*"_
 
 ---
