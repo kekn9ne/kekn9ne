@@ -7,6 +7,6 @@
 
 ---
 
-_"To find yourself, think for yourself. — *Socrates*"_
+_"If you chase two rabbits, you catch none. — *Confucius*"_
 
 ---
