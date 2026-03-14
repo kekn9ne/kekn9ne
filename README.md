@@ -7,6 +7,6 @@
 
 ---
 
-_"A different result requires doing something different. — *Gary Keller*"_
+_"Remember, hope is a good thing, maybe the best of things. — *Stephen King*"_
 
 ---
