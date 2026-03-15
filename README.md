@@ -7,6 +7,6 @@
 
 ---
 
-_"Champions keep playing until they get it right. — *Billie Jean King*"_
+_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
 
 ---
