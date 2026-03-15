@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest when you're weary. Refresh and renew yourself, your body, your mind, your spirit. Then get back to work. — *Ralph Marston*"_
+_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
 
 ---
