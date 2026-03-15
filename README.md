@@ -7,6 +7,6 @@
 
 ---
 
-_"In the midst of movement and chaos, keep stillness inside of you. — *Deepak Chopra*"_
+_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
 
 ---
