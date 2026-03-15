@@ -7,6 +7,6 @@
 
 ---
 
-_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
+_"There is no limit to the amount of good you can do if you don't care who gets the credit. — *Ronald Reagan*"_
 
 ---
