@@ -7,6 +7,6 @@
 
 ---
 
-_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
+_"In the midst of movement and chaos, keep stillness inside of you. — *Deepak Chopra*"_
 
 ---
