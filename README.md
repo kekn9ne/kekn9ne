@@ -7,6 +7,6 @@
 
 ---
 
-_"The eye with which I see God is the same eye with which God sees me. — *Meister Eckhart*"_
+_"Never give up work. Work gives you meaning and purpose and life is empty without it. — *Stephen Hawking*"_
 
 ---
