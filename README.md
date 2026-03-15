@@ -7,6 +7,6 @@
 
 ---
 
-_"The quicker you let go of old cheese, the sooner you find new cheese. — *Spencer Johnson*"_
+_"Difficult roads often lead to beautiful destinations. — *Unknown*"_
 
 ---
