@@ -7,6 +7,6 @@
 
 ---
 
-_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
+_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
 
 ---
