@@ -7,6 +7,6 @@
 
 ---
 
-_"Everybody's life is either rewarding or an example. — *Tony Robbins*"_
+_"I don't walk away from things that I think are unfinished. — *Arnold Schwarzenegger*"_
 
 ---
