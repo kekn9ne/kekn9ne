@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"Champions keep playing until they get it right. — *Billie Jean King*"_
 
 ---
