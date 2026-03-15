@@ -7,6 +7,6 @@
 
 ---
 
-_"The secret of life isn't what happens to you, but what you do with what happens to you. — *Norman Vincent Peale*"_
+_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
 
 ---
