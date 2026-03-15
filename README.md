@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no right or wrong, only a series of possibilities that shift with each thought, feeling, and action that you experience. — *Deepak Chopra*"_
+_"Nature loves to hide. — *Heraclitus*"_
 
 ---
