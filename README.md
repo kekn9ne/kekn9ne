@@ -7,6 +7,6 @@
 
 ---
 
-_"The moment you stop to think about whether you love someone, you've already stopped loving that person forever. — *Carlos Ruiz Zafon*"_
+_"The quality of your life is the quality of your relationships. — *Tony Robbins*"_
 
 ---
