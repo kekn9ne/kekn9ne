@@ -7,6 +7,6 @@
 
 ---
 
-_"Every day passes whether you participate or not. — *Ming-Dao Deng*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
