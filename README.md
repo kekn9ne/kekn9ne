@@ -7,6 +7,6 @@
 
 ---
 
-_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
+_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
 
 ---
