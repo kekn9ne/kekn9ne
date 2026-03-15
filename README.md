@@ -7,6 +7,6 @@
 
 ---
 
-_"Death walks faster than the wind and never returns what he has taken. — *Hans Christian Andersen*"_
+_"Anyone who stops learning is old, whether at twenty or eighty. Anyone who keeps learning stays young.  — *Henry Ford*"_
 
 ---
