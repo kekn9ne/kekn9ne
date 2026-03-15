@@ -7,6 +7,6 @@
 
 ---
 
-_"Go as far as you can see and you will see further.   — *Zig Ziglar*"_
+_"Walk slowly but never walk backward. — *Unknown*"_
 
 ---
