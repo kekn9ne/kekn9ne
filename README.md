@@ -7,6 +7,6 @@
 
 ---
 
-_"Everything will be ok in the end. If it's not ok, it's not the end. — *John Lennon*"_
+_"It isn't what you have or who you are or where you are or what you are doing that makes you happy or unhappy. It is what you think about it. — *Dale Carnegie*"_
 
 ---
