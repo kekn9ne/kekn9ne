@@ -7,6 +7,6 @@
 
 ---
 
-_"Circumstances do not make the man, they reveal him. — *James Allen*"_
+_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
 
 ---
