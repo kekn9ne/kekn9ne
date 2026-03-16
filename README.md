@@ -7,6 +7,6 @@
 
 ---
 
-_"When something comes from within, when it is a part of you, you have no choice but to live it, to express it. — *Kamal Ravikant*"_
+_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
 
 ---
