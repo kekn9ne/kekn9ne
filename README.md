@@ -7,6 +7,6 @@
 
 ---
 
-_"Wishing to be friends is quick work, but friendship is a slow ripening fruit. — *Aristotle*"_
+_"One of the advantages of being disorganized is that one is always having surprising discoveries. — *A.A. Milne*"_
 
 ---
