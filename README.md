@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 16 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Italian Mafia ‼️** by *Organize* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Choose to be optimistic, it feels better. — *Dalai Lama*"_
+_"Change begets change. Nothing propagates so fast. — *Charles Dickens*"_
 
 ---
