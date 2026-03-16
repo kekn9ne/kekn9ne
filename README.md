@@ -7,6 +7,6 @@
 
 ---
 
-_"If you truly love Nature, you will find beauty everywhere.  — *Vincent van Gogh*"_
+_"The best way to predict your future is to create it. — *Abraham Lincoln*"_
 
 ---
