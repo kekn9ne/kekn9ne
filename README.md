@@ -7,6 +7,6 @@
 
 ---
 
-_"Many people spend more time looking at their failures than focusing on their successes. — *Lolly Daskal*"_
+_"If you truly love Nature, you will find beauty everywhere.  — *Vincent van Gogh*"_
 
 ---
