@@ -7,6 +7,6 @@
 
 ---
 
-_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
+_"The more you know, the more you know you don't know. — *Aristotle*"_
 
 ---
