@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 16 March 2026**  
-🌤️ Weather in Istanbul: **Unavailable 🌫️**  
+🌤️ Weather in Istanbul: **⛅️  +10°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
+_"Wishing to be friends is quick work, but friendship is a slow ripening fruit. — *Aristotle*"_
 
 ---
