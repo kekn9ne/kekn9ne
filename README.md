@@ -7,6 +7,6 @@
 
 ---
 
-_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
+_"Few things are more deceptive than memories. — *Carlos Ruiz Zafon*"_
 
 ---
