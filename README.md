@@ -7,6 +7,6 @@
 
 ---
 
-_"Keep away from people who try to belittle your ambitions. — *Mark Twain*"_
+_"Dreams have only one owner at a time. That's why dreamers are lonely. — *William Faulkner*"_
 
 ---
