@@ -7,6 +7,6 @@
 
 ---
 
-_"One mistake does not have to rule a person's entire life. — *Joyce Meyer*"_
+_"Your heart is full of fertile seeds, waiting to sprout. — *Morihei Ueshiba*"_
 
 ---
