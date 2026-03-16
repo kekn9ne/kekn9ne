@@ -7,6 +7,6 @@
 
 ---
 
-_"Your heart is full of fertile seeds, waiting to sprout. — *Morihei Ueshiba*"_
+_"It's not what we do once in a while that shapes our lives, but what we do consistently. — *Tony Robbins*"_
 
 ---
