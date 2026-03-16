@@ -7,6 +7,6 @@
 
 ---
 
-_"Everyone can rise above their circumstances and achieve success if they are dedicated to and passionate about what they do. — *Nelson Mandela*"_
+_"Great things happen to those who don't stop believing, trying, learning, and being grateful. — *Roy T. Bennett*"_
 
 ---
