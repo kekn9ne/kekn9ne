@@ -7,6 +7,6 @@
 
 ---
 
-_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
+_"The less you open your heart to others, the more your heart suffers. — *Deepak Chopra*"_
 
 ---
