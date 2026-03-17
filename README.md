@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Tuesday, 17 March 2026**  
+🗓️ Today is: **Wednesday, 18 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
+_"If you don't like something, change it. If you can't change it, change your attitude. — *Maya Angelou*"_
 
 ---
