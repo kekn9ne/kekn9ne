@@ -7,6 +7,6 @@
 
 ---
 
-_"If you don't like something, change it. If you can't change it, change your attitude. — *Maya Angelou*"_
+_"I have never let my schooling interfere with my education. — *Mark Twain*"_
 
 ---
