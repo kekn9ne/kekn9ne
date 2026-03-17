@@ -7,6 +7,6 @@
 
 ---
 
-_"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems. — *Robert Kiyosaki*"_
+_"If you try to get rid of fear and anger without knowing their meaning, they will grow stronger and return. — *Deepak Chopra*"_
 
 ---
