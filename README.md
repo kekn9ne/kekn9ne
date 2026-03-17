@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +12°C**  
+🌤️ Weather in Istanbul: **☀️   +13°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Teker Teker** by *Motive* 🎶
 
 ---
 
-_"Discontent is the first necessity of progress. — *Thomas Edison*"_
+_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
 
 ---
