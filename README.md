@@ -7,6 +7,6 @@
 
 ---
 
-_"The less you open your heart to others, the more your heart suffers. — *Deepak Chopra*"_
+_"Not why the addiction but why the pain. — *Gabor Mate*"_
 
 ---
