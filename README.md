@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 17 March 2026**  
 🌤️ Weather in Istanbul: **☀️   +6°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **YAŞANMADI SAY** by *Chiko* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Life can be the scariest and most beautiful thing simultaneously. — *Maxime Lagace*"_
+_"Never feel shame for trying and failing, for he who has never failed is he who has never tried. — *Og Mandino*"_
 
 ---
