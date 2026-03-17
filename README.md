@@ -7,6 +7,6 @@
 
 ---
 
-_"I have never let my schooling interfere with my education. — *Mark Twain*"_
+_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
 
 ---
