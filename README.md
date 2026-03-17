@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 18 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Paranoya** by *UZI* 🎶
 
 ---
 
-_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
+_"Mind is the creator of everything. You should therefore guide it to create only good. — *Paramahansa Yogananda*"_
 
 ---
