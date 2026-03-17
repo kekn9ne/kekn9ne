@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 March 2026**  
-🌤️ Weather in Istanbul: **☀️   +13°C**  
+🌤️ Weather in Istanbul: **☀️   +12°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Teker Teker** by *Motive* 🎶
+🎧 Currently Listening: **Rodman Dennis** by *UZI* 🎶
 
 ---
 
-_"A dead thing can go with the stream, but only a living thing can go against it. — *Gilbert Chesterton*"_
+_"A man who acquires the ability to take full possession of his own mind may take possession of anything else to which he is justly entitled. — *Andrew Carnegie*"_
 
 ---
