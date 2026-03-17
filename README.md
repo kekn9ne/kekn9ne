@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 17 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +9°C**  
+🌤️ Weather in Istanbul: **⛅️  +8°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Constantly seek criticism. A well thought out critique of whatever you're doing is as valuable as gold. — *Elon Musk*"_
+_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
 
 ---
