@@ -7,6 +7,6 @@
 
 ---
 
-_"The constant assertion of belief is an indication of fear. — *Jiddu Krishnamurti*"_
+_"If you realize that you're the problem, then you can change yourself, learn something and grow wiser. Don't blame other people for your problems. — *Robert Kiyosaki*"_
 
 ---
