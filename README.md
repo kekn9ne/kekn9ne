@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Wednesday, 18 March 2026**  
+🗓️ Today is: **Thursday, 19 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Gibi** by *Keskin* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"You can live a whole life time never being awake. — *Dan Millman*"_
+_"The pen is the tongue of the mind.  — *Miguel de Cervantes*"_
 
 ---
