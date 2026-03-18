@@ -7,6 +7,6 @@
 
 ---
 
-_"If you could kick the person in the pants responsible for most of your trouble, you wouldn't sit for a month. — *Theodore Roosevelt*"_
+_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
 
 ---
