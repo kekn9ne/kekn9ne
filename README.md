@@ -7,6 +7,6 @@
 
 ---
 
-_"It isn't what you do, but how you do it. — *John Wooden*"_
+_"To be prepared is half the victory.  — *Miguel de Cervantes*"_
 
 ---
