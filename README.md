@@ -7,6 +7,6 @@
 
 ---
 
-_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
+_"Words can only have a positive effect on others if and when they are ready to listen. — *Christopher Reeve*"_
 
 ---
