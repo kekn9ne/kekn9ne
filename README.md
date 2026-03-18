@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 18 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Gibi** by *Keskin* 🎶
 
 ---
 
-_"Dark times lie ahead of us and there will be a time when we must choose between what is easy and what is right. — *Albus Dumbledore*"_
+_"You can live a whole life time never being awake. — *Dan Millman*"_
 
 ---
