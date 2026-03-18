@@ -7,6 +7,6 @@
 
 ---
 
-_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
+_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
 
 ---
