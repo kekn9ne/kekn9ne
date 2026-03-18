@@ -7,6 +7,6 @@
 
 ---
 
-_"To be prepared is half the victory.  — *Miguel de Cervantes*"_
+_"Until you change how you get things done, you'll never know what works best. — *Roy T. Bennett*"_
 
 ---
