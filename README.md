@@ -7,6 +7,6 @@
 
 ---
 
-_"Until you change how you get things done, you'll never know what works best. — *Roy T. Bennett*"_
+_"Success does not consist in never making mistakes but in never making the same one a second time. — *George Bernard Shaw*"_
 
 ---
