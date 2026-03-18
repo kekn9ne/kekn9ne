@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 18 March 2026**  
-🌤️ Weather in Istanbul: **//wttr.in/Istanbul?format=3&m": context deadline exceeded (Client.Timeout exceeded while awaiting headers)**  
+🌤️ Weather in Istanbul: **☁️   +9°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Amazing** by *INNA* 🎶
+🎧 Currently Listening: **More Than Friends** by *INNA* 🎶
 
 ---
 
-_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
+_"Never do things others can do and will do if there are things others cannot do or will not do. — *Amelia Earhart*"_
 
 ---
