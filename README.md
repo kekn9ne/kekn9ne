@@ -7,6 +7,6 @@
 
 ---
 
-_"Do you have the patience to wait until your mud settles and the water is clear? — *Lao Tzu*"_
+_"If you don't make things happen then things will happen to you. — *Robert Collier*"_
 
 ---
