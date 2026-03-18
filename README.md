@@ -7,6 +7,6 @@
 
 ---
 
-_"Mistake is a mistake only if you make it twice. — *Robin Sharma*"_
+_"Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.  — *Franz Kafka*"_
 
 ---
