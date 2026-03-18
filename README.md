@@ -7,6 +7,6 @@
 
 ---
 
-_"The only thing we have to fear is fear itself. — *Franklin D. Roosevelt*"_
+_"Admire as much as you can. Most people do not admire enough. — *Vincent van Gogh*"_
 
 ---
