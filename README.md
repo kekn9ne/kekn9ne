@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 18 March 2026**  
-🌤️ Weather in Istanbul: **☁️   +9°C**  
+🌤️ Weather in Istanbul: **//wttr.in/Istanbul?format=3&m": context deadline exceeded (Client.Timeout exceeded while awaiting headers)**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Amazing** by *INNA* 🎶
 
 ---
 
-_"What's right is what's left if you do everything else wrong. — *Robin Williams*"_
+_"Every failure brings with it the seed of an equivalent success. — *Napoleon Hill*"_
 
 ---
