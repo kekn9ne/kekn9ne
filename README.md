@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 19 March 2026**  
 🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Deja Vu** by *INNA* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
+_"We meet ourselves time and again in a thousand disguises on the path of life. — *Carl Jung*"_
 
 ---
