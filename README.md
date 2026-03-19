@@ -7,6 +7,6 @@
 
 ---
 
-_"We become what we believe. — *Lolly Daskal*"_
+_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
 
 ---
