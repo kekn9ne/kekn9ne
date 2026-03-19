@@ -7,6 +7,6 @@
 
 ---
 
-_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
+_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
 
 ---
