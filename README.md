@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 19 March 2026**  
 🌤️ Weather in Istanbul: **🌦   +8°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Amazing** by *INNA* 🎶
+🎧 Currently Listening: **Deja Vu** by *INNA* 🎶
 
 ---
 
-_"Only I can change my life. No one can do it for me. — *Carol Burnett*"_
+_"The meaning of life is to find your gift. The purpose of life is to give it away. — *Pablo Picasso*"_
 
 ---
