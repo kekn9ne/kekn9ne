@@ -7,6 +7,6 @@
 
 ---
 
-_"Education breeds confidence. Confidence breeds hope. Hope breeds peace. — *Confucius*"_
+_"Ask no questions, and you'll be told no lies. — *Charles Dickens*"_
 
 ---
