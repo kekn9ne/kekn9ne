@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't waste time on excuses. Just get it done. — *Ralph Marston*"_
+_"The giving of love is an education in itself. — *Eleanor Roosevelt*"_
 
 ---
