@@ -7,6 +7,6 @@
 
 ---
 
-_"The giving of love is an education in itself. — *Eleanor Roosevelt*"_
+_"Insanity: doing the same thing over and over again and expecting different results. — *Albert Einstein*"_
 
 ---
