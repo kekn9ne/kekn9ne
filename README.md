@@ -7,6 +7,6 @@
 
 ---
 
-_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
+_"We become what we believe. — *Lolly Daskal*"_
 
 ---
