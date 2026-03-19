@@ -7,6 +7,6 @@
 
 ---
 
-_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
+_"Our anxiety does not empty tomorrow of its sorrows, but only empties today of its strengths. — *Charles Spurgeon*"_
 
 ---
