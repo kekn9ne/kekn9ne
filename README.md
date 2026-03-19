@@ -7,6 +7,6 @@
 
 ---
 
-_"Either you run the day or the day runs you. — *Jim Rohn*"_
+_"Resilience is not what happens to you. It's how you react to, respond to, and recover from what happens to you. — *Jeffrey Gitomer*"_
 
 ---
