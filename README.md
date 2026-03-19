@@ -7,6 +7,6 @@
 
 ---
 
-_"The only place success comes before work is in the dictionary. — *Vince Lombardi*"_
+_"True wealth is of the heart, not of the purse. — *Og Mandino*"_
 
 ---
