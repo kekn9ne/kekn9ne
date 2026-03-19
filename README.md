@@ -7,6 +7,6 @@
 
 ---
 
-_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
+_"People are doing the best that they can from their own level of consciousness. — *Deepak Chopra*"_
 
 ---
