@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 19 March 2026**  
 🌤️ Weather in Istanbul: **⛅️  +9°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Amazing** by *INNA* 🎶
 
 ---
 
-_"No man can get rich himself unless he enriches others. — *Earl Nightingale*"_
+_"Although the world is full of suffering, it is also full of the overcoming of it. — *Helen Keller*"_
 
 ---
