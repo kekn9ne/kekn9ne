@@ -7,6 +7,6 @@
 
 ---
 
-_"Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now. — *Spencer Johnson*"_
+_"Take care of your cents: dollars will take care of themselves. — *Thomas Jefferson*"_
 
 ---
