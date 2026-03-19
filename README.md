@@ -7,6 +7,6 @@
 
 ---
 
-_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
+_"Either you run the day or the day runs you. — *Jim Rohn*"_
 
 ---
