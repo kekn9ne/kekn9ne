@@ -7,6 +7,6 @@
 
 ---
 
-_"an action committed in anger is an action doomed to failure.  — *Genghis Khan*"_
+_"Being In The Present Means Tuning Out Distractions And Paying Attention To What Is Important, Now. — *Spencer Johnson*"_
 
 ---
