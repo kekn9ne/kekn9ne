@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 20 March 2026**  
-🌤️ Weather in Istanbul: **🌦   +7°C**  
+🌤️ Weather in Istanbul: **🌦   +6°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Educating the mind without educating the heart is no education at all. — *Aristotle*"_
+_"Everyone is a moon, and has a dark side which he never shows to anybody. — *Mark Twain*"_
 
 ---
