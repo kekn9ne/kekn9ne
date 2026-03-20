@@ -7,6 +7,6 @@
 
 ---
 
-_"You can do nothing to change the past, and the future will never come exactly as you plan or hope for. — *Dan Millman*"_
+_"If you see yourself as prosperous, you will be. — *Robert Collier*"_
 
 ---
