@@ -7,6 +7,6 @@
 
 ---
 
-_"Work as though you would live forever, and live as though you would die today. Go another mile. — *Og Mandino*"_
+_"If you see yourself as prosperous, you will be. — *Robert Collier*"_
 
 ---
