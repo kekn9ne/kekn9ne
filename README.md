@@ -7,6 +7,6 @@
 
 ---
 
-_"Trust is the glue that holds people together and is the lubricant that keeps an organization moving forward. — *Colin Powell*"_
+_"Great minds are always feared by lesser minds. — *Dan Brown*"_
 
 ---
