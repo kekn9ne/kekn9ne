@@ -7,6 +7,6 @@
 
 ---
 
-_"Either write something worth reading or do something worth writing. — *Benjamin Franklin*"_
+_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
 
 ---
