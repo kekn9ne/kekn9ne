@@ -7,6 +7,6 @@
 
 ---
 
-_"Peace is not something you wish for; It's something you make, something you do, something you are, and something you give away. — *John Lennon*"_
+_"Normal is the average of deviance. — *Rita Mae Brown*"_
 
 ---
