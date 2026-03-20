@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 21 March 2026**  
 🌤️ Weather in Istanbul: **🌦   +6°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **KARANLIK** by *Yung Kafa & Kücük Efendi* 🎶
+🎧 Currently Listening: **TANIYORLAR İSMİ** by *Yung Ouzo* 🎶
 
 ---
 
-_"If you want to change how you see your problems, you have to change what you value and/or how you measure failure/success. — *Mark Manson*"_
+_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
 
 ---
