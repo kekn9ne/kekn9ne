@@ -7,6 +7,6 @@
 
 ---
 
-_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
+_"If everyone is moving forward together, then success takes care of itself. — *Henry Ford*"_
 
 ---
