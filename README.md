@@ -7,6 +7,6 @@
 
 ---
 
-_"No matter what happens, always be yourself. — *Dale Carnegie*"_
+_"The most important thing in communication is to hear what isn't being said. — *Peter Drucker*"_
 
 ---
