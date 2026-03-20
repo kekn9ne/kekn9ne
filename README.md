@@ -7,6 +7,6 @@
 
 ---
 
-_"I will not walk backward in life. — *J.R.R. Tolkien*"_
+_"Educating the mind without educating the heart is no education at all. — *Aristotle*"_
 
 ---
