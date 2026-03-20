@@ -7,6 +7,6 @@
 
 ---
 
-_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
+_"Learn to sit back and observe, not everything needs a reaction. — *Unknown*"_
 
 ---
