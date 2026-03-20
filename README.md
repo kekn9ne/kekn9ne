@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 21 March 2026**  
 🌤️ Weather in Istanbul: **🌦   +6°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **TANIYORLAR İSMİ** by *Yung Ouzo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Once you choose hope, anything's possible. — *Christopher Reeve*"_
+_"To bear trials with a calm mind robs misfortune of its strength and burden. — *Seneca*"_
 
 ---
