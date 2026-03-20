@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 21 March 2026**  
-🌤️ Weather in Istanbul: **⛅️  +6°C**  
+🌤️ Weather in Istanbul: **🌦   +7°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Normal is the average of deviance. — *Rita Mae Brown*"_
+_"What people say, what people do, and what they say they do are entirely different things.  — *Margaret Mead*"_
 
 ---
