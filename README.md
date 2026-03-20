@@ -7,6 +7,6 @@
 
 ---
 
-_"You cannot always control what goes on outside. But you can always control what goes on inside.  — *Wayne Dyer*"_
+_"You can do nothing to change the past, and the future will never come exactly as you plan or hope for. — *Dan Millman*"_
 
 ---
