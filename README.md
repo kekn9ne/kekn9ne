@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 20 March 2026**  
-🌤️ Weather in Istanbul: **🌦   +6°C**  
+🌤️ Weather in Istanbul: **🌦   +7°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Everyone is a moon, and has a dark side which he never shows to anybody. — *Mark Twain*"_
+_"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.   — *Ray Bradbury*"_
 
 ---
