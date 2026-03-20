@@ -7,6 +7,6 @@
 
 ---
 
-_"Ability is a poor man's wealth. — *John Wooden*"_
+_"I will not walk backward in life. — *J.R.R. Tolkien*"_
 
 ---
