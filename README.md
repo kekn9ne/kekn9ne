@@ -7,6 +7,6 @@
 
 ---
 
-_"Have the courage to follow your heart and intuition. They somehow know what you truly want to become. — *Steve Jobs*"_
+_"No matter what happens, always be yourself. — *Dale Carnegie*"_
 
 ---
