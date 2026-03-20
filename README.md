@@ -7,6 +7,6 @@
 
 ---
 
-_"Love is the absence of judgment. — *Dalai Lama*"_
+_"It's just a bad day, not a bad life. — *Mary Engelbreit*"_
 
 ---
