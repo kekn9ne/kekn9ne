@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
+_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
 
 ---
