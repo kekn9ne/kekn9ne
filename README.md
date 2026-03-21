@@ -7,6 +7,6 @@
 
 ---
 
-_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
