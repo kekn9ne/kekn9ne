@@ -7,6 +7,6 @@
 
 ---
 
-_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
