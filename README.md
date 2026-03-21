@@ -7,6 +7,6 @@
 
 ---
 
-_"The joy of life comes from our encounters with new experiences. — *Christopher McCandless*"_
+_"I've always tried to go a step past wherever people expected me to end up. — *Beverly Sills*"_
 
 ---
