@@ -7,6 +7,6 @@
 
 ---
 
-_"Heroes don't need to talk about what they did. — *W.P. Kinsella*"_
+_"There is only the one reality, neither to be realized nor attained. — *Huang Po*"_
 
 ---
