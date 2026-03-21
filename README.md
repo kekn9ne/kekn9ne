@@ -7,6 +7,6 @@
 
 ---
 
-_"You don't earn loyalty in a day. You earn loyalty day-by-day. — *Jeffrey Gitomer*"_
+_"Courage is the price that life exacts for granting peace. — *Amelia Earhart*"_
 
 ---
