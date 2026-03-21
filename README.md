@@ -7,6 +7,6 @@
 
 ---
 
-_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
+_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
 
 ---
