@@ -7,6 +7,6 @@
 
 ---
 
-_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
+_"It is truth that liberates, not your effort to be free. — *Jiddu Krishnamurti*"_
 
 ---
