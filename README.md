@@ -7,6 +7,6 @@
 
 ---
 
-_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
+_"A loving heart is the truest wisdom. — *Charles Dickens*"_
 
 ---
