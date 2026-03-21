@@ -7,6 +7,6 @@
 
 ---
 
-_"Life is like riding a bicycle. To keep your balance you must keep moving. — *Albert Einstein*"_
+_"The spirit is beyond destruction. No one can bring an end to spirit which is everlasting. — *Bhagavad Gita*"_
 
 ---
