@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is impossible. The word itself says 'I'm possible!' — *Audrey Hepburn*"_
+_"The river that flows in you also flows in me. — *Kabir*"_
 
 ---
