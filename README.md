@@ -7,6 +7,6 @@
 
 ---
 
-_"A loving heart is the truest wisdom. — *Charles Dickens*"_
+_"Character is destiny. — *Heraclitus*"_
 
 ---
