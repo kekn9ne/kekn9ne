@@ -7,6 +7,6 @@
 
 ---
 
-_"Time stays long enough for anyone who will use it. — *Leonardo da Vinci*"_
+_"Everyone sees what you appear to be, few experience what you really are. — *Niccolo Machiavelli*"_
 
 ---
