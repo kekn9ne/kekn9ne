@@ -7,6 +7,6 @@
 
 ---
 
-_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
+_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
 
 ---
