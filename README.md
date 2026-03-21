@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to make God laugh, tell him about your plans.  — *Woody Allen*"_
+_"You already have every characteristic necessary for success if you recognize, claim, develop and use them. — *Zig Ziglar*"_
 
 ---
