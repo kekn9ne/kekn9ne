@@ -7,6 +7,6 @@
 
 ---
 
-_"There is a big difference between being centered and being self-centered. — *Lolly Daskal*"_
+_"Don't ever be afraid to put yourself in a lesser position so that you can learn something from someone who knows more. — *Steve Harvey*"_
 
 ---
