@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is liking yourself, liking what you do, and liking how you do it. — *Maya Angelou*"_
+_"I live by letting things happen. — *Dogen*"_
 
 ---
