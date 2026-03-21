@@ -7,6 +7,6 @@
 
 ---
 
-_"No one ever is defeated until defeat has been accepted as a reality. — *Napoleon Hill*"_
+_"What do we live for, if it is not to make life less difficult for each other? — *George Eliot*"_
 
 ---
