@@ -7,6 +7,6 @@
 
 ---
 
-_"What you seek is seeking you. — *Rumi*"_
+_"A change is brought about because ordinary people do extraordinary things. — *Barack Obama*"_
 
 ---
