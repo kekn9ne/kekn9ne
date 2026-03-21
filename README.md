@@ -7,6 +7,6 @@
 
 ---
 
-_"Shoot for the moon, because even if you miss, you'll land among the stars. — *Les Brown*"_
+_"You are what you believe yourself to be. — *Paulo Coelho*"_
 
 ---
