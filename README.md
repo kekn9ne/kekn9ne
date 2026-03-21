@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"Intelligent men are cruel. Stupid men are monstrously cruel. — *Jack London*"_
 
 ---
