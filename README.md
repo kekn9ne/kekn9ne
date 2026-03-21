@@ -7,6 +7,6 @@
 
 ---
 
-_"Get busy living, or get busy dying. — *Stephen King*"_
+_"Longevity is a fleeting moment that lasts forever. — *Vidal Sassoon*"_
 
 ---
