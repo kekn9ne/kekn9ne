@@ -7,6 +7,6 @@
 
 ---
 
-_"Blessed is he who expects nothing, for he shall be disappointed. — *Jonathan Swift*"_
+_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
 
 ---
