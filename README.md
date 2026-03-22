@@ -7,6 +7,6 @@
 
 ---
 
-_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
+_"Happiness is only real when shared. — *Christopher McCandless*"_
 
 ---
