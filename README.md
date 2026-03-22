@@ -7,6 +7,6 @@
 
 ---
 
-_"Every poem should remind the reader that they are going to die. — *Edgar Allan Poe*"_
+_"It is easy to discover what another has discovered before. — *Christopher Columbus*"_
 
 ---
