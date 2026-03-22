@@ -7,6 +7,6 @@
 
 ---
 
-_"Be happy now, without reason - or you never will be at all. — *Dan Millman*"_
+_"We are like islands in the sea, separate on the surface but connected in the deep. — *William James*"_
 
 ---
