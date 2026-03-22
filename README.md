@@ -7,6 +7,6 @@
 
 ---
 
-_"A Quitter never wins - and - a Winner never quits. — *Napoleon Hill*"_
+_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
 
 ---
