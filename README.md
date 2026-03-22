@@ -7,6 +7,6 @@
 
 ---
 
-_"Being in a good frame of mind helps keep one in the picture of health. — *Unknown*"_
+_"It is better to fail in originality than to succeed in imitation. — *Herman Melville*"_
 
 ---
