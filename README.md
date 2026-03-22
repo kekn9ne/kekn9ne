@@ -7,6 +7,6 @@
 
 ---
 
-_"Faithless is he that says farewell when the road darkens. — *J.R.R. Tolkien*"_
+_"When you've got nothing, you've got nothing to lose. — *Bob Dylan*"_
 
 ---
