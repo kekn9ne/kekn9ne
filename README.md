@@ -7,6 +7,6 @@
 
 ---
 
-_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
+_"Beauty is not in the face; beauty is a light in the heart. — *Kahlil Gibran*"_
 
 ---
