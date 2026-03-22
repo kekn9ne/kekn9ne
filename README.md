@@ -7,6 +7,6 @@
 
 ---
 
-_"If fear is too strong, the genius is suppressed. — *Robert Kiyosaki*"_
+_"See what you're doing wrong, laugh at it, change and do better. — *Spencer Johnson*"_
 
 ---
