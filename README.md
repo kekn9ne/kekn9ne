@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 22 March 2026**  
-🌤️ Weather in Istanbul: **ð¦   +8Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +9Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Deja Vu** by *INNA* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"I think it's very important to have a feedback loop, where you're constantly thinking about what you've done and how you could be doing it better. — *Elon Musk*"_
+_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
 
 ---
