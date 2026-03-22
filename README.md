@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 22 March 2026**  
 🌤️ Weather in Istanbul: **ð¦   +8Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Hot** by *INNA* 🎶
+🎧 Currently Listening: **Caliente** by *INNA* 🎶
 
 ---
 
-_"We love the things we love for what they are. — *Robert Frost*"_
+_"The most important battle is one to conquer yourself. — *Yanni*"_
 
 ---
