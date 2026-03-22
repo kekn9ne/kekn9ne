@@ -7,6 +7,6 @@
 
 ---
 
-_"We are like islands in the sea, separate on the surface but connected in the deep. — *William James*"_
+_"Listening well is as powerful as talking well, and is also as essential to true conversation. — *Chinese Proverb*"_
 
 ---
