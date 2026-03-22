@@ -7,6 +7,6 @@
 
 ---
 
-_"Never whine, never complain, never try to justify yourself. — *Robert Greene*"_
+_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
 
 ---
