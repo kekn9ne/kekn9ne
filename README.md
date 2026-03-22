@@ -7,6 +7,6 @@
 
 ---
 
-_"Happiness is a choice and a skill and you can dedicate yourself to learning that skill and making that choice. — *Naval Ravikant*"_
+_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
 
 ---
