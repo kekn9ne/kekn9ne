@@ -7,6 +7,6 @@
 
 ---
 
-_"Never let your memories be greater than your dreams. — *Doug Ivester*"_
+_"Rest and be kind, you don't have to prove anything. — *Jack Kerouac*"_
 
 ---
