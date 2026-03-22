@@ -7,6 +7,6 @@
 
 ---
 
-_"What a book a devil's chaplain might write on the clumsy, wasteful, blundering, low, and horribly cruel work of nature! — *Charles Darwin*"_
+_"To injure an opponent is to injure yourself. To control aggression without inflicting injury is the Art of Peace. — *Morihei Ueshiba*"_
 
 ---
