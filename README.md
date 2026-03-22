@@ -7,6 +7,6 @@
 
 ---
 
-_"Get busy living, or get busy dying. — *Stephen King*"_
+_"The real meditation is how you live your life. — *Jon Kabat-Zinn*"_
 
 ---
