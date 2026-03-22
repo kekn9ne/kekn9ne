@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 22 March 2026**  
-🌤️ Weather in Istanbul: **ð«  +9Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +8Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hot** by *INNA* 🎶
 
 ---
 
-_"If you're waiting until you feel talented enough to make it, you'll never make it. — *Criss Jami*"_
+_"We love the things we love for what they are. — *Robert Frost*"_
 
 ---
