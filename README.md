@@ -7,6 +7,6 @@
 
 ---
 
-_"All we have to decide is what to do with the time that is given to us. — *J.R.R. Tolkien*"_
+_"A Quitter never wins - and - a Winner never quits. — *Napoleon Hill*"_
 
 ---
