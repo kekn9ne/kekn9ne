@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 23 March 2026**  
 🌤️ Weather in Istanbul: **â  +8Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Amazing** by *INNA* 🎶
 
 ---
 
-_"The more you feed your mind with positive thoughts, the more you can attract great things into your life. — *Roy T. Bennett*"_
+_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
 
 ---
