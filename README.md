@@ -7,6 +7,6 @@
 
 ---
 
-_"The river that flows in you also flows in me. — *Kabir*"_
+_"Knowing others is wisdom, knowing yourself is enlightenment. — *Lao Tzu*"_
 
 ---
