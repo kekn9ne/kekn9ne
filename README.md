@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 22 March 2026**  
-🌤️ Weather in Istanbul: **🌦   +9°C**  
+🌤️ Weather in Istanbul: **ð¦   +9Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Our greatest glory is not in never falling, but in rising every time we fall.  — *Confucius*"_
+_"When uncomfortable, my instinct is not to avoid the discomfort but to become at peace with it. — *Josh Waitzkin*"_
 
 ---
