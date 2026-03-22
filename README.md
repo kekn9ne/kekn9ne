@@ -7,6 +7,6 @@
 
 ---
 
-_"There is nothing more truly artistic than to love people. — *Vincent van Gogh*"_
+_"Facts are the enemy of truth.  — *Miguel de Cervantes*"_
 
 ---
