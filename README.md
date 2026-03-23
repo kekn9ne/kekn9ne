@@ -7,6 +7,6 @@
 
 ---
 
-_"The soul is neither born, and nor does it die. — *Bhagavad Gita*"_
+_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
 
 ---
