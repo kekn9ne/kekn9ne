@@ -7,6 +7,6 @@
 
 ---
 
-_"Life has the name of life, but in reality it is death. — *Heraclitus*"_
+_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
 
 ---
