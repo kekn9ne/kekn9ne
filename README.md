@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't ever save anything for a special occasion. Being alive is the special occasion. — *Mary Engelbreit*"_
+_"The things I carry are my thoughts. That's it. They are the only weight. My thoughts determine whether I am free and light or burdened. — *Kamal Ravikant*"_
 
 ---
