@@ -7,6 +7,6 @@
 
 ---
 
-_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
+_"Character is the result of two things: mental attitude and the way we spend our time. — *Elbert Hubbard*"_
 
 ---
