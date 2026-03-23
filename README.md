@@ -7,6 +7,6 @@
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"Luck is a matter of preparation meeting opportunity. — *Oprah Winfrey*"_
 
 ---
