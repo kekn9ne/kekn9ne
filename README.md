@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no shortcuts to any place worth going.  — *Beverly Sills*"_
+_"The more you are grateful for what you have the more you will have to be grateful for.   — *Zig Ziglar*"_
 
 ---
