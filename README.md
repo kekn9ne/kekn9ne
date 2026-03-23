@@ -7,6 +7,6 @@
 
 ---
 
-_"Sad thing is, you can still love someone and be wrong for them. — *Elvis Presley*"_
+_"All life is a manifestation of the spirit, the manifestation of love. — *Morihei Ueshiba*"_
 
 ---
