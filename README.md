@@ -7,6 +7,6 @@
 
 ---
 
-_"Perplexity is the beginning of knowledge. — *Kahlil Gibran*"_
+_"Life has the name of life, but in reality it is death. — *Heraclitus*"_
 
 ---
