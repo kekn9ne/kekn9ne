@@ -7,6 +7,6 @@
 
 ---
 
-_"None are more hopelessly enslaved than those who falsely believe they are free. — *Johann Wolfgang von Goethe*"_
+_"Don't criticize what you can't understand.  — *Bob Dylan*"_
 
 ---
