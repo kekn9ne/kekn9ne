@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no limit to the amount of good you can do if you don't care who gets the credit. — *Ronald Reagan*"_
+_"There are no shortcuts to any place worth going.  — *Beverly Sills*"_
 
 ---
