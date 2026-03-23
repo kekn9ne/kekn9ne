@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 23 March 2026**  
 🌤️ Weather in Istanbul: **â  +8Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Amazing** by *INNA* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"A person hears only what they understand. — *Johann Wolfgang von Goethe*"_
+_"Don't ever save anything for a special occasion. Being alive is the special occasion. — *Mary Engelbreit*"_
 
 ---
