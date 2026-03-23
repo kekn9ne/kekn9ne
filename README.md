@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't criticize what you can't understand.  — *Bob Dylan*"_
+_"Perplexity is the beginning of knowledge. — *Kahlil Gibran*"_
 
 ---
