@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
+_"Death is as sure for that which is born, as birth is for that which is dead. Therefore grieve not for what is inevitable. — *Bhagavad Gita*"_
 
 ---
