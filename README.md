@@ -7,6 +7,6 @@
 
 ---
 
-_"To seek greatness is the only righteous vengeance. — *Criss Jami*"_
+_"The man who asks a question is a fool for a minute, the man who does not ask is a fool for life. — *Confucius*"_
 
 ---
