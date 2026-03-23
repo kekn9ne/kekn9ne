@@ -7,6 +7,6 @@
 
 ---
 
-_"The more you are grateful for what you have the more you will have to be grateful for.   — *Zig Ziglar*"_
+_"The longer we dwell on our misfortunes, the greater is their power to harm us. — *Voltaire*"_
 
 ---
