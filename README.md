@@ -7,6 +7,6 @@
 
 ---
 
-_"We are what we repeatedly do. Excellence, then, is not an act, but a habit. — *Aristotle*"_
+_"Knowledge is a treasure, but practice is the key to it. — *Lao Tzu*"_
 
 ---
