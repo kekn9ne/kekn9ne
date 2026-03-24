@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
-🗓️ Today is: **Tuesday, 24 March 2026**  
+🗓️ Today is: **Wednesday, 25 March 2026**  
 🌤️ Weather in Istanbul: **â  +9Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Küçük Bir Yol - Red Bull Track Takeover** by *Hadise* 🎶
 
 ---
 
-_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
+_"If you tell the truth, you don't have to remember anything. — *Mark Twain*"_
 
 ---
