@@ -3,10 +3,10 @@
 🗓️ Today is: **Tuesday, 24 March 2026**  
 🌤️ Weather in Istanbul: **â  +9Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **A La Carte** by *Kleo* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Help others achieve their dreams and you will achieve yours. — *Les Brown*"_
+_"Do the difficult things while they are easy and do the great things while they are small. — *Lao Tzu*"_
 
 ---
