@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is more creative...nor destructive...than a brilliant mind with a purpose. — *Dan Brown*"_
+_"Never was anything great achieved without danger. — *Niccolo Machiavelli*"_
 
 ---
