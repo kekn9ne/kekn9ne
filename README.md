@@ -7,6 +7,6 @@
 
 ---
 
-_"The best answer to anger is silence. — *Marcus Aurelius*"_
+_"Whatever satisfies the soul is truth. — *Walt Whitman*"_
 
 ---
