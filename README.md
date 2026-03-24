@@ -7,6 +7,6 @@
 
 ---
 
-_"If we learn to open our hearts, anyone, including the people who drive us crazy, can be our teacher. — *Pema Chodron*"_
+_"For the things we have to learn before we can do them, we learn by doing them. — *Aristotle*"_
 
 ---
