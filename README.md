@@ -3,10 +3,10 @@
 🗓️ Today is: **Wednesday, 25 March 2026**  
 🌤️ Weather in Istanbul: **â  +9Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Cennet** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Pleasure in the job puts perfection in the work. — *Aristotle*"_
+_"When one door closes another door opens.  — *Alexander Graham Bell*"_
 
 ---
