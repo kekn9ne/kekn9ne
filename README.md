@@ -7,6 +7,6 @@
 
 ---
 
-_"Empty yourself of everything - let the mind become still. — *Lao Tzu*"_
+_"Abundance of knowledge does not teach men to be wise. — *Heraclitus*"_
 
 ---
