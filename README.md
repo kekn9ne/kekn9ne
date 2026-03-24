@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 24 March 2026**  
-🌤️ Weather in Istanbul: **â  +10Â°C**  
+🌤️ Weather in Istanbul: **â  +9Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be yourself; everyone else is already taken  — *Oscar Wilde*"_
+_"Life is much like going to the gym. The most painful part is deciding to go. Once you get past that, it's easy. — *Robert Kiyosaki*"_
 
 ---
