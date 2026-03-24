@@ -7,6 +7,6 @@
 
 ---
 
-_"Nature is pleased with simplicity. And nature is no dummy. — *Isaac Newton*"_
+_"Today will never happen again. Don't waste it with a false start or no start at all. — *Og Mandino*"_
 
 ---
