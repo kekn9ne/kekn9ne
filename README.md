@@ -7,6 +7,6 @@
 
 ---
 
-_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
+_"Talk does not cook rice. — *Chinese Proverb*"_
 
 ---
