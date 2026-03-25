@@ -7,6 +7,6 @@
 
 ---
 
-_"When reading, only read. When eating, only eat. When thinking, only think. — *Seungsahn*"_
+_"People seldom do what they believe in. They do what is convenient, then repent. — *Bob Dylan*"_
 
 ---
