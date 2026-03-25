@@ -7,6 +7,6 @@
 
 ---
 
-_"A successful man is one who can lay a firm foundation with the bricks others have thrown at him.   — *David Brinkley*"_
+_"The best way to predict the future is to create it. — *Abraham Lincoln*"_
 
 ---
