@@ -7,6 +7,6 @@
 
 ---
 
-_"Talk does not cook rice. — *Chinese Proverb*"_
+_"Associate with people who are likely to improve you.   — *Seneca*"_
 
 ---
