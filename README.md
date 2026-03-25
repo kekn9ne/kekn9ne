@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Wednesday, 25 March 2026**  
-🌤️ Weather in Istanbul: **â  +13Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +14Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Ou** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
+_"Common sense is not so common.  — *Voltaire*"_
 
 ---
