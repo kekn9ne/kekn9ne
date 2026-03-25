@@ -7,6 +7,6 @@
 
 ---
 
-_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
+_"Any fool can paint a picture, but it takes a wise man to be able to sell it. — *Samuel Butler*"_
 
 ---
