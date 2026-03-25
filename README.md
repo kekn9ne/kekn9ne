@@ -7,6 +7,6 @@
 
 ---
 
-_"Associate with people who are likely to improve you.   — *Seneca*"_
+_"I will not walk backward in life. — *J.R.R. Tolkien*"_
 
 ---
