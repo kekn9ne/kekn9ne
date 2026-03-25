@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not fear failure but rather fear not trying. — *Roy T. Bennett*"_
+_"If you don't read the newspaper, you're uninformed. If you read the newspaper, you're misinformed. — *Mark Twain*"_
 
 ---
