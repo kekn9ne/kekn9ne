@@ -7,6 +7,6 @@
 
 ---
 
-_"Your next step is simple. You are the first domino. — *Gary Keller*"_
+_"All our knowledge has its origins in our perceptions. — *Leonardo da Vinci*"_
 
 ---
