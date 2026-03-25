@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not the result of making money; making money is the result of success - and success is in direct proportion to our service. — *Earl Nightingale*"_
+_"Open your eyes and look within. Are you satisfied with the life you're living? — *Bob Marley*"_
 
 ---
