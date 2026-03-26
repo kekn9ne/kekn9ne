@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 27 March 2026**  
-🌤️ Weather in Istanbul: **âï¸   +9Â°C**  
+🌤️ Weather in Istanbul: **âï¸   +10Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
+_"Having an open mind is one of the most important qualities we can possess. Once our minds close, we stop evolving. — *Yanni*"_
 
 ---
