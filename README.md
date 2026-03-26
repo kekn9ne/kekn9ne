@@ -7,6 +7,6 @@
 
 ---
 
-_"I like the dreams of the future better than the history of the past. — *Thomas Jefferson*"_
+_"The secret of success lies not in doing your own work, but in recognizing the right man to do it. — *Andrew Carnegie*"_
 
 ---
