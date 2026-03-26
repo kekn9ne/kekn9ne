@@ -7,6 +7,6 @@
 
 ---
 
-_"Live calmly. The time will come when the flowers bloom by themselves. — *Zen Proverb*"_
+_"The moment you doubt whether you can fly, you cease for ever to be able to do it. — *James Matthew Barrie*"_
 
 ---
