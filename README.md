@@ -7,6 +7,6 @@
 
 ---
 
-_"Either write something worth reading or do something worth writing. — *Benjamin Franklin*"_
+_"Do all things with love. — *Og Mandino*"_
 
 ---
