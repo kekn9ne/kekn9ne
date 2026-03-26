@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 26 March 2026**  
-🌤️ Weather in Istanbul: **âï¸   +10Â°C**  
+🌤️ Weather in Istanbul: **âï¸   +9Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Have a vision. Be demanding. — *Colin Powell*"_
+_"A fear-oriented man is always calculating, planning, arranging, safeguarding. His whole life is lost in this way. — *Osho*"_
 
 ---
