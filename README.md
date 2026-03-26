@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 26 March 2026**  
 🌤️ Weather in Istanbul: **â  +7Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **RESTORAN** by *Motive* 🎶
 
 ---
 
-_"To plant a garden is to believe in tomorrow.   — *Audrey Hepburn*"_
+_"The first thing you learn in life is you're a fool. The last thing you learn in life is you're the same fool.   — *Ray Bradbury*"_
 
 ---
