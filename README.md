@@ -7,6 +7,6 @@
 
 ---
 
-_"Forget mistakes. Forget failure. Forget everything except what you are going to do now and do it. Today is your lucky day! — *Og Mandino*"_
+_"Life is not a problem to be solved, but a reality to be experienced. — *Soren Kierkegaard*"_
 
 ---
