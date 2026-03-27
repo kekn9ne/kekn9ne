@@ -7,6 +7,6 @@
 
 ---
 
-_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
+_"The man who removes a mountain begins by carrying away small stones. — *William Faulkner*"_
 
 ---
