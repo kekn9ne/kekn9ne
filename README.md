@@ -7,6 +7,6 @@
 
 ---
 
-_"You must be willing to do what others won't do, to have what others won't have. — *Les Brown*"_
+_"Everything has its beauty, but not everyone sees it.  — *Confucius*"_
 
 ---
