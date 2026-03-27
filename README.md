@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is a consequence and must not be a goal. — *Gustave Flaubert*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
