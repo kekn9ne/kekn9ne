@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 27 March 2026**  
-🌤️ Weather in Istanbul: **ð¦   +18Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +17Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you try to micromanage yourself all you're going to do is make yourself miserable. — *Naval Ravikant*"_
+_"Your business is not to 'get somewhere' - it is to be here. — *Dan Millman*"_
 
 ---
