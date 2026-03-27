@@ -7,6 +7,6 @@
 
 ---
 
-_"Reality is nothing but a collective hunch. — *Lily Tomlin*"_
+_"Never take your position for granted and never let any favors you receive go to your head. — *Robert Greene*"_
 
 ---
