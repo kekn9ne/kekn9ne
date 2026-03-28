@@ -7,6 +7,6 @@
 
 ---
 
-_"It's easy to be a critic, but being a doer requires effort, risk, and change.   — *Wayne Dyer*"_
+_"Time is a game played beautifully by children. — *Heraclitus*"_
 
 ---
