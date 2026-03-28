@@ -7,6 +7,6 @@
 
 ---
 
-_"You are never too old to become younger. — *Mae West*"_
+_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
 
 ---
