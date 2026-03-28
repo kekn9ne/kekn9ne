@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm an optimist by choice not by stupidity. — *Yanni*"_
+_"The best answer to anger is silence. — *Marcus Aurelius*"_
 
 ---
