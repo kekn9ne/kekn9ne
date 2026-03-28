@@ -7,6 +7,6 @@
 
 ---
 
-_"20 percent of your activities will account for 80 percent of your results. — *Brian Tracy*"_
+_"Good judgment comes from experience, and experience comes from bad judgment. — *Rita Mae Brown*"_
 
 ---
