@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer more often in imagination than in reality.   — *Seneca*"_
+_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
 
 ---
