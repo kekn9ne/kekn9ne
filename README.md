@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 28 March 2026**  
-🌤️ Weather in Istanbul: **ð§  +10Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +10Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Only one thing is ever guaranteed, that is that you will definitely not achieve the goal if you don't take the shot. — *Wayne Gretzky*"_
+_"You can't stay in your corner of the Forest waiting for others to come to you. You have to go to them sometimes. — *A.A. Milne*"_
 
 ---
