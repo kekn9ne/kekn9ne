@@ -7,6 +7,6 @@
 
 ---
 
-_"Rest in reason; move in passion. — *Kahlil Gibran*"_
+_"Your life does not get better by chance, it gets better by change. — *Jim Rohn*"_
 
 ---
