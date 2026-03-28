@@ -7,6 +7,6 @@
 
 ---
 
-_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
+_"You are never too old to become younger. — *Mae West*"_
 
 ---
