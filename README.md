@@ -7,6 +7,6 @@
 
 ---
 
-_"The man who moved the mountain was the one who began carrying away the smallest stones. — *Zen Proverb*"_
+_"I'm an optimist by choice not by stupidity. — *Yanni*"_
 
 ---
