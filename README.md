@@ -7,6 +7,6 @@
 
 ---
 
-_"Greatness lies not in being strong, but in the right use of strength. — *Henry Ward Beecher*"_
+_"You purchase pain with all that joy can give and die of nothing but a rage to live. — *Alexander Pope*"_
 
 ---
