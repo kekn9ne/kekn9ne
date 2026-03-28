@@ -7,6 +7,6 @@
 
 ---
 
-_"The future doesn't belong to the faint-hearted; it belongs to the brave. — *Ronald Reagan*"_
+_"A life without a cause is a life without effect. — *Paulo Coelho*"_
 
 ---
