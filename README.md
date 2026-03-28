@@ -7,6 +7,6 @@
 
 ---
 
-_"There is no truth. There is only perception. — *Gustave Flaubert*"_
+_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
 
 ---
