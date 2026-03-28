@@ -7,6 +7,6 @@
 
 ---
 
-_"Instead of being intimidated by the limitations, be inspired to find new ways around them. — *Ralph Marston*"_
+_"If you don't find the time, if you don't do the work, you don't get the results. — *Arnold Schwarzenegger*"_
 
 ---
