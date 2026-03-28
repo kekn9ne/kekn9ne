@@ -7,6 +7,6 @@
 
 ---
 
-_"A life without a cause is a life without effect. — *Paulo Coelho*"_
+_"Greatness lies not in being strong, but in the right use of strength. — *Henry Ward Beecher*"_
 
 ---
