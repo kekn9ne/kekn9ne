@@ -7,6 +7,6 @@
 
 ---
 
-_"Never fear quarrels, but seek hazardous adventures. — *Alexandre Dumas*"_
+_"If you do not conquer self, you will be conquered by self. — *Napoleon Hill*"_
 
 ---
