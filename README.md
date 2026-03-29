@@ -7,6 +7,6 @@
 
 ---
 
-_"One loyal friend is worth ten thousand relatives. — *Euripides*"_
+_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
 
 ---
