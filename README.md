@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
+_"While some of us act without thinking, too many of us think without acting. — *Dan Millman*"_
 
 ---
