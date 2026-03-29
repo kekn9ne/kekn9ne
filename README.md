@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't worry about being successful, but work toward being significant and the success will naturally follow. — *Oprah Winfrey*"_
+_"If you focus on results and finding shortcuts, you'll get impatient. If you focus on the process and doing the right thing, you'll be unstoppable. — *Maxime Lagace*"_
 
 ---
