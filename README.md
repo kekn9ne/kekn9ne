@@ -7,6 +7,6 @@
 
 ---
 
-_"The most virtuous are those who content themselves with being virtuous without seeking to appear so. — *Plato*"_
+_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
 
 ---
