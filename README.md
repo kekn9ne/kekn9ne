@@ -7,6 +7,6 @@
 
 ---
 
-_"It is useless to meet revenge with revenge; it will heal nothing. — *J.R.R. Tolkien*"_
+_"In a world of change, the learners shall inherit the earth, while the learned shall find themselves perfectly suited for a world that no longer exists. — *Eric Hoffer*"_
 
 ---
