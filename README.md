@@ -7,6 +7,6 @@
 
 ---
 
-_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
+_"Just because something isn't a lie does not mean that it isn't deceptive. — *Criss Jami*"_
 
 ---
