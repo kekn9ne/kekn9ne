@@ -7,6 +7,6 @@
 
 ---
 
-_"Youth is happy because it has the ability to see beauty. Anyone who keeps the ability to see beauty never grows old.  — *Franz Kafka*"_
+_"Thinking will not overcome fear but action will.  — *W. Clement Stone*"_
 
 ---
