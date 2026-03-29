@@ -7,6 +7,6 @@
 
 ---
 
-_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
+_"The most virtuous are those who content themselves with being virtuous without seeking to appear so. — *Plato*"_
 
 ---
