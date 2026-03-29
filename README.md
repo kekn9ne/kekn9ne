@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 March 2026**  
 🌤️ Weather in Istanbul: **ð¦   +9Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Hipomani** by *Ceg* 🎶
 
 ---
 
-_"While some of us act without thinking, too many of us think without acting. — *Dan Millman*"_
+_"The consequences of today are determined by the actions of the past. To change your future, alter your decisions today. — *Unknown*"_
 
 ---
