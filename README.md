@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
+_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
 
 ---
