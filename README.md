@@ -7,6 +7,6 @@
 
 ---
 
-_"Death is not an ending. It is a transformation. — *Ming-Dao Deng*"_
+_"It still holds true that man is most uniquely human when he turns obstacles into opportunities. — *Eric Hoffer*"_
 
 ---
