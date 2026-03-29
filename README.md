@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 29 March 2026**  
-🌤️ Weather in Istanbul: **ð¦   +9Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +10Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Just because something isn't a lie does not mean that it isn't deceptive. — *Criss Jami*"_
+_"If you want something new, you have to stop doing something old. — *Peter Drucker*"_
 
 ---
