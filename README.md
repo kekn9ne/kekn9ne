@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 29 March 2026**  
 🌤️ Weather in Istanbul: **ð¦   +10Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Benlemisin 2.0** by *M4RLON INC.* 🎶
 
 ---
 
-_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
+_"Elegance does not consist in putting on a new dress. — *Coco Chanel*"_
 
 ---
