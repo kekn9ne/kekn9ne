@@ -7,6 +7,6 @@
 
 ---
 
-_"Thinking is difficult, that's why most people judge. — *Carl Jung*"_
+_"Words are the clothes thoughts wear. — *Samuel Beckett*"_
 
 ---
