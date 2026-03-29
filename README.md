@@ -7,6 +7,6 @@
 
 ---
 
-_"Give out what you most want to come back. — *Robin Sharma*"_
+_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
 
 ---
