@@ -7,6 +7,6 @@
 
 ---
 
-_"Every experience is a lesson. Every loss is a gain. — *Sathya Sai Baba*"_
+_"Nothing is hopeless; we must hope for everything. — *Euripides*"_
 
 ---
