@@ -7,6 +7,6 @@
 
 ---
 
-_"A pessimist is one who makes difficulties of his opportunities and an optimist is one who makes opportunities of his difficulties. — *Harry S. Truman*"_
+_"Don't worry about being successful, but work toward being significant and the success will naturally follow. — *Oprah Winfrey*"_
 
 ---
