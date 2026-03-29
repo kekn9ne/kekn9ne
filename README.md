@@ -7,6 +7,6 @@
 
 ---
 
-_"Imagination is the beginning of creation. — *George Bernard Shaw*"_
+_"Give out what you most want to come back. — *Robin Sharma*"_
 
 ---
