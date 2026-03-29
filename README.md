@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 March 2026**  
 🌤️ Weather in Istanbul: **ð¦   +9Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Sevilmeyen Adam** by *Ceg06* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Nothing brings down walls as surely as acceptance. — *Deepak Chopra*"_
+_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
 
 ---
