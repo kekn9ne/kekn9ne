@@ -7,6 +7,6 @@
 
 ---
 
-_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
+_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
 
 ---
