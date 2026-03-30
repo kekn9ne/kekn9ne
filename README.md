@@ -7,6 +7,6 @@
 
 ---
 
-_"Many of life's failures are people who did not realize how close they were to success when they gave up. — *Thomas Edison*"_
+_"Never whine, never complain, never try to justify yourself. — *Robert Greene*"_
 
 ---
