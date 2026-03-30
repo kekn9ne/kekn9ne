@@ -7,6 +7,6 @@
 
 ---
 
-_"In order to control myself I must first accept myself by going with and not against my nature. — *Bruce Lee*"_
+_"I have lost friends, some by death...others by sheer inability to cross the street. — *Virginia Woolf*"_
 
 ---
