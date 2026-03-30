@@ -7,6 +7,6 @@
 
 ---
 
-_"Never waste a minute of your precious life thinking about people you don't like. — *Celestine Chua*"_
+_"Tradition is the illusion of permanence.  — *Woody Allen*"_
 
 ---
