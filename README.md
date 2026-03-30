@@ -7,6 +7,6 @@
 
 ---
 
-_"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine. — *Brian Tracy*"_
+_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
 
 ---
