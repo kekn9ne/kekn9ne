@@ -3,10 +3,10 @@
 🗓️ Today is: **Monday, 30 March 2026**  
 🌤️ Weather in Istanbul: **ð¦   +10Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Beleza** by *Adrian Eden* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Simple words, repeated daily, can change your life. — *Maxime Lagace*"_
+_"When everything seems to be going against you, remember that the airplane takes off against the wind, not with it.  — *Henry Ford*"_
 
 ---
