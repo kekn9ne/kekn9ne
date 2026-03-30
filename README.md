@@ -7,6 +7,6 @@
 
 ---
 
-_"People spend too much time doing and not enough time thinking about what they should be doing. — *Naval Ravikant*"_
+_"The important thing is not what one is born with but what use one makes of that equipment. — *Alfred Adler*"_
 
 ---
