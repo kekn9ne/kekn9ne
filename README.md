@@ -7,6 +7,6 @@
 
 ---
 
-_"He who wishes to be obeyed must know how to command. — *Niccolo Machiavelli*"_
+_"Patience is not the ability to wait but the ability to keep a good attitude while waiting. — *Joyce Meyer*"_
 
 ---
