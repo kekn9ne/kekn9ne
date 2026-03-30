@@ -7,6 +7,6 @@
 
 ---
 
-_"Always do what is right. It will gratify half of mankind and astound the other. — *Mark Twain*"_
+_"To belittle, you have to be little. — *Kahlil Gibran*"_
 
 ---
