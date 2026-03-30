@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Monday, 30 March 2026**  
-🌤️ Weather in Istanbul: **ð¦   +9Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +10Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: **Made It On Our Own** by *Yeat* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
+_"There are no secrets to success. It is the result of preparation, hard work, learning from failure. — *Colin Powell*"_
 
 ---
