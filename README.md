@@ -7,6 +7,6 @@
 
 ---
 
-_"The fastest way to change is to laugh at your own folly. — *Spencer Johnson*"_
+_"People with clear, written goals, accomplish far more in a shorter period of time than people without them could ever imagine. — *Brian Tracy*"_
 
 ---
