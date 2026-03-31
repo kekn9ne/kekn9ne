@@ -7,6 +7,6 @@
 
 ---
 
-_"Heaven is right where you are standing. — *Morihei Ueshiba*"_
+_"Everyone is a moon, and has a dark side which he never shows to anybody. — *Mark Twain*"_
 
 ---
