@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 31 March 2026**  
-🌤️ Weather in Istanbul: **â  +13Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +12Â°C**  
 📊 GitHub Contributions: **64**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Little Kidda** by *EsDeeKid* 🎶
 
 ---
 
-_"Don't look for meaning in the words. Listen to the silences. — *Samuel Beckett*"_
+_"It is well known that those who do not trust themselves never trust others. — *Alfred Adler*"_
 
 ---
