@@ -7,6 +7,6 @@
 
 ---
 
-_"When your intuition is strong, follow it. — *Lolly Daskal*"_
+_"The person who is his own master cannot tolerate another boss.  — *Chinese Proverb*"_
 
 ---
