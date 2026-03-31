@@ -7,6 +7,6 @@
 
 ---
 
-_"If you think adventure is dangerous, try routine; it is lethal. — *Paulo Coelho*"_
+_"The important thing is not to stop questioning. Curiosity has its own reason for existing. — *Albert Einstein*"_
 
 ---
