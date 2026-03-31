@@ -7,6 +7,6 @@
 
 ---
 
-_"Do not look for approval except for the consciousness of doing your best. — *Andrew Carnegie*"_
+_"The cost of leadership is self-interest. — *Simon Sinek*"_
 
 ---
