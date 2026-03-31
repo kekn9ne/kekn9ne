@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Tuesday, 31 March 2026**  
-🌤️ Weather in Istanbul: **â  +15Â°C**  
+🌤️ Weather in Istanbul: **â  +17Â°C**  
 📊 GitHub Contributions: **64**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The person who is his own master cannot tolerate another boss.  — *Chinese Proverb*"_
+_"Why change? Everyone has his own style. When you have found it, you should stick to it. — *Audrey Hepburn*"_
 
 ---
