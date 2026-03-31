@@ -7,6 +7,6 @@
 
 ---
 
-_"Some of your greatest lessons come from your darkest moments. — *Roger Lee*"_
+_"Life needs to be more than just solving problems every day. You need to wake up and be excited about the future. — *Elon Musk*"_
 
 ---
