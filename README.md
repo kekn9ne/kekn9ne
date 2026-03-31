@@ -7,6 +7,6 @@
 
 ---
 
-_"No duty is more urgent than that of returning thanks. — *James Allen*"_
+_"If you think adventure is dangerous, try routine; it is lethal. — *Paulo Coelho*"_
 
 ---
