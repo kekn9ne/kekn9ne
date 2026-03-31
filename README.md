@@ -7,6 +7,6 @@
 
 ---
 
-_"Superstars think like superstars long before the fans or the press anoint them. — *John Eliot*"_
+_"No duty is more urgent than that of returning thanks. — *James Allen*"_
 
 ---
