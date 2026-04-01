@@ -7,6 +7,6 @@
 
 ---
 
-_"We suffer for the simple reason that suffering is biologically useful. It is nature's preferred agent for inspiring change. — *Mark Manson*"_
+_"The wisest men follow their own direction. — *Euripides*"_
 
 ---
