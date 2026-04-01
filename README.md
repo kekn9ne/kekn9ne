@@ -7,6 +7,6 @@
 
 ---
 
-_"To think is easy. To act is hard. But the hardest thing in the world is to act in accordance with your thinking. — *Johann Wolfgang von Goethe*"_
+_"If life is a video game, the graphics are great, but the plot is confusing and the tutorial is way too long. — *Elon Musk*"_
 
 ---
