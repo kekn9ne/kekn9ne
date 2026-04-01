@@ -7,6 +7,6 @@
 
 ---
 
-_"It is in changing that we find purpose. — *Heraclitus*"_
+_"Never trust he who trusts everyone. — *Carlos Ruiz Zafon*"_
 
 ---
