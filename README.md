@@ -7,6 +7,6 @@
 
 ---
 
-_"When you consider things like the stars, our affairs don't seem to matter very much, do they? — *Virginia Woolf*"_
+_"Lost Time is never found again. — *Benjamin Franklin*"_
 
 ---
