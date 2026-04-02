@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 April 2026**  
 🌤️ Weather in Istanbul: **â  +11Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Polémique** by *Freeze corleone* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"If you cannot understand something, then you have understood it incorrectly. — *Kabir*"_
+_"If you quit once it becomes a habit. — *Michael Jordan*"_
 
 ---
