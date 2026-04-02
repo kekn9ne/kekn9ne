@@ -7,6 +7,6 @@
 
 ---
 
-_"Lost Time is never found again. — *Benjamin Franklin*"_
+_"If I can laugh, I can live. — *Christopher Reeve*"_
 
 ---
