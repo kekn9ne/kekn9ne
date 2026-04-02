@@ -7,6 +7,6 @@
 
 ---
 
-_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
+_"The right thing to do and the hard thing to do are usually the same. — *Steve Maraboli*"_
 
 ---
