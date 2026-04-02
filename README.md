@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Thursday, 02 April 2026**  
-🌤️ Weather in Istanbul: **â  +15Â°C**  
+🌤️ Weather in Istanbul: **weather data source not available**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Embody what you teach, and teach only what you have embodied. — *Dan Millman*"_
+_"There's more to life than being a passenger. — *Amelia Earhart*"_
 
 ---
