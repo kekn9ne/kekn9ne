@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 April 2026**  
 🌤️ Weather in Istanbul: **â  +11Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Polémique** by *Freeze corleone* 🎶
 
 ---
 
-_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
+_"It is in the heart that makes a man rich. He is rich according to what he is, not according to what he has. — *Henry Ward Beecher*"_
 
 ---
