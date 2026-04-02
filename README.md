@@ -3,10 +3,10 @@
 🗓️ Today is: **Thursday, 02 April 2026**  
 🌤️ Weather in Istanbul: **ð¦   +11Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Polémique** by *Freeze corleone* 🎶
 
 ---
 
-_"If I can laugh, I can live. — *Christopher Reeve*"_
+_"If you don't program yourself, life will program you. — *Les Brown*"_
 
 ---
