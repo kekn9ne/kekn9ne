@@ -7,6 +7,6 @@
 
 ---
 
-_"If you quit once it becomes a habit. — *Michael Jordan*"_
+_"The most efficient way of rendering the poor harmless is to teach them to want to imitate the rich. — *Carlos Ruiz Zafon*"_
 
 ---
