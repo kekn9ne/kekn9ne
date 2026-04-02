@@ -7,6 +7,6 @@
 
 ---
 
-_"Your next step is simple. You are the first domino. — *Gary Keller*"_
+_"You're braver than you believe, and stronger than you seem, and smarter than you think. — *A.A. Milne*"_
 
 ---
