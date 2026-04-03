@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 April 2026**  
 🌤️ Weather in Istanbul: **â  +13Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **No regrets** by *Shakhbanov* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Until we can manage time, we can manage nothing else. — *Peter Drucker*"_
+_"There exists only the present instant; a Now which always and without end is itself new. — *Meister Eckhart*"_
 
 ---
