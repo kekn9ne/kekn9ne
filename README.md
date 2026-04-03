@@ -7,6 +7,6 @@
 
 ---
 
-_"It is better to be looked over than overlooked. — *Mae West*"_
+_"Do not be awe struck by other people and try to copy them. Nobody can be you as efficiently as you can. — *Norman Vincent Peale*"_
 
 ---
