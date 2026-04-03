@@ -7,6 +7,6 @@
 
 ---
 
-_"Believe nothing you hear, and only one half that you see. — *Edgar Allan Poe*"_
+_"Not all readers are leaders, but all leaders are readers. — *Harry S. Truman*"_
 
 ---
