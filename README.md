@@ -7,6 +7,6 @@
 
 ---
 
-_"Wrong does not cease to be wrong because the majority share in it. — *Leo Tolstoy*"_
+_"The eyes of others our prisons; their thoughts our cages. — *Virginia Woolf*"_
 
 ---
