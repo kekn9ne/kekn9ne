@@ -7,6 +7,6 @@
 
 ---
 
-_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
+_"Man's character is his fate. — *Heraclitus*"_
 
 ---
