@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 April 2026**  
 🌤️ Weather in Istanbul: **â  +13Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **No regrets** by *Shakhbanov* 🎶
 
 ---
 
-_"Even a hare will bite when it is cornered.  — *Chinese Proverb*"_
+_"Until we can manage time, we can manage nothing else. — *Peter Drucker*"_
 
 ---
