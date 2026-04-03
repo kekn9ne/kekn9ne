@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 03 April 2026**  
-🌤️ Weather in Istanbul: **ð¦   +11Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +12Â°C**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Anyone who dreams of an uncommon life eventually discovers there is no choice but to seek an uncommon approach to living it. — *Gary Keller*"_
+_"The goal is not to be perfect by the end, the goal is to be better today. — *Simon Sinek*"_
 
 ---
