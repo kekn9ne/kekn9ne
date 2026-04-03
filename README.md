@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 04 April 2026**  
-🌤️ Weather in Istanbul: **â  +13Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +13Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Trap House** by *UZI* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"When I let go of what I am, I become what I might be. — *Lao Tzu*"_
+_"When you are content to be simply yourself and don't compare or compete, everybody will respect you.  — *Lao Tzu*"_
 
 ---
