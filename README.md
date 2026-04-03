@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 03 April 2026**  
-🌤️ Weather in Istanbul: **ð¦   +15Â°C**  
+🌤️ Weather in Istanbul: **â  +14Â°C**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Here is the test to find whether your mission on earth is finished. If you're alive, it isn't. — *Richard Bach*"_
+_"Fear does not have any special power unless you empower it by submitting to it. — *Les Brown*"_
 
 ---
