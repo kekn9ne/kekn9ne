@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 April 2026**  
 🌤️ Weather in Istanbul: **â  +13Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Que Importa** by *INNA* 🎶
 
 ---
 
-_"The eyes of others our prisons; their thoughts our cages. — *Virginia Woolf*"_
+_"Power is not what we do but what we do not - hasty and unwise actions that we repeat every day and which ultimately bring us into trouble. — *Robert Greene*"_
 
 ---
