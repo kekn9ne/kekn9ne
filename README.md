@@ -7,6 +7,6 @@
 
 ---
 
-_"The cost of leadership is self-interest. — *Simon Sinek*"_
+_"Our attitude toward life determines life's attitude towards us. — *Earl Nightingale*"_
 
 ---
