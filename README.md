@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 03 April 2026**  
-🌤️ Weather in Istanbul: **â  +14Â°C**  
+🌤️ Weather in Istanbul: **â  +15Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Butcher** by *Sosa La M* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
+_"If you're afraid to die, you're afraid to live. You can't have one without the other. — *Rita Mae Brown*"_
 
 ---
