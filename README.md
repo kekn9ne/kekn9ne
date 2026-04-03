@@ -3,10 +3,10 @@
 🗓️ Today is: **Friday, 03 April 2026**  
 🌤️ Weather in Istanbul: **â  +14Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Butcher** by *Sosa La M* 🎶
 
 ---
 
-_"Before you embark on a journey of revenge, dig two graves.  — *Confucius*"_
+_"Success in any endeavor depends on the degree to which it is an expression of your true self.  — *Ralph Marston*"_
 
 ---
