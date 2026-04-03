@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Friday, 03 April 2026**  
-🌤️ Weather in Istanbul: **ð¦   +12Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +13Â°C**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"The goal is not to be perfect by the end, the goal is to be better today. — *Simon Sinek*"_
+_"A man with outward courage dares to die: a man with inner courage dares to live. — *Lao Tzu*"_
 
 ---
