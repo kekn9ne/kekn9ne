@@ -7,6 +7,6 @@
 
 ---
 
-_"May you live all the days of your life. — *Jonathan Swift*"_
+_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
 
 ---
