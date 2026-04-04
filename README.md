@@ -7,6 +7,6 @@
 
 ---
 
-_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
+_"Problems remain as problems because people are busy defending them rather than finding solutions. — *Celestine Chua*"_
 
 ---
