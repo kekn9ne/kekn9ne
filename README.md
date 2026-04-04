@@ -7,6 +7,6 @@
 
 ---
 
-_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
+_"The tragedy of life doesn't lie in not reaching your goal. The tragedy lies in having no goals to reach. — *Benjamin Mays*"_
 
 ---
