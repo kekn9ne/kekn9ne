@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 04 April 2026**  
-🌤️ Weather in Istanbul: **â  +12Â°C**  
+🌤️ Weather in Istanbul: **â  +11Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **In Your Eyes** by *INNA* 🎶
 
 ---
 
-_"You are never too old to become younger. — *Mae West*"_
+_"We shape clay into a pot, but it is the emptiness inside that holds whatever we want. — *Lao Tzu*"_
 
 ---
