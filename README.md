@@ -7,6 +7,6 @@
 
 ---
 
-_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
+_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
 
 ---
