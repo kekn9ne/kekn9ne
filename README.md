@@ -7,6 +7,6 @@
 
 ---
 
-_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
+_"Your dream has to be bigger than your fear. — *Steve Harvey*"_
 
 ---
