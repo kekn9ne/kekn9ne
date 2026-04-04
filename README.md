@@ -7,6 +7,6 @@
 
 ---
 
-_"If the happiness and prosperity of other people depend on you, you have nothing to fear anymore. — *Robert Greene*"_
+_"Progress is limited by your ability to change your mind. — *Jack Butcher*"_
 
 ---
