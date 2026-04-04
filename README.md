@@ -3,10 +3,10 @@
 🗓️ Today is: **Saturday, 04 April 2026**  
 🌤️ Weather in Istanbul: **â  +12Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Trap House** by *UZI* 🎶
 
 ---
 
-_"He who violates another's honor loses his own. — *Publilius Syrus*"_
+_"Unhappiness enters through a door that has been left open. — *Zen Proverb*"_
 
 ---
