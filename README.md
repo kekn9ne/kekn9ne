@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 04 April 2026**  
-🌤️ Weather in Istanbul: **â  +14Â°C**  
+🌤️ Weather in Istanbul: **â  +12Â°C**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
+_"He who violates another's honor loses his own. — *Publilius Syrus*"_
 
 ---
