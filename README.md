@@ -7,6 +7,6 @@
 
 ---
 
-_"The way out is in. — *Thich Nhat Hanh*"_
+_"A tiny change today brings a dramatically different tomorrow. — *Richard Bach*"_
 
 ---
