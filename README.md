@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is doing what you want to do, when you want, where you want, with whom you want, as much as you want. — *Tony Robbins*"_
+_"Over time, loneliness gets inside you and doesn't go away. — *Carlos Ruiz Zafon*"_
 
 ---
