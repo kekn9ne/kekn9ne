@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 04 April 2026**  
-🌤️ Weather in Istanbul: **â  +16Â°C**  
+🌤️ Weather in Istanbul: **â  +13Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Sun Is Up** by *INNA* 🎶
 
 ---
 
-_"Kindness is a language which the deaf can hear and the blind can see. — *Mark Twain*"_
+_"Be kind, for everyone you meet is fighting a harder battle. — *Plato*"_
 
 ---
