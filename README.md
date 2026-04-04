@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 05 April 2026**  
 🌤️ Weather in Istanbul: **â  +10Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Rottweiler** by *EsDeeKid* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Throw me to the wolves and I will return leading the pack.   — *Seneca*"_
+_"The very essence of instinct is that it's followed independently of reason. — *Charles Darwin*"_
 
 ---
