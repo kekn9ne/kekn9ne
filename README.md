@@ -7,6 +7,6 @@
 
 ---
 
-_"Storms don't last forever. — *Unknown*"_
+_"The way out is in. — *Thich Nhat Hanh*"_
 
 ---
