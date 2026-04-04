@@ -7,6 +7,6 @@
 
 ---
 
-_"However difficult life may seem, there is always something you can do and succeed at. — *Stephen Hawking*"_
+_"A path is made by walking on it. — *Zhuangzi*"_
 
 ---
