@@ -7,6 +7,6 @@
 
 ---
 
-_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
+_"I'm not afraid of death, but I'm in no hurry to die. — *Stephen Hawking*"_
 
 ---
