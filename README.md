@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 04 April 2026**  
-🌤️ Weather in Istanbul: **ð¦   +12Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +13Â°C**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Doing what you love is the cornerstone of having abundance in your life.  — *Wayne Dyer*"_
+_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
 
 ---
