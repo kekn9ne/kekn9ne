@@ -7,6 +7,6 @@
 
 ---
 
-_"First say to yourself what you would be; and then do what you have to do. — *Epictetus*"_
+_"There is no significance in life without struggle. — *Lolly Daskal*"_
 
 ---
