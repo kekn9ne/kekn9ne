@@ -7,6 +7,6 @@
 
 ---
 
-_"I'm not afraid of death, but I'm in no hurry to die. — *Stephen Hawking*"_
+_"Don't try to be young. Just open your mind. Stay interested in stuff. — *Betty White*"_
 
 ---
