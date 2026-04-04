@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Saturday, 04 April 2026**  
-🌤️ Weather in Istanbul: **â  +13Â°C**  
+🌤️ Weather in Istanbul: **â  +14Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Sun Is Up** by *INNA* 🎶
+🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Be kind, for everyone you meet is fighting a harder battle. — *Plato*"_
+_"Don't be afraid that you do not know something. Be afraid of not learning about it. — *Zen Proverb*"_
 
 ---
