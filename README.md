@@ -7,6 +7,6 @@
 
 ---
 
-_"Success is not what you do when you are on top.  Success is how high you bounce when you hit the bottom. — *Sonia Ricotti*"_
+_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
 
 ---
