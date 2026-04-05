@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 05 April 2026**  
-🌤️ Weather in Istanbul: **ð¦   +14Â°C**  
+🌤️ Weather in Istanbul: **â  +15Â°C**  
 📊 GitHub Contributions: **65**  
 🎧 Currently Listening: Not listening to anything right now ❌
 
 ---
 
-_"Trust in dreams, for in them is the hidden gate to eternity.   — *Kahlil Gibran*"_
+_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
 
 ---
