@@ -7,6 +7,6 @@
 
 ---
 
-_"It's only after you've stepped outside your comfort zone that you begin to change, grow, and transform. — *Roy T. Bennett*"_
+_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
 
 ---
