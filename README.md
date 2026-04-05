@@ -7,6 +7,6 @@
 
 ---
 
-_"The best thing to hold onto in life is each other. — *Audrey Hepburn*"_
+_"Fears are nothing more than a state of mind. — *Napoleon Hill*"_
 
 ---
