@@ -7,6 +7,6 @@
 
 ---
 
-_"Things may come to those who wait, but only the things left by those who hustle. — *Abraham Lincoln*"_
+_"To some degree, you control your life by controlling your time. — *Conrad Hilton*"_
 
 ---
