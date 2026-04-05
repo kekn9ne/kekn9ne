@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 05 April 2026**  
-🌤️ Weather in Istanbul: **âï¸   +15Â°C**  
+🌤️ Weather in Istanbul: **âï¸   +14Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Deja Vu** by *INNA* 🎶
 
 ---
 
-_"There are no uninteresting things, only uninterested people. — *Gilbert Chesterton*"_
+_"The chief enemy of creativity is good sense. — *Pablo Picasso*"_
 
 ---
