@@ -7,6 +7,6 @@
 
 ---
 
-_"If you want to be happy, set a goal that commands your thoughts, liberates your energy, and inspires your hopes. — *Andrew Carnegie*"_
+_"There are no uninteresting things, only uninterested people. — *Gilbert Chesterton*"_
 
 ---
