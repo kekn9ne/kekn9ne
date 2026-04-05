@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 05 April 2026**  
 🌤️ Weather in Istanbul: **âï¸   +18Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Laedt** by *Yung Kafa & Kücük Efendi* 🎶
+🎧 Currently Listening: **Yarım Saat Sonra** by *Skapova* 🎶
 
 ---
 
-_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
+_"People who are unable to motivate themselves must be content with mediocrity, no matter how impressive their other talents. — *Andrew Carnegie*"_
 
 ---
