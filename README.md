@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 05 April 2026**  
-🌤️ Weather in Istanbul: **ð¦   +13Â°C**  
+🌤️ Weather in Istanbul: **ð¦   +14Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **DRILLA** by *Luciano* 🎶
 
 ---
 
-_"Don't let them drag you down by rumors. Just go with what you believe in. — *Michael Jordan*"_
+_"Creativity is intelligence having fun. — *Albert Einstein*"_
 
 ---
