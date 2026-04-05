@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 05 April 2026**  
 🌤️ Weather in Istanbul: **âï¸   +17Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Flow365 - Flow360** by *Kava* 🎶
+🎧 Currently Listening: **2000** by *Ender* 🎶
 
 ---
 
-_"If you're waiting until you feel talented enough to make it, you'll never make it. — *Criss Jami*"_
+_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
 
 ---
