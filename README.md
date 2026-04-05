@@ -7,6 +7,6 @@
 
 ---
 
-_"You must find the place inside yourself where nothing is impossible. — *Les Brown*"_
+_"You will face many defeats in life, but never let yourself be defeated. — *Maya Angelou*"_
 
 ---
