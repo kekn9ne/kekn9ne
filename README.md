@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 05 April 2026**  
-🌤️ Weather in Istanbul: **â  +15Â°C**  
+🌤️ Weather in Istanbul: **âï¸   +17Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: Not listening to anything right now ❌
+🎧 Currently Listening: **Flow365 - Flow360** by *Kava* 🎶
 
 ---
 
-_"You will never do anything in this world without courage. It is the greatest quality of the mind next to honor. — *James Allen*"_
+_"If you're waiting until you feel talented enough to make it, you'll never make it. — *Criss Jami*"_
 
 ---
