@@ -3,10 +3,10 @@
 🗓️ Today is: **Sunday, 05 April 2026**  
 🌤️ Weather in Istanbul: **âï¸   +17Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **2000** by *Ender* 🎶
+🎧 Currently Listening: **Ou** by *UZI* 🎶
 
 ---
 
-_"Numbing the pain for a while will only make it worse when you finally feel it. — *Albus Dumbledore*"_
+_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
 
 ---
