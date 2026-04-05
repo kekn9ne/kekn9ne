@@ -1,12 +1,12 @@
 # 👋 Hello, I'm Kekn9ne!
 
 🗓️ Today is: **Sunday, 05 April 2026**  
-🌤️ Weather in Istanbul: **âï¸   +17Â°C**  
+🌤️ Weather in Istanbul: **âï¸   +18Â°C**  
 📊 GitHub Contributions: **65**  
-🎧 Currently Listening: **Ou** by *UZI* 🎶
+🎧 Currently Listening: **Laedt** by *Yung Kafa & Kücük Efendi* 🎶
 
 ---
 
-_"Everyone thinks of changing the world, but no one thinks of changing himself. — *Leo Tolstoy*"_
+_"Those who bring sunshine into the lives of others cannot keep it from themselves. — *James Matthew Barrie*"_
 
 ---
